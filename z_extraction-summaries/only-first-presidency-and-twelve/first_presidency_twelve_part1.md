@@ -1,6 +1,1438 @@
 # Conference Talks - First Presidency and Quorum of the Twelve Apostles
 
-# Conference Talks - First Presidency and Quorum of the Twelve Apostles
+## Introduction
+
+**Speaker:** By President Dallin H. Oaks
+
+**Calling:** President of The Church of Jesus Christ of Latter-day Saints
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/11oaks?lang=eng
+
+My dear brothers and sisters, welcome to general conference. I now address members of The Church of Jesus Christ of Latter-day Saints, numbering over 17 million worldwide, and others who are interested in the remarkable progress and inspired teachings of this Church.
+
+Most of you know we have these general conferences twice each year. But as many of you are not aware, the conference we convene today is different because it begins with what we call a solemn assembly. For more than a century, this has been an event of great significance to members of the Church.
+
+In a solemn assembly, we will sustain members of the First Presidency and the Quorum of the Twelve Apostles, voting by quorums and groups. We do this only in the first conference where a new President and prophet of the Church has been called.
+
+I am grateful to be among those whose leadership callings are formally recognized in this way and to express appreciation for your participation in this significant occasion.
+
+In advance, I express our gratitude as leaders of the Church for our members’ sustaining vote, prayers, and support. We also pray for you to be guided and prospered as you continue the great service you give to the children of God throughout the world.
+
+At this Easter season, I reaffirm our testimony of the resurrected Lord and recognize that He is the head of this Church. We pray for His blessings upon this conference and upon all of you in the name of Jesus Christ, amen.
+
+---
+
+## Solemn Assembly
+
+**Speaker:** Presented by President D. Todd Christofferson
+
+**Calling:** Second Counselor in the First Presidency
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/12christofferson?lang=eng
+
+Brothers and sisters, I have been asked to handle the business of the solemn assembly, the sacred event for which we are gathered today.
+
+In this solemn assembly, as noted, we will vote by quorums and groups. We will call on each quorum or group in turn. Wherever you are, you will then be invited to stand and express by your uplifted hand that you choose to sustain those whose names will be presented. You should vote only when asked to stand with your quorum or group.
+
+Please express your support in the usual way with the uplifted hand. If there are those who oppose any of the proposals, we ask that you contact your stake president.
+
+We will now begin. Again, please stand and vote only when asked to do so.
+
+We will begin with members of the First Presidency. Will the First Presidency please stand?
+
+It is proposed that the First Presidency sustain Dallin Harris Oaks as prophet, seer, and revelator and President of The Church of Jesus Christ of Latter-day Saints.
+
+Members of the First Presidency in favor, please manifest it.
+
+It is proposed that the First Presidency sustain Henry Bennion Eyring as First Counselor and David Todd Christofferson as Second Counselor in the First Presidency of the Church.
+
+Members of the First Presidency in favor may manifest it.
+
+It is proposed that the First Presidency sustain Henry Bennion Eyring as President of the Quorum of the Twelve Apostles and Dieter Friedrich Uchtdorf as Acting President of the Quorum of the Twelve Apostles.
+
+Members of the First Presidency in favor may manifest it.
+
+It is proposed that the First Presidency sustain the following as members of the Quorum of the Twelve Apostles: Dieter F. Uchtdorf, David A. Bednar, Quentin L. Cook, Neil L. Andersen, Ronald A. Rasband, Gary E. Stevenson, Dale G. Renlund, Gerrit W. Gong, Ulisses Soares, Patrick Kearon, Gérald Caussé, and Clark G. Gilbert.
+
+Members of the First Presidency in favor, please manifest it.
+
+It is proposed that the First Presidency sustain the counselors in the First Presidency and the Quorum of the Twelve Apostles as prophets, seers, and revelators.
+
+Members of the First Presidency in favor will please manifest it.
+
+The First Presidency may be seated.
+
+Members of the Quorum of the Twelve Apostles will now vote. We invite the Quorum of the Twelve Apostles please to stand.
+
+It is proposed that the Quorum of the Twelve Apostles sustain Dallin Harris Oaks as prophet, seer, and revelator and President of The Church of Jesus Christ of Latter-day Saints, together with his counselors and members of the Quorum of the Twelve Apostles as they have been presented and voted upon by the First Presidency.
+
+Members of the Quorum of the Twelve Apostles in favor, please manifest it.
+
+You may be seated.
+
+We ask the General Authority Seventies, Area Seventies, and members of the Presiding Bishopric please to stand.
+
+It is proposed that all General Authority Seventies, Area Seventies, and members of the Presiding Bishopric sustain Dallin Harris Oaks as prophet, seer, and revelator and President of The Church of Jesus Christ of Latter-day Saints, together with his counselors and members of the Quorum of the Twelve Apostles as they have been presented and voted upon by the First Presidency.
+
+All General Authority Seventies, Area Seventies, and members of the Presiding Bishopric who are in favor, please manifest it.
+
+You may be seated.
+
+We ask the following to please stand, wherever you may be throughout the world: ordained patriarchs, high priests, and elders.
+
+It is proposed that Dallin Harris Oaks be sustained as prophet, seer, and revelator and President of The Church of Jesus Christ of Latter-day Saints, together with his counselors and members of the Quorum of the Twelve Apostles as they have been presented and voted upon.
+
+All in favor, please manifest it.
+
+Any opposed may manifest by the same sign.
+
+Please be seated.
+
+Will all members of the Relief Society—that is, all women 18 years of age and older—please stand?
+
+It is proposed that Dallin Harris Oaks be sustained as prophet, seer, and revelator and President of The Church of Jesus Christ of Latter-day Saints, together with his counselors and members of the Quorum of the Twelve Apostles as previously presented and voted upon.
+
+All in favor, please indicate by the uplifted hand.
+
+Any opposed may so indicate.
+
+You may be seated.
+
+Will all those holding the Aaronic Priesthood only—that is, ordained priests, teachers, and deacons—please stand?
+
+It is proposed that Dallin Harris Oaks be sustained as prophet, seer, and revelator and President of The Church of Jesus Christ of Latter-day Saints, together with his counselors and members of the Quorum of the Twelve Apostles as previously presented and voted upon.
+
+All in favor may indicate by the uplifted hand.
+
+Any opposed may so indicate.
+
+Please be seated.
+
+Will the young women who are ages 11 to 18 please stand?
+
+It is proposed that Dallin Harris Oaks be sustained as prophet, seer, and revelator and President of The Church of Jesus Christ of Latter-day Saints, together with his counselors and members of the Quorum of the Twelve Apostles as previously presented and voted upon.
+
+All in favor, please indicate by the uplifted hand.
+
+Any opposed may so indicate by the same sign.
+
+You may be seated.
+
+We now ask the entire membership of the Church, wherever you are located, including all who have stood previously, to please stand.
+
+It is proposed that Dallin Harris Oaks be sustained as prophet and seer and revelator and President of The Church of Jesus Christ of Latter-day Saints, together with his counselors and members of the Quorum of the Twelve Apostles as they have been presented and voted upon.
+
+All in favor, please indicate by the uplifted hand.
+
+Any opposed, by the same sign.
+
+You may all be seated.
+
+Thank you, brothers and sisters, for your sustaining vote on behalf of these leaders of The Church of Jesus Christ of Latter-day Saints.
+
+We are grateful for your faith and prayers in our behalf.
+
+---
+
+## About His Business
+
+**Speaker:** By Elder Patrick Kearon
+
+**Calling:** Of the Quorum of the Twelve Apostles
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/13kearon?lang=eng
+
+I was baptised into The Church of Jesus Christ of Latter-day Saints in my mid-20s in London, joining a host of new young single adult friends in my newfound faith. During the first sacrament meeting following my baptism, I was asked to come to the front of the chapel, and the congregation was invited to raise their hands as a sign of welcome to the ward and to the Church.
+
+This was an unfamiliar practice to me. But I looked into those smiling faces, and I felt as if they were cheering me on, genuinely thrilled that I had discovered faith in Jesus Christ and a desire to follow Him. Many of my new friends had recently experienced this same welcome and transition into a life of faith.
+
+A week later, I was invited to meet with the bishop. He had taken time to get to know me when I was being taught by the missionaries. He rocked back in his chair, thwacking a ruler into his palm, and told me that we were meeting because he had a calling for me. He had prayed—about me—and he told me the calling would be of benefit to me and my future service to the Lord in His Church. He extended the calling of assistant ward clerk. The reaction in my mind was, “Assistant ward clerk? Well, that is not me!” Fortunately, a little grace intervened, and I responded with a “thank you” and that I would endeavour to learn what was involved. I did not have a clue.
+
+At church the next Sunday, I was asked to stand as my calling was announced. My ward family was invited to raise their hands if they agreed to sustain me. Comfortingly, I saw those same raised hands and smiling faces surrounding me in the congregation, reassuring me that these new friends would support me with their goodwill, patience, and faith.
+
+The ward clerk I was to be “assisting” came straight to me at the end of the meeting and said, “Come on, Patrick. I’ll show you how this works.” Over the coming months, he did show me how everything worked, sitting side by side, often for hours—in the small clerk’s office. (To be clear, that’s a small office for clerks, not an office for small clerks.)
+
+Other callings followed. My bishop kept a loving eye on me and eventually shared that he had felt prompted by the Lord to extend callings which would be stretching for me but, he trusted, not overwhelming. I came to see purpose and power in each calling I received, and with hindsight, the bishop’s inspiration came to make sense to me.
+
+I also had the opportunity to sustain many others, happily trying to support them as we all learned to serve together. Often the calling was an obvious fit to the person’s gifts and talents. Occasionally I thought, “Hmm, interesting choice,” though never more than when I was that choice.
+
+## Common Consent
+
+With those raised hands and encouraging smiles, we were participating in common consent, where we can choose to sustain, by the raising of the right hand, those called to serve. Common consent is not a mere formality but a beautiful mix of our agency, unity, and faith. It is a voluntary, personal commitment to support, uphold, and help the Lord’s called servants in their responsibility, whether bishopric member, Young Women adviser, Sunday School teacher, or stake Primary president. We sustain each other with our prayers, our love, our patience, and our faith. Will we always agree with those we are invited to sustain? Will we always think they are doing a good job and serving as the Saviour would? Perhaps not, and we might be right, but as we pray for them and they for us, important bridges of unity are built.
+
+I came to understand why everyone serves one another in a ward or branch: it affords us all the opportunity to pursue Christ and His virtues—such as charity, humility, meekness, forgiveness, and love—with people who may be very different to us. I clearly saw how faith is fortified and the body of Christ bonded together. I could see the Lord working through imperfect servants, very much including myself, who were striving to discern His will for those they were serving.
+
+Some callings are highly stretching, while others may leave us wondering, “Isn’t there more I could be asked to do?” You might serve in a very visible role for a time, only later to be called to quiet, unseen service—or to support those with less experience. When callings change in ways that deeply impact you or your family, it can require great faith and trust in the Lord while you adjust.
+
+I also acknowledge that there are those who, owing to exceptional circumstances, are unable to respond to a calling at a given time. Careful leaders will be sensitive to this, and through prayer, the Lord can help you know when the time is right for you to serve again.
+
+Is it sometimes inconvenient to serve in a calling that asks something of us? Might we become jaded or reluctant? I have learned over and over again that—whatever our offering—in the Lord’s economy we always come out ahead.
+
+When the Saviour called Peter, Andrew, James, and John to follow Him, they instantly dropped their nets. If a call were ever inconvenient or incomprehensible, it must have been this one on the shore of Galilee, yet with faith they followed. And what of feeling disheartened or flagging? Well, even with all they saw, felt, and experienced, those first Apostles needed the Lord’s gentle reminding and His repeated invitation to feed His sheep.
+
+Our service is a choice, an offering to God, and a blessing. We all know that prayer, study of scripture, and worship at church and in the temple are critical to the development of our faith. Have we also come to see our callings as having a foundational role in the expansion of our faith? Callings from the Lord are tailor-made for our growth, as we humble ourselves, look outward, and learn that, indeed, when we are in the service of our fellow beings, we are in fact in the service of our God. It really isn’t where we serve but how that matters to the Lord.
+
+And it matters for us too. There was nothing half-hearted about those friends I talked about. They were living their faith at full speed, and it was contagious. I could see the joy that came to them from their whole-souled devotion—which brings us to today.
+
+## Solemn Assembly
+
+We have had the sacred opportunity to come together to raise our hands in support of President Dallin H. Oaks, to sustain him as the Lord’s prophet, seer, and revelator. I’m sure that if he were to review his Church service in his 20s and 30s in the way that I just have my own, nothing would have been further from the realms of possibility in his mind than becoming the President of the Church. This is a call he didn’t seek or aspire to. The weight of this responsibility is colossal and sobering. I can’t help but think of his daddy, who died when young Dallin was only seven, and his faithfully resolute mother, who raised a resilient, hardworking son who would later be called from an illustrious yet modest life to serve as a member of the Quorum of the Twelve Apostles. Now, 42 years later, we joyfully sustain him as the Lord’s chief Apostle, as his whole soul once again responds to a call, claiming no infallibility while trusting in the Lord’s guiding hand.
+
+Since 1880, we have called this kind of moment a solemn assembly, a sacred gathering for a holy purpose such as this. While today is certainly solemn in purpose, it is also a day full of gratitude and rejoicing at the opportunity for the whole Church to come together and exercise common consent. We have signified our willingness to uphold President Oaks with our confidence, faith, and prayers.
+
+“Every individual [has stood] equal with every other in exercising with soberness and in solemnity his or her right to sustain or not to sustain [him] who, under the procedures that arise out of [revelation], [has] been chosen to lead.”
+
+## About His Business
+
+When 12-year-old Jesus was found by His parents teaching in the temple, He told them that He had been “about [His] Father’s business.” And we can be too. Every calling, whatever it may be, is “His business” when embraced with a humble and willing heart and a desire to lift and comfort His children and share His good news. We are not merely filling an assignment when we respond to an inspired call but joining the Saviour of the world in His infinite, redeeming work. He needs you, and He needs me. Life is better—everything is better—when we are about His business. In the name of Jesus Christ, amen.
+
+---
+
+## Come Home
+
+**Speaker:** By Elder Clark G. Gilbert
+
+**Calling:** Of the Quorum of the Twelve Apostles
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/15gilbert?lang=eng
+
+In Elder Patrick Kearon’s remarks of the inadequacies we feel in a new calling, perhaps it was significant that he made reference to a “small Clark.”
+
+As Christine and I have felt the overwhelming weight of this calling, we have been grateful to know that Christ’s grace makes up the difference in our lives. We have been grateful for the prayers and sustaining support of so many. We have also been strengthened by President Dallin H. Oaks’s first message as an Apostle, given nearly 42 years ago. In 1984 he declared, “I will devote my whole heart, might, mind, and strength to the great trusts placed in me, especially to the responsibilities of a special witness of the name of Jesus Christ in all the world.”
+
+Today I echo that same declaration. I pledge my life to be a witness to the name of Jesus Christ. Today, I will specifically witness to the names of Redeemer and Repairer, as I focus on Christ’s invitation for all of us to come home.
+
+William Shakespeare’s famous words pronounce that missed opportunities can bind our future:
+
+There is a tide in the affairs of men
+
+Which, taken at the flood, leads on to fortune;
+
+Omitted, all the voyage of their life
+
+Is bound in shallows and in miseries.
+
+Choices do have consequences, but we know in the gospel of Jesus Christ that when we lose our way spiritually, the Savior still allows us to change. As President Russell M. Nelson taught:
+
+“Because of our covenant with God, He will never tire in His efforts to help us, and we will never exhaust His merciful patience with us.”
+
+And “should [we] stray, He will help [us] find [our] way back.”
+
+## God Is Calling Us Home
+
+After our first son was born, Christine and I struggled to have more children. We found hope in Minerva Teichert’s painting of a pioneer mother entering the valley with her little family, beckoning others to follow behind her. Like that young mother, we were pleading for our future children to gather with our family. Eventually they did come, but our years of hoping and praying, for us, were difficult.
+
+In my weekend assignments as a General Authority, I have repeatedly witnessed people finding their way home. It may not always have come quickly, but it happened—over and over again. Let me take you on just a few of those ministering visits.
+
+I will first speak to those who feel they don’t belong.
+
+Sister Anglesey had left her home and her faith 30 years earlier. She had long known something was missing in her life but felt overwhelmed just to walk back into church. She eventually mustered the courage to attend a temple open house. As beautiful as that visit was, Tammy later confided to me, “All I could see was an experience I would never have. No sealing, and no [endowment].” Still, prompted by that visit, she dressed for church one Sunday, only to park her car and watch others walk into the building. Overcome with anxiety, she simply drove home, changed her clothes, and wept alone. An inspired bishop later sent her a note inviting her back to church. I met Tammy on a ministering visit just after her temple endowment. She had been away from the Church for 30 years! She had spent Sundays sitting alone in a church parking lot. But the Lord brought her home and restored her to His light, love, and joy.
+
+Next, I speak to those who feel they don’t measure up.
+
+On a ministering visit in San Antonio, Texas, I went to the San Antonio Temple, where we met with the missionaries and the Vargas family. Andrea was then serving as a Primary president in the Church. Her husband, Luis, though not a member, did attend church. The mission president had called me and shared with me that Brother Vargas felt like he wasn’t good enough to be baptized—that he couldn’t measure up to the other people he saw at church. On the steps of the San Antonio Temple, I said, “Brother Vargas, you don’t have to be perfect to be in this Church. You just have to do your best, and Christ will make up the difference.” At the end of the tour, Brother Vargas turned to his wife and said, “Honey, I think it’s time I join this Church so I can become a better father and a better husband.” He was baptized a month later, and their beautiful family was eventually sealed in that same temple.
+
+To those who doubt.
+
+Justin and Kenna Valdez moved away from family so it would be easier for them to walk away from their faith. But the hero of this story was their eight-year-old son, who still wanted to be baptized. Sensing an opening door, a wise stake president scheduled a ministering visit for us to go to their home. I still remember Kenna’s squinty look as she stared at me as I walked into the room. But she eventually confided she still had faith in the Savior and even a testimony of the Book of Mormon. But she faced a few triggering issues that kept her from coming back to church. We promised them that as they anchored in the things they did believe, the Lord would help with the things they didn’t. Overcoming their concerns was not an issue of resolving every faith question but of helping them recognize the Holy Ghost. As President Oaks recently taught, “You live in a season in which the adversary has become so effective at disguising truth that if you don’t have the Holy Ghost, you will be deceived.” Justin and Kenna began to make the changes necessary to come back. Six months after our visit, Kenna texted me, “Hi Elder Gilbert! We are ready to be sealed as a family.” This is a photo from the day that they were sealed in the Pocatello Idaho Temple.
+
+I speak next to those who are trapped in traditions.
+
+When I met John Raass, he was not yet a member of the Church. His wife, Kailani, had catered a dinner for the stake presidency, and we invited them to join us. John appeared weary of entering a spiritual discussion, but I assured him we would become fast friends. You see, John was a former BYU football star, and I grew up cheering for him. We eventually asked John why he had never joined the Church. He cited the need to honor the faith traditions of his now deceased parents. We helped him realize that they now understood the Church and they would honor his decision. John then chose to meet with the missionaries. Two months later he was baptized. And a year later his family was sealed in the temple.
+
+## Conclusion
+
+Feeling we don’t belong, struggling with doubts, or being limited by traditions are just a few of the reasons we don’t immediately answer the call to come home. But even as societal pressures pull people away from their faith, life’s deeper questions do not go away. As President Nelson taught, “The truth is that it is much more exhausting to seek happiness where you can never find it!” President Oaks declared that the journey home starts by reanchoring on the Savior. Only Jesus Christ can fully restore that light and joy into your life. We all struggle. We need patience, service, and love from others. To those who are trying to help those they love, hold on to the truth. Keep your covenants. Helping others requires you to stay in your covenants. To those who are struggling to come home, know that it is your Savior who’s the one calling you back. In the end, everyone must make their own choices to come home.
+
+In President Dallin H. Oaks’s recent historic address at BYU, the Marriott Center initially looked completely full. But if you looked closely, there were still hundreds of unfilled seats, and the ushers struggled to find space for those who still wanted to join the devotional. Then something remarkable happened. Students who had already found their seats began to turn their phone flashlights on to signal to the late-arriving students that there was still space. It was as if they were holding up a light to say, “Please come sit with me; we saved a seat just for you.”
+
+I conclude with a hymn that to me feels like the very voice of the Lord calling us home:
+
+Softly and tenderly Jesus is calling—
+
+Calling for you and for me.
+
+Patiently Jesus is waiting and watching—
+
+Watching for you and for me!
+
+Come home! Come home! Ye who are weary, come home!
+
+Earnestly, tenderly, Jesus is calling—
+
+Calling, O sinner, come home!
+
+I witness that Christ is our Redeemer. When we fall short, He repairs the breaches in our lives. The Savior loves all of us and is tenderly calling for you and for me to come home. Come home. In the name of Jesus Christ, amen.
+
+---
+
+## All Who Have Endured Valiantly
+
+**Speaker:** By Elder David A. Bednar
+
+**Calling:** Of the Quorum of the Twelve Apostles
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/16bednar?lang=eng
+
+I have participated in competitive athletics since I was a young boy, and running has been an essential element of my physical conditioning. Over the years, I developed a lifelong love-hate relationship with running. I love the physical benefits and mental exhilaration provided by regular workouts. But I hate the sore muscles, aching lungs, and exhaustion. As I have come to the end of many of my long-distance runs, I have exhorted myself to push on, hang on, and endure to the end.
+
+In relation to physical exercise, the word endure suggests maintaining intense physical and mental effort over an extended period of time. Many of us also may associate the word endure with the unpleasant drudgery of routine work and responsibilities. But in a spiritual context, enduring is far more than merely persevering tenaciously to complete demanding duties or challenges.
+
+The scriptures highlight instructive uses of the word endure. For example, the Lord declared to the Nephites, “Look unto me, and endure to the end, and ye shall live; for unto him that endureth to the end will I give eternal life.”
+
+And the Savior revealed through the Prophet Joseph Smith that “if you keep my commandments and endure to the end you shall have eternal life, which gift is the greatest of all the gifts of God.”
+
+I pray for the assistance of the Holy Ghost as we consider a higher and holier understanding of what it means to endure to the end as lifelong disciples of the Lord Jesus Christ.
+
+## Becoming New Creatures in Christ
+
+The Savior’s restored gospel invites us to be spiritually transformed—not merely to improve our behavior. As we align our character, desires, actions, and what we truly love more closely with God’s will, the Savior can bring about a comprehensive and complete change in us.
+
+As we strive to put off the natural man and become Saints through the Savior’s Atonement, we are to “come unto [Him],” be “born again,” bind ourselves to the Father and the Son through sacred covenants and ordinances, pledge our willingness to take upon us the Savior’s name, “receive a fulness of the Holy Ghost,” experience a “mighty change [of] heart,” and serve the Lord with all our “heart, might, mind and strength.” We are to become new creatures in Christ.
+
+This mighty spiritual change is possible only “through the merits, … mercy, and grace of the Holy Messiah.” As mortal beings, we are in absolute and never-ending need of Heavenly Father’s and the Savior’s help to realize our eternal destiny.
+
+## The Role and Importance of Spiritual Gifts
+
+Spiritual gifts are blessings and capacities given by God to His children through the power of the Holy Ghost. All individuals who receive the gift of the Holy Ghost by proper priesthood authority and the laying on of hands are eligible to receive spiritual gifts intended “to bless and benefit those who love the Lord and seek to keep His commandments.” Spiritual gifts are prerequisites for and essential to our coming unto the Savior, being blessed with His attributes, and ultimately becoming more like Him.
+
+The very name “spiritual gifts” teaches a vital lesson. All such gifts are given by God according to His will and timing; they are not results we earn solely through focused effort and personal discipline.
+
+## The Spiritual Gift of Charity and Enduring to the End
+
+Mormon testified that “charity is the pure love of Christ” and “the greatest of all” spiritual gifts. Significantly, the word endure is used in the scriptures to define and describe charity.
+
+For example, “charity … endureth forever,” “suffereth long, … seeketh not her own, … beareth all things, … endureth all things.” And, as you sisters know well, “charity never faileth.”
+
+Mormon also taught that “whoso is found possessed of [the spiritual gift of charity] at the last day, it shall be well with him.” Note the double meaning of the word of in this verse. We can possess charity, but ultimately charity should possess us.
+
+As we are blessed to receive this supernal gift, a transformation occurs in our spiritual nature and character. Being “possessed” of the spiritual gift of charity refers in part to the spiritual development and progress that are the overarching purposes of the Savior’s gospel.
+
+## Higher and Holier
+
+For disciples of the Savior, charity encompasses both what we do and what we can become as this spiritual gift ultimately possesses us. At a fundamental level, charity certainly includes acts of compassion, kindness, and generosity directed toward others. But at a higher and even holier level, charity is the very essence of the “end” toward which we are enduring—becoming new creatures in Christ.
+
+Please consider how these two overarching dimensions of charity are described in the thirteenth article of faith. The first half of the statement emphasizes charitable and gracious acts: “We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men.”
+
+The second half of the statement emphasizes the ongoing nature of our spiritual transformation: “We believe all things, we hope all things, we have endured many things, and hope to be able to endure all things. If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things.”
+
+This concluding article of faith is an admonition for us to do good, to be good, and to endure to the end in coming unto and following the Savior and receiving the heavenly gift to love as He loves.
+
+The Savior’s divine nature and sublime character were the wellsprings of perfect compassion during His mortal ministry. The Redeemer of the world turned outward in love and service when He faced spiritual adversity or physical pain—in contrast to the natural man in each of us that turns inward in self-interest, self-centeredness, and selfishness. As we live as He invites us to live and with His help, our nature and character over time increasingly become more like His.
+
+As we follow, love, and serve the Savior, we gradually focus less on our own desires and interests and more on understanding and addressing the needs of others. We do not merely perform benevolent deeds; rather, our state of being is changed and becomes increasingly Christlike. Charity, then, ultimately possesses us.
+
+“Wherefore, … pray unto the Father with all the energy of heart, that ye may be filled with this love, … that when he shall appear we shall be like him, for we shall see him as he is.”
+
+## Grace for Grace
+
+The prospect of being blessed in mortality with even a small portion of the character and attributes of Jesus may seem utterly impossible to us. But the Redeemer “marked the path and led the way.” The power of His doctrine, covenants and ordinances, and example can bless us in every aspect of our lives.
+
+The pattern of spiritual development evident in the Savior’s mortal life also applies to each of us. Jesus Christ was “in the beginning with the Father.” So were we.
+
+He “came and dwelt in the flesh,” and “he received not of the fulness at first, but [received and] continued … grace to grace, until he received a fulness.” As children of God, we also can receive of His fulness “in due time,” following the same “grace for grace” pattern as did the Savior.
+
+## Scriptural Examples
+
+I am now going to read three scriptures that contain the phrase “endure to the end.” I will insert the phrase “is possessed of the pure love of Christ” in each verse so we can learn a vital and eternal lesson.
+
+The Savior taught His ancient Apostles: “He that endureth to the end [or is possessed of the pure love of Christ] shall be saved.”
+
+Nephi testified: “I heard a voice from the Father, saying: Yea, the words of my Beloved are true and faithful. He that endureth to the end [or is possessed of the pure love of Christ], the same shall be saved.”
+
+Alma declared: “He that findeth mercy and endureth to the end [or is possessed of the pure love of Christ] the same shall be saved.”
+
+Enduring to the end is linked inextricably to the spiritual gift of charity. Enduring to the end is not merely a relentless determination to grit our teeth, hold on to the limits of our physical strength and mental capacity, and push through the challenges and adversities of mortal life; it is so much more than that.
+
+Enduring to the end is the joyous quest of a lifetime—a pressing forward with faith in Jesus Christ in a gradual process of trusting in and receiving help from our Savior to become more like Him. As our love for Him grows ever stronger and deeper, we can be blessed to receive spiritual perspective, the Lord’s empowering grace, and exceedingly great and indescribable joy.
+
+## Promise and Testimony
+
+The scriptural phrase “come unto me” is the Savior’s introductory invitation to learn and act in His doctrine and begin a process of spiritual rebirth.
+
+The scriptural phrase “endure to the end” is a repeated reminder of the mighty spiritual change in our hearts that should be ongoing throughout our lives; it also is His promise of what we may become if we truly are possessed of the pure love of Christ.
+
+The Lord revealed to the Prophet Joseph Smith, “All thrones and dominions, principalities and powers, shall be revealed and set forth upon all who have endured valiantly for the gospel of Jesus Christ.”
+
+I joyfully witness that each of us, with the Lord’s grace and mercy, can believe all things, hope all things, and endure valiantly all things. I so testify in the sacred name of the Lord Jesus Christ, amen.
+
+---
+
+## Prayers for Peace
+
+**Speaker:** By President Henry B. Eyring
+
+**Calling:** First Counselor in the First Presidency
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/19eyring?lang=eng
+
+My dear brothers and sisters, I am grateful to be with you at this time when we can remember again the Savior’s comfort to His Apostles, as He knew that He would have to leave them alone, without Him to lead, protect, and succor them in their perils.
+
+It was at that Last Supper that He gave those faithful disciples a promise, which continues to comfort and encourage His faithful disciples today in whatever difficulties we face in our own lives. He said: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.”
+
+The world today seems to be in commotion. There are wars and rumors of wars. The economies of whole continents seem to be faltering. Prophesied wickedness seems to be accelerating as the Savior’s return draws nearer.
+
+Yet despite turmoil and difficulty, faithful Latter-day Saints in hardship across the world have flooded heaven with prayers. In public and in private, they are petitioning the Lord for help, for comfort, for direction, and for personal peace for those they love.
+
+You may have seen in your congregations and in your homes that prayers have not only been more numerous but more heartfelt.
+
+Turning to Heavenly Father in fervent prayer when the world seems chaotic is as old as mankind. In times of fear, tragedy, danger, trouble, or illness, people often turn to God in prayer. His Beloved Son, Jesus Christ, in whose name we pray, lives, knows us, watches over us, and cares for us. You may remember the consoling words of King David from the book of Psalms:
+
+“The Lord also will be a refuge for the oppressed, a refuge in times of trouble.
+
+“And they that know thy name will put their trust in thee: for thou, Lord, hast not forsaken them that seek thee.”
+
+In moments of pain, loneliness, or confusion, we know that our Heavenly Father and His Beloved Son are aware of our circumstances and that They yearn to bless us. The Savior’s words are clear:
+
+“And I say unto you, Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you.
+
+“For every one that asketh receiveth; and he that seeketh findeth; and to him that knocketh it shall be opened.”
+
+Opening the windows of heaven through fervent prayer does not require the use of many words or flowery language. Rather, the diligence in prayer which Heavenly Father requires of us is to “pour out [our] souls” in private places and have our hearts “drawn out in prayer unto him continually.”
+
+During His Sermon on the Mount, the Savior taught:
+
+“When thou prayest, enter into thy closet, and when thou hast shut thy door, pray to thy Father which is in secret; and thy Father which seeth in secret shall reward thee openly.
+
+“But when ye pray, use not vain repetitions, as the heathen do: for they think that they shall be heard for their much speaking.
+
+“Be not ye therefore like unto them: for your Father knoweth what things ye have need of, before ye ask him.”
+
+The Lord has also provided us touching evidence of the power of nonverbal prayers offered within our hearts. In the Book of Mormon, we read of the people of Alma the Elder, who would have been destroyed had they prayed openly:
+
+“And Alma and his people did not raise their voices to the Lord their God, but did pour out their hearts to him; and he did know the thoughts of their hearts.
+
+“And it came to pass that the voice of the Lord came to them in their afflictions, saying: Lift up your heads and be of good comfort, for I … will also ease the burdens which are put upon your shoulders, that even you cannot feel them upon your backs, even while you are in bondage. …
+
+“And now it came to pass that the burdens which were laid upon Alma and his brethren were made light; yea, the Lord did strengthen them that they could bear up their burdens with ease, and they did submit cheerfully and with patience to all the will of the Lord.”
+
+I testify that the Lord hears and answers the prayers of our hearts, just as He did for Alma and his people. We can follow His commandment to “pray always” by having a continual prayer in our hearts. As prophets have taught many times in the past, you may not feel like praying or you may not know what to say, but God hears the secret prayers of your heart. The feelings of your heart and the love for our Heavenly Father and for His Beloved Son can be so constant that your prayers will ascend always.
+
+As we pray continually, no matter the circumstances of life, the Lord will offer us His peace and abiding support. I am reminded of the example of the sons of Mosiah, who had success in preaching the gospel and were made spiritually strong because they prayed constantly. We read in the book of Alma, “They had given themselves to much prayer, and fasting; therefore they had the spirit of prophecy, and the spirit of revelation.”
+
+It is significant that their spiritual strength came from continued prayer rather than waiting to pray until a moment of crisis when they desperately needed divine help. Consistent prayer during joyous times and also during seasons of distress and grief will surely be rewarded according to His will and perfect timing.
+
+I know that God the Father lives. He loves us. He hears our prayers, and many times He will answer with feelings of peace. Again from the Book of Mormon: “And now, may the peace of God rest upon you, and upon your houses and lands, and upon your flocks and herds, and all that you possess, your women and your children, according to your faith and good works, from this time forth and forever. And thus I have spoken.”
+
+Brothers and sisters, I bear my testimony that the Savior’s promise is true and that a humble prayer for peace in your heart will be honored. I felt it at the funeral of my wife of 61 years. I was surprised at the feeling of peace and almost joy. The people at the funeral must have wondered why I was smiling. It was because the Lord had answered my prayer for peace with an assurance from the Holy Ghost, which allowed me to envision the happy reunion ahead with her. The Lord gave me the peace and hope that He had promised His disciples.
+
+He said: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled.”
+
+I testify that I know that Jesus Christ lives. He loves us and blesses us. He continues to offer us peace in our lives through sincere and fervent prayer. Of these things I humbly testify in the sacred name of Jesus Christ, amen.
+
+---
+
+## Sustaining of General Authorities, Area Seventies, and General Officers
+
+**Speaker:** Presented by President D. Todd Christofferson
+
+**Calling:** Second Counselor in the First Presidency
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/21christofferson?lang=eng
+
+Brothers and sisters, in addition to the sustaining of the new First Presidency and members of the Quorum of the Twelve Apostles in the solemn assembly that took place this morning, President Oaks has asked that I now present the other General Authorities, Area Seventies, and General Officers of The Church of Jesus Christ of Latter-day Saints for your sustaining vote.
+
+We ask that you please express your support in the usual way. If there are those who oppose any of the proposals, we ask that you contact your stake president.
+
+According to established policy followed for many years, General Authority Seventies are released and granted emeritus status in the year a General Authority Seventy turns 70. Therefore, the following General Authority Seventies will be released from their assignments and given emeritus status, effective on August 1, 2026: Elders Craig C. Christensen, Eduardo Gavarret, Brook P. Hales, William K. Jackson, Erich W. Kopischke, Peter F. Meurs, and S. Mark Palmer, who will also be released as a member of the Presidency of the Seventy.
+
+Those who wish to express gratitude to these brethren and to their wives and families for their years of dedicated service throughout the Church may do so by the uplifted hand.
+
+We note with gratitude the 75 Area Seventies who will complete their service and whose names can be found on the Church’s website.
+
+Those who wish to join in expressing appreciation to these brethren and to their families for their years of selfless service may manifest it.
+
+We extend, with sincere gratitude, releases to the Primary General Presidency, effective on August 1, 2026, as follows: Susan H. Porter as President, Amy A. Wright as First Counselor, and Tracy Y. Browning as Second Counselor.
+
+All who wish to join in expressing gratitude to these sisters and their families for their devoted service may manifest it.
+
+Elder Benjamin M. Z. Tai has been called to serve as a member of the Presidency of the Seventy, effective on August 1.
+
+Those in favor, please manifest it.
+
+Those opposed, if any, by the same sign.
+
+It is proposed that we sustain the following as new General Authority Seventies: Elders Christian C. Chigbundu, Matthew J. Eyring, Hutch U. Fale, James O. Fantone, Kevin J. Hathaway, Thabo Lebethoa, Jeremiah J. Morgan, and Paul H. Sinclair.
+
+All in favor, please manifest it.
+
+Those opposed, by the same sign.
+
+We note that 91 new Area Seventies were sustained during the general conference leadership meetings on Thursday, April 2, and then announced on the Church’s website. We invite you to sustain these brethren in their new assignments.
+
+Those in favor, please manifest it.
+
+Those opposed may indicate by the same sign.
+
+It is proposed that we sustain the following as the new Primary General Presidency, to be effective on August 1, 2026: Rosemary K. Chibota as President, Nina M. Garfield as First Counselor, and Theresa A. Collins as Second Counselor.
+
+Those in favor may manifest it.
+
+Any opposed may so signify.
+
+It is proposed that we sustain the other General Authorities, Area Seventies, and General Officers of the Church as presently constituted.
+
+All in favor may do so by the uplifted hand.
+
+Those opposed, if any.
+
+We again thank you for your sustaining vote on behalf of the leadership of the Church.
+
+## Changes to Area Seventies
+
+The following Area Seventies were sustained during a leadership meeting held as part of general conference:
+
+Demetrio P. Agudo III, Rafael Alcántara, J. Gerardo Álvarez, Paulo M. Araujo, Troy A. Bair, Brett V. Benson, Felix O. Bentayen Jr., Christopher B. Bingham, Peter Bushi, Nuno A. Campos, Jorge R. Cardozo, Lenin Cerón, Brandon J Child, Juan Pablo Cortez, Victor Cortez Padilla, Andrew E. Dadson, Alirio B. Díaz, Samuel E. Eghan, Brandon C. Ellison, J. Joel Fernandes, Nathan R. Fernley, Jerome G. Galotera, Matthew R. Hall, Paul E. Higueros, Rhett R Hintze, Hikombo Hitoto, Miguel A. Honores, Fredrick N. Igweh, M. Franck Ilunga, Marcus F. Johnson, Josue G. Jundos, Anani Kouegan, Orson S. Lemos, Kleber A. Litardo, R. Wade Litchfield, Sawman Machakaire, Hans A. Martineau, Osvaldo E. Martinez Carreño, Philip J. Mathemera, Patrick O. Mawongo, John L. Merrill, Cesar A. Morales, Andres D. Moreno, Jason T. Morris, Ngqabutho F. Moyo, Harri J. Myllylä, Scott M. Naatjes, Lincoln D. Nadauld, Nadmid B. Namgur, Thelmo P. Navarra Jr., Reid L. Neilson, Stephen F. Notarte, D. Dan Nuñez, Dennis K. Ocansey, Odgerel Ochirjav, Jimmy C. Okot, M. Shayne Olsen, Sylvain G. Onagnelin, Víctor Orozco, Sunday F. Oyedeji, Daniel W. Packard, Marcelo J. Paz, Joshua K. Perkes, Thịnh Phúc Phan, N. Benjamin Poóu, Wilfredo E. Rellora Jr., Jon P. Reyes, Gary M. Riding, Ryan A Robinson, Carlos J. Rodriguez, Luis D. Santana, Kurt F. Scherer, B. Brondon Shaheen, Nathan Y. Sharp, Luis H. Silva, Graham F. Smith, Craig R. Spangler, Christopher Stephenson, Michael J. Stone, Martin R. Tello Sotil, Christopher L. Thomas, Paul J. Thomas, Kevin C. Thompson, Paula S. Tonga, Jose J. Trovato, Manea Tuahu, Edgar D. Valdez, Juan F. Vásquez, Andres Villegas, Brian J. Willey, Ritch N Wood.
+
+The following Area Seventies will be released on or before August 1, 2026:
+
+Daniel P. Amato, Rodney A. Ames, Marcelo Andrezzo, Samuel Annan-Simons, Eduardo M. Argana, Lauriano P. Balilemwa, Erik Bernskov, Mark E. Bonham, K. Bruce Boucher, Jonathon W. Bunker, Jonathan G. Cannon, Juan P. Casco, Fernando R. Castro, Ranulfo Cervantes Soler, Thomas K. Checketts, Ross A. Chiles, Stephen K. Christensen, Benjamin Cinco, David C. Clark, Félix Conde, Jorge A. Contreras, Corbin E. Coombs, Moroni Costa, Nathan A. Craig, Leandro J. Curaba, Ernesto A. Deyro Jr., Hutch U. Fale, Tomás Familia, James O. Fantone, Claude R. Gamiette, John Gutty, Tommy D. Haws, Hal C Hunsaker, Yuichi Imai, B. Helaman Ixcot, Dong Hwan Jeong, Frederick M. Kamya, David S. Kinard, Julio E. Lee, Odair Lira, Enrique M. Loo, R. Darío Lorenzana, Hernán D. Lucero, Bartolome L. Madriaga, Douglas P. Maxfield, Enrique Mayorga, Héctor Méndez, Steven C. Merrell, Quinn S. Millington, Siegfried A. Naumann, Ricardo J. Nieves, Lorenzo Norambuena, Enefiok Ntem, Charles O. Oide, Juan L. Orquera, Roberto C. Pacheco, Damon Page, Franck A. Poznanski, T. Michael Price, Alexandre Ret, Frédéric T. Riemer, Russell A. Robinson, Leonardo S. Rojas, Douglas A. Rozsa, Tonga J. Sai, Lee M. Shumway, Vance K. Smith, Martiniano S. Soquila Jr., Victor H. Suazo, Raul Tapia, Carlos Torres, Iotua B. Tune, Bruno E. Vásquez, M. Travis Wolsey, Richard G. Youngblood.
+
+---
+
+## Lost Luggage, Redeemed Souls
+
+**Speaker:** By Elder Gary E. Stevenson
+
+**Calling:** Of the Quorum of the Twelve Apostles
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/23stevenson?lang=eng
+
+## Forgotten, Neglected, or Lost
+
+Have you ever stood at an empty airport luggage return carousel, as it circles endlessly, wondering if your bag somehow was diverted to Kathmandu? Have you ever been told the last known location of your checked bag was somewhere between “It is sure to turn up somewhere” and “You should consider buying everything new”? Have you ever been ghosted by a suitcase that contained essential materials? If so, this message might interest you.
+
+Today I will talk about lost luggage.
+
+An estimated 33 million bags were mishandled at airports in 2024. Although this happens to only a small percentage of travelers, no matter how infrequent, the thought of losing important belongings is a universal worry.
+
+Recently, while traveling for a weekend assignment, I realized my carry-on bag wouldn’t fit in the overhead space. I needed that bag. It contained important, essential material. Almost before I had a chance to react, an attendant took my bag, wrapped a tag around its handle, handed me a luggage claim ticket, and whisked my precious possession away.
+
+Throughout that flight, I had an anxious feeling. I hoped someone was taking care of the bag and its contents. I hoped it would not be forgotten, neglected, or lost. I clutched my claim ticket, hoping for a successful reunion.
+
+My story had a happy ending; my bag and I were reunited. But the experience got me thinking.
+
+You may have heard a report from Osaka, Japan, about the Kansai International Airport’s world record—something almost unbelievable. After 30 years of operation and processing hundreds of millions of pieces of cargo, carry-ons, and cases, this airport has not lost one item of luggage.
+
+Not one single piece!
+
+How is such a thing possible?
+
+Tsuyoshi Habuta, the airport chief of baggage operations, believes losing luggage should never happen “because luggage is precious to passengers.” That attitude permeates through his entire staff. The airport’s success, he says, is all part of a commitment to “thoroughness and an attention to detail.”
+
+The Japanese people have developed a reputation for such attention to detail. They have a principle, kaizen, that encapsulates a mindset of constantly searching for and implementing minor improvements. This practice requires a quiet discipline of always looking for small ways to make processes better. They take pride in the fact that these improvements almost always come from those doing the everyday work.
+
+Over the years, the staff at Kansai Airport has developed a process that makes the goal of not losing passengers’ bags a reality. They train employees rigorously and constantly ensure that every bag is counted, tracked, and cared for. They make meticulous and multiple manual checks that complement a sophisticated automated system.
+
+Fragile items such as musical instruments are often hand-delivered to passengers. Staff members do small things such as placing bags on conveyor belts with handles facing outward for easier retrieval by passengers.
+
+When you hand off your luggage at Kansai Airport, you get a sense that they are saying to you, “We have your precious belongings. We are responsible for them now. We will return them to you.”
+
+## Our Heavenly Father’s Love
+
+As I reflect on these experiences, I find myself contemplating a moment of trust far more sacred than checking a bag.
+
+In a reverent way, I wonder what it is like for a loving Heavenly Father to send His most precious belongings, His children, away from their heavenly home, knowing they must pass through the challenges of mortality. I suppose His great comfort is knowing that they do not travel alone. Parents, family, leaders, friends, ministering brothers and sisters, you and I serve as stewards of His most precious possessions.
+
+How beloved and precious His children are to Him.
+
+And how beloved and blessed are those who care for and nurture others.
+
+And yet, the feeling is recognizable: entrusting what is precious into the care of others—and longing for its safe return. This evokes memories of familiar scenes: a mother—father—at a curb or platform, bidding farewell to their student, soldier, or missionary. Years of teaching, preparation, and prayer culminate in a moment of placing their cherished possession into the care of others—trusting conscientious stewards to care for their son or daughter through the duration of their journey until they are reunited.
+
+In a much holier way, our Heavenly Father also places a claim upon us, not as a label on a handle but as a divine truth written on the heart: “You are mine. I know you. You are not alone. I have not forgotten you. I intend to bring you home.”
+
+This is more than logistics.
+
+This is redemption.
+
+May I offer two cases where I feel the Lord would be deeply pleased with those who magnify their role as thoughtful and intentional handlers of His precious cargo, His children?
+
+## Our Sacred Call to Minister
+
+The first is in our role as assigned ministering brothers and sisters—adults and youth.
+
+Please know you represent the Lord, scripturally aligned, serving those who are “numbered among the people of the church of Christ,” whose “names [are] taken, that they might be remembered and nourished by the good word of God, to keep them in the right way.” We “are to ‘watch over’ Church members and ‘be with and strengthen them’ (Doctrine and Covenants 20:53).” The greatest success in missionary work comes as we act in normal and natural ways; the same is true in ministering.
+
+I invite you to contemplate how you can:
+
+Provide Christlike love, caring, and service.
+
+Offer help and comfort in times of spiritual or temporal need.
+
+Prayerfully seek the guidance of the Spirit.
+
+Help prepare families to make and keep sacred covenants with God as they receive ordinances.
+
+Consider your ministering assignment as “Christlike caring” of the Lord’s most treasured possessions, who at the end of their mortal journey can be claimed and redeemed by Him. I invite you to implement small acts of kindness and care into your ministering, becoming better ministers of Jesus Christ.
+
+## Ministering to the Rising Generation
+
+The second is the universal charge to strengthen and nurture the rising generation, to bring up children “in light and truth.”
+
+In the perilous times in which we live, the rising generation needs a defense and refuge from the storm. We can contribute to this effort by investing time and teaching. There is no greater need and no greater return on this investment than when it is made with Primary children, young men, young women, and young adults.
+
+President Dieter F. Uchtdorf has promised that as we do our part in teaching, nurturing, and then trusting in God to work His miracles, “the result will be more beautiful and more stunning and more joyful than anything you could accomplish just by yourself.”
+
+How do we do this?
+
+By motivating, teaching, and encouraging our young people to receive the holy name of Jesus Christ in their hearts and minds, to joyfully take up the cross of Christ, and to walk in holiness as His disciples and emissaries.
+
+We teach this, “that our children may know to what source they may look for a remission of their sins,” even Jesus Christ.
+
+Inspire them to “sincerely and persistently do the spiritual work needed to develop the crucial, spiritual skill of learning how to hear the whisperings of the Holy Ghost, [giving them] all the direction [they] will ever need in [their lives].”
+
+These precious souls are beings of potential beyond measure whose destiny it is to walk through eternity in halls of celestial glory.
+
+Teach the rising generation to know, love, and emulate their Savior, Jesus Christ. “He is the strength of youth.”
+
+They will respond.
+
+## A Safe Return
+
+Unlike pieces of luggage, each of us is ultimately responsible for our decisions, beliefs, and actions, assisted by heavenly and earthly ministering angels. Therefore, as disciples of Jesus Christ, we rise with renewed determination to succor and care for those with whom we come in contact.
+
+In the end, we are all one family.
+
+We all need help along the way.
+
+We each possess a tag that marks us as a child of a loving Heavenly Father. Printed upon that tag is a spiritual promise and sacred proclamation that testifies, “This precious soul has great worth to one day be redeemed by its holder,” never to be forgotten, neglected, or lost.
+
+I rejoice in that redemption and celebrate the great privilege we have to participate in that work until that day when we safely return to the one who created and loves us with a perfect love.
+
+That we may fulfill that mission for ourselves and diligently care for others as they seek to return to His heavenly embrace is my prayer in the name of Jesus Christ, amen.
+
+---
+
+## Love All; Love Each
+
+**Speaker:** By Elder Gérald Caussé
+
+**Calling:** Of the Quorum of the Twelve Apostles
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/27causse?lang=eng
+
+Some time ago, a journalist asked me this simple yet profound question: “What do you know now, after being ordained as a member of the Quorum of the Twelve Apostles?” My response came instantly: “I have learned that I can love even more.”
+
+Over the past few months, my wife, Valérie, and I have been deeply moved by the outpouring of love and prayers from Saints around the world. Through you, my dear brothers and sisters, we have felt the love of God more intensely than ever before in our lives. And in response, our own ability to love has grown in ways we never expected.
+
+Christlike love grows and multiplies as it is shared. When we show others the pure love of Christ, they come to recognize more fully how deeply the Lord cares for them—and, in turn, their own capacity to love is enlarged and strengthened.
+
+Years ago, while spending peaceful time in the beautiful countryside, I stepped outside after sunset to rest on a lounge chair. The night was so dark that I could hardly see anything. Instinctively, I looked up and noticed a tiny flickering point of light, then another. As my eyes adjusted to the darkness, the sky filled with stars.
+
+I thought, “This is like our relationship with God.” Some think He is distant, and life feels heavy as a result. But if they pause to reflect on His presence in their lives, they will find that He is near—quietly present, far closer than they imagine.
+
+As I pondered this idea, a question from one of David’s psalms came to mind:
+
+“When I consider thy heavens, the work of thy fingers, the moon and the stars … ;
+
+“What is man, that thou art mindful of him?”
+
+The answer that follows is deeply comforting: “Thou hast made him a little lower than the angels, and hast crowned him with glory and honour.”
+
+This is the miracle of God’s relationship with us: The universe is vast beyond comprehension, yet every soul carries infinite worth in the eyes of our Creator. Though we may seem small in a physical sense, each of us is personally known, remembered, and loved by our Eternal Father and by His Son, Jesus Christ.
+
+In 1905, after a conversation with a friend who had long endured serious health challenges, Civilla D. Martin found inspiration for the beloved hymn “His Eye Is on the Sparrow.” When Civilla asked her friend how she avoided discouragement, she replied, “How can I be discouraged when my Father watches the sparrows, and I know He loves and cares for me?”
+
+Her words echoed the Savior’s teaching that no sparrow falls without the Father’s notice—and that even “the very hairs of [our] head are all numbered.” Elder Neal A. Maxwell added that the God who governs galaxies also guides our personal lives. “God is in the details!” he said. “… He knows and loves each and all of mankind!”
+
+I bear witness of this truth: God and His Son, Jesus Christ, love all—and They love each.
+
+While studying scriptures in English, I noticed dozens of verses in which the words all and each (or every) appear together. For example, we learn in Mosiah: “He [speaking of the Lord] remembereth every creature of [His] creating, [and He] will make [Himself] manifest unto all.”
+
+The word all speaks to the universal reach of God’s love. The word each (or every) testifies of His power to care for each individual soul.
+
+This dual reality is most clearly manifested in Jesus Christ’s Atonement. All sons and daughters of God, without exception, will receive a full opportunity to access its supernal blessings. Yet it is a remarkably intimate gift, tailored to each individual’s needs and applied to one person at a time.
+
+As disciples of Jesus Christ, we bear witness of Him whenever we share His love with all around us—and help it take root in each person we meet.
+
+To love all and to love each are not two different kinds of love but the same divine love expressed on two scales—one expansive enough to embrace the whole world and the other personal enough to notice a single individual with unique needs, circumstances, and life story.
+
+First, loving all.
+
+Are we selective, or exclusive, in determining who deserves our love, or do we extend Christlike love to all with whom we associate?
+
+The Lord asked, “If ye salute your brethren only, what do ye more than others?” To Him, all people upon this earth are our neighbors—there are no strangers or outcasts, only brothers and sisters.
+
+The Prophet Joseph Smith taught that “a man filled with the love of God, is not content with blessing his family alone, but ranges through the whole world, anxious to bless the whole human race.”
+
+Discipleship was never meant to be a comfortable circle of familiar friends focused on their own interests. Rather, our congregations are a beautiful mosaic—enriched by diverse backgrounds, cultures, and experiences—yet united in devotion to Christ.
+
+Service in the Church expands our circle of love and widens our associations. We meet people from all walks of life—new friends, brothers and sisters in need, recent converts, and missionary or ministering companions. We don’t serve only those we already love; rather, we come to love people as we serve them.
+
+Second, loving each.
+
+Do we interact superficially with others, or do we genuinely seek to know and care for each person we meet?
+
+Though He was often surrounded by multitudes, the Savior always gave His full attention to the one—one sheep, one leper, one Samaritan woman, one little child, one soul at a time. In His love, no one was ever lost in the crowd.
+
+Likewise, in the Church of Jesus Christ, there should be no anonymity. As we enter the fold of Christ through sacred covenants, we are known, accounted for, and cared for—one person at a time.
+
+Through my service, both in and out of the Church, I have learned that even those people who at first seemed insignificant have become some of the most remarkable and uplifting individuals I know. There is wonderful depth—so much to love—in every soul.
+
+I have always enjoyed the tale of Beauty and the Beast—not only because it is set in France or because I can easily relate to Lumière’s lovely accent but because of the beautiful truth it illustrates.
+
+Belle is taken prisoner in a haunted castle by a fearsome and repulsive beast—who is, in fact, a young prince trapped by a spell in the body of a terrifying monster. Rather than judging him by his appearance, Belle learns to see beyond it. She comes to understand that the Beast’s bitterness, rude manners, and sudden anger are only a facade, hiding a wounded soul yearning to love and be loved.
+
+Through Belle’s patience, personal kindness, and loving care, an astonishing transformation begins—one that starts deep within the Beast’s soul and ultimately changes even his outward appearance. The spell is broken, and the young prince is restored, bringing great joy to all who gather to celebrate their new king and queen.
+
+In a similar way, as we extend Christlike love to each person we serve, our eyes are opened to their divine potential. We begin to see them as the Lord sees them—mortal souls with the capacity to become exalted beings through the Savior’s restoring power and grace.
+
+As we care for each soul, we help connect them to the Savior, inviting them to be healed and transformed through His atoning blood. In return, our own lives are blessed—we become more like the Savior and are filled with great joy.
+
+My dear brothers and sisters, as one of His special witnesses, I testify that our Savior, Jesus Christ, loves us more than we can ever imagine. In the words of the hymn, “For His eye is on the sparrow, and I know He watches me.”
+
+May we follow the Lord’s perfect example and learn to love all and to love each, just as He does. In the name of Jesus Christ, amen.
+
+---
+
+## Jesus Christ—the True Vine
+
+**Speaker:** By Elder Ulisses Soares
+
+**Calling:** Of the Quorum of the Twelve Apostles
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/210soares?lang=eng
+
+My dear brothers and sisters, in this sacred Easter season, our hearts turn with deep gratitude and reverent devotion to our Savior, Jesus Christ, and remember His merciful mortal ministry, His perfect love, and His marvelous gift of the Atonement. Throughout His ministry, the Savior spoke on several occasions the sacred words “I am,” using sublime metaphors to bear witness of who He eternally is—the great Jehovah of the Old Testament, the Son of God, the promised Messiah. Among these declarations is one of the most solemn and tender teachings of His ministry, spoken on the night preceding His suffering and death: “I am the true vine. … Ye are the branches: He that abideth in me, and I in him, the same bringeth forth much fruit: for without me ye can do nothing.”
+
+Through this beautiful and moving metaphor, the Savior teaches that He is the true, trusted, and essential source of spiritual nourishment for our souls. Through Him, we receive strength beyond our own not only to survive the challenges of life but to grow and thrive. Through Him, life becomes more hopeful and more joyful and the fruits of the Spirit are manifested in us. Therefore, just as the branches cannot bear fruit of themselves unless they remain connected to the vine, neither can we reach our full spiritual measure unless we abide in Him and His gospel.
+
+Abiding in Christ is not an occasional or casual act; it is a constant, conscious, and sacred choice. It is allowing His holy teachings to abide in us, elevating our thoughts and governing our words in every setting—including the digital spaces where we so often interact—and purifying and consecrating our actions unto Him. It is letting our daily choices be guided by the covenants we have made with Him and allowing our lives to be directed by His loving and constant influence through the Holy Ghost. It is choosing to listen to His voice and the voice of His servants and following what they teach, above all the enticing voices of the world.
+
+Abiding in Christ does not remove the burdens of life, but through His grace they are made lighter, and our hearts are strengthened by the comfort and peace He promises. As we place ourselves in His loving care and take upon us His yoke, we receive the spiritual power to endure and overcome the trials, weaknesses, and sorrows of mortality—burdens often too heavy to bear without His redeeming help and healing influence. In his first epistle to the Saints, the Apostle John taught that he who “abideth in him ought himself also so to walk, even as he walked.” The Apostle Paul likewise testified, “If any man be in Christ, he is a new creature.”
+
+Returning to John’s account, we read that the Savior declared: “Abide in me, and I in you. As the branch cannot bear fruit of itself, except it abide in the vine; no more can ye, except ye abide in me.” It is within this context—of abiding in Him and allowing Him to abide in us—that the Savior’s declaration that He Himself is the True Vine takes on even deeper meaning. The word true suggests that there are, in the world, other vines that present themselves as legitimate, even appearing to represent the loving voice and word of the Savior, the True Vine, and His gospel, while subtly and deviously leading minds and hearts elsewhere.
+
+We live in a world filled with many voices—voices that relentlessly seek our attention and offer persuasive messages and invitations. Some speak with eloquence and influence and are well intentioned in their desire to promote goodness. Others are attractive in appearance but lack substance. Still others are misleading and may even appear to be connected to Christ and His gospel.
+
+Over time, many of these voices grow into tangled vines, rooted in popular philosophies and spread through various forms of media. They promise security, happiness, or authenticity, yet they cannot satisfy the soul. Often, they quietly introduce doubt and division—first in the mind and then in the heart—leading to spiritual loss and sorrow. Although becoming entangled in such voices may feel exciting at first, it ultimately draws us toward fleeting worldly pursuits and weakens our connection to the True and Living Vine, Jesus Christ. As the Apostle Paul warned, “Beware lest any man spoil you through philosophy and vain deceit, after the tradition of men, after the rudiments of the world, and not after Christ.”
+
+My beloved brothers and sisters, true wisdom in our technological day is found in using modern tools with spiritual discernment—through the Holy Ghost—without allowing them to replace the rightful voice of the True Vine. Only our Redeemer can truly redeem us. He is the way, the truth, and the life of the world. “His way is the path that leads to happiness in this life and eternal life in the world to come.” In his first message to the world as our prophet, President Dallin H. Oaks declared with clarity and conviction: “Jesus Christ is the way. … ‘There shall be no other name given, nor any other way nor means, whereby salvation can come unto the children of men, only in and through the name of Christ, the Lord Omnipotent’ (Mosiah 3:17).”
+
+The True Vine offers something far greater and eternal than visibility or acclaim—the promise to “dwell with God in a state of never-ending happiness.” With patience and perfect love, He continues to invite us to come unto Him through His words and the words of those whom He has called and ordained to represent Him, to speak in His name, and to testify of Him. If we desire to bring forth good fruit, as the Savior taught, we need to receive our spiritual nourishment directly from the True Vine, for He is the source of all light and truth. Only then do the precious fruits of the gospel grow in our souls, and only then do we find the true light, life, and hope that flow from Him.
+
+After His Resurrection, Jesus walked with two disciples on the road to Emmaus. Luke records that when they reached their destination, “[the Savior] made as though he would have gone further. But [the two disciples] constrained him, saying, Abide with us.” Those disciples invited the resurrected Savior to abide with them. Without first the desire and then the invitation, their hearts would not have been transformed, their eyes would not have been opened to recognize Him, and they would not have returned to Jerusalem to bear witness of the living Christ—the True Vine.
+
+My beloved brothers and sisters, in a world of many voices, remaining connected to the True Vine is not merely desirable; it is essential to our spiritual survival. Those who abide in Jesus Christ come to recognize and trust His voice, especially as it is spoken through those He has called to represent Him. I will forever treasure the moment when Elder Jeffrey R. Holland called me over the phone to welcome me to the Quorum of the Twelve Apostles, just a few minutes after I received this invitation to serve as a special witness of the Savior to the world. In that sacred moment, I felt the Savior ministering in love to me through the voice of one of His anointed servants. I felt the peace and comforting assurance flowing from the True Vine. Elder Holland’s life and mighty ministry testify that as we hear the Savior’s voice through His servants and abide in Him—the True Vine—we bring forth much fruit, “for without [Him we] can do nothing.”
+
+In this sacred Easter season, I solemnly testify that Jesus Christ is the True Vine. He lives. He rose from the dead, and His redeeming power is real. I bear witness that His voice is the voice of truth and life. With perfect love, He invites all to abide in Him and to continue in His love that we may recognize His power in our lives, that God’s love may be perfected in us, and that we may know that we are in Him. I bear my solemn witness of these eternal truths in the sacred name of Jesus Christ, our Savior, amen.
+
+---
+
+## Encounter at the Empty Tomb
+
+**Speaker:** By President Dieter F. Uchtdorf
+
+**Calling:** Acting President of the Quorum of the Twelve Apostles
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/41uchtdorf?lang=eng
+
+## “They … Came to the Tomb”
+
+Nearly 2,000 years ago, a small group of women rose while it was still dark and made their way toward the tomb where the body of their beloved Lord, Jesus Christ, had been laid to rest.
+
+I have tried to imagine the depth of their grief.
+
+I can’t.
+
+I have tried to imagine their heartache, helplessness, and hopelessness.
+
+I can’t.
+
+Perhaps the question they all asked was “How could this happen?”
+
+How could the man who had cast out demons, healed the crippled, cured the sick, walked on water, conversed with angels, taught the blessed hope and infinite glory of the gospel, fed multitudes, and raised the dead—how could He Himself have died?
+
+Today we understand better why the Savior had to die.
+
+We know His “dying … brought new birth through resurrection’s miracle.” But did His disciples know this at the time? Or did they wonder if God had entirely abandoned them?
+
+Despite the heaviness of their hearts and the unanswered questions in their minds, Mary and her companions made their way to the tomb.
+
+They didn’t come expecting a miracle.
+
+They didn’t come anticipating their questions would be answered.
+
+They certainly didn’t come because they had a complete understanding of what was happening.
+
+They came because of their immeasurable love and reverence for Jesus Christ. They came desiring to provide a loving act of service as a measure of their devotion and love for the man they honored and followed as the promised Messiah.
+
+They came because they knew when the world is dark, the best place to go is toward “the light [that] shines in … darkness.”
+
+What Mary and those with her discovered on that Sunday morning changed the world forever. “They found the stone rolled away from the tomb, but when they went in they did not find the body of the Lord Jesus. While they were perplexed about this, behold, two men stood by them in dazzling apparel … [and] said to them, ‘Why do you seek the living among the dead? He is not here, but has risen.’”
+
+This encounter at the empty tomb changed them forever.
+
+It changed the world.
+
+## He Lives!
+
+Many might picture Jesus as a carpenter from Nazareth or a traveling preacher from Galilee. They might note the significant influence He had on the world’s religious history. But the bold message of the empty tomb is that Jesus Christ is not merely a historical figure.
+
+We do not seek Him among the dead. He is risen!
+
+We understand He is not confined to the pages of a book any more than He was confined to that grave of stone. The scriptures teach us not only who Jesus was but who He is.
+
+Because of what happened on that Sunday morning, we can speak of Jesus Christ in the present tense.
+
+He lives!
+
+Today.
+
+At this moment.
+
+He lives and is an active, ongoing influence in His Church and in the personal lives of those who follow Him. He guides, comforts, listens, calms our fears, and wipes away our tears.
+
+The message of the risen Christ is that, with His strength, all obstacles can be overcome. Because Jesus Christ conquered death, surely He can conquer any danger, confusion, or doubt we face.
+
+## The First Witnesses
+
+Heavenly messengers at the empty tomb gave Mary and her companions two invitations.
+
+First, “Come, [and] see the place where the Lord lay.”
+
+Second, “Go quickly and tell His disciples that He is risen from the dead.”
+
+In time, the Savior echoed a similar invitation to all: “Go into all the world and preach the gospel to every creature.”
+
+Those early believers did just that. And soon, the good news of the Resurrection of Jesus Christ spread throughout “all nations.” That glorious work continues today as we proclaim His way in word and deed throughout more than 150 countries.
+
+## An Invitation
+
+But it’s worth remembering how it started—early on that Sunday morning with Mary and a small group of friends who, despite grief, fear, and unanswered questions, encountered the empty tomb and learned for themselves the glorious truth of His Resurrection. It began on that Easter morning when these few women became the world’s first witnesses of the single greatest event in the history of this world.
+
+We must all do the same.
+
+We must encounter the empty tomb, experience the reality of what it means, and, in turn, share that witness with others.
+
+Even though centuries separate us from that holy day, we are among those who Jesus referred to when He said, “Blessed are those who have not seen and yet have believed.”
+
+The Savior has entrusted each of us personally with sacred spiritual experiences and knowledge. Because of those experiences, we can see for ourselves the meaning of the empty tomb: that Jesus Christ lives and is actively blessing all who seek Him.
+
+We too can rise to Jesus’s challenge and spread the glorious news of the empty tomb.
+
+We can serve full-time missions, which will bring lifelong blessings not only now but for generations to come.
+
+We can feel a renewed determination and embrace the challenge of becoming lifelong missionaries and disciples of Christ through courageous and humble acts of discipleship in our daily lives.
+
+We can walk in “the way” of Christ and “serve God with all diligence day and night.”
+
+Living the message of the risen Christ testifies of our devotion and love for our Savior. It may well be that our consistent, courageous, and humble acts of service and love for God and His children will speak far more eloquently and powerfully than we ever could through words alone.
+
+Some might hesitate to commit fully because of unresolved questions relating to life circumstances, the gospel, or the Church.
+
+But, like Mary and those with her that morning, even when things seem dark, we step forward in faith, with courage and humility, and walk toward the Savior’s light. As we do so, eventually the dawn of understanding will surely reward our faith.
+
+Like the warmth and light of the morning sun, we will feel the love and healing of the Son of God.
+
+Darkness will give way to eternal light.
+
+## A Disciple’s Journey
+
+My dear brothers and sisters, each morning let the daily rising sun remind us that Jesus Christ is the light that leads us through this life, through any valley of sorrow, over beautiful mountains of joy, and across any ocean of uncertainty or temptation, safely back to our loving and merciful Father in Heaven.
+
+Brothers and sisters, as we desire to encounter Christ, we must eventually make our way to the empty tomb.
+
+We must come to know for ourselves the blessed words “Be not afraid, for Jesus, who was crucified, is not here. He is risen!”
+
+Those words will change us. They will inspire us to take upon ourselves the name of Christ. And from that moment on, the Light of Christ will begin to bloom within us. It will, in time, bring about a mighty change in our hearts and bless us with a disposition to do good continually. Jesus Christ and His restored gospel are our strength. Jesus Christ is our guide for making choices and will bring joy and happiness in this life and extend into the eternities.
+
+No, we were not with Mary on that blessed Easter morning. We did not see what she and the other women saw. But we can ask ourselves: What have we seen, felt, or experienced?
+
+Shall we not, therefore, become witnesses of Jesus Christ? Shall we not share our love for Him with others?
+
+My dear friends, on this holy Easter morning, I offer my witness: He is risen.
+
+I have stood at the entrance to the empty tomb and seen with spiritual eyes the eternal truth that Jesus Christ is not found among the dead but among the living.
+
+He lives!
+
+That testimony has made all the difference in my life.
+
+That encounter at the tomb will do the same for all who earnestly seek Him. It will make a difference to you.
+
+My dear friends, let us walk in His way as joyful and constant disciples of our beloved Savior, the Risen One, is my prayer and my blessing in the holy name of Jesus Christ, amen.
+
+---
+
+## He Is Risen
+
+**Speaker:** By Elder Ronald A. Rasband
+
+**Calling:** Of the Quorum of the Twelve Apostles
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/45rasband?lang=eng
+
+This Easter Sunday, all Christians, brothers and sisters in the Lord, honor and celebrate the Resurrection of our Redeemer, Jesus Christ. His Resurrection and His Atonement are the most powerful, far-reaching, and sacred events in all human history.
+
+Jesus Christ and His Resurrection are at the very core of the doctrine of The Church of Jesus Christ of Latter-day Saints. The Prophet Joseph Smith, the first prophet of the Restoration, who saw and spoke with God the Father and His Beloved Son, taught, “The fundamental principles of our religion are the testimony of the Apostles and Prophets, concerning Jesus Christ, that He died, was buried, and rose again the third day, and ascended into heaven.” As an Apostle called of Jesus Christ, I bear my testimony to all the world of that truth.
+
+Jesus Christ is “the God of Abraham, of Isaac, and of Jacob,” “the Almighty God” of the Old Testament, “the light of the world” of the New Testament, “the Messiah” and “Savior of the world” of the Book of Mormon and other latter-day revelation. He came, was crucified, and rose again.
+
+After three days in a borrowed tomb, Jesus Christ broke the bands of death imposed by the Fall. With His Resurrection, He secured salvation from physical death for us, all of God’s children throughout the ages. That includes the just, who herald Him as the Son of God, and the unjust, who will someday recognize Him as “the King of kings,” for it is prophesied, “Every knee shall bow, and every tongue confess” that Jesus is the Christ.
+
+When Mary and other faithful women approached the Garden Tomb to care for the body of their Lord, they found two angels, who announced, “He is not here, but is risen.”
+
+Those glorious words, “He is risen,” have sparked religious ceremony, gratitude, faith in Jesus Christ and His promises for centuries. President Dallin H. Oaks has testified: “The resurrection is a pillar of our faith. It adds meaning to our doctrine, motivation to our behavior, and hope for our future.”
+
+Jesus Christ is more than a mortal first laid in a manger, more than a friend, teacher, rabbi, minister, or prophet. He is the Only Begotten Son of the Father. And by divine design, His Resurrection by His own godly power reunited His body and His spirit. What a majestic and monumental event in Father in Heaven’s eternal plan.
+
+The resurrected Jesus Christ first appeared to Mary and with tenderness spoke her name. He appeared to His Apostles, saying, “Handle me, and see; for a spirit hath not flesh and bones, as ye see me have.” He walked with two of His disciples, on the road to Emmaus, who pleaded, “Abide with us.” The risen Lord, “Endless and Eternal,” appeared to hundreds in the Holy Land.
+
+Accounts in the Book of Mormon: Another Testament of Jesus Christ also bear witness of Him resurrected. A gathering at a temple in the New World, in the land Bountiful, heard a voice from the heavens saying, “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.”
+
+Then they beheld “a Man descending out of heaven; and he was clothed in a white robe; and he came down and stood in the midst of them.” And “he stretched forth his hand.” I love the image of Him stretching forth His hand. He said, “Behold, I am Jesus Christ, whom the prophets testified shall come into the world.”
+
+That outstretched hand was well known in His earthly ministry. His hand rescued Peter as he began to sink in the choppy waves of the Sea of Galilee. His hand motioned for the crippled man at the Pool of Bethesda to “rise … and walk.” His hands washed the feet of His disciples, and His hands “took bread, and gave thanks, and brake it,” initiating the sacrament “in remembrance of” Him. He promised the prophet Isaiah, “Fear thou not; for I am with thee: … for I am thy God: … I will uphold thee with the right hand of my righteousness.” That promise is for all of us.
+
+He stood before them resurrected and said, “Arise and come forth unto me, that ye may thrust your hands into my side, and also that ye may feel the prints of the nails in my hands and in my feet, that ye may know that I am the God of Israel, and the God of the whole earth, and have been slain for the sins of the world.”
+
+The multitude of 2,500 souls “went forth, … and did see with their eyes and did feel with their hands, and did know of a surety and did bear record, that it was he.”
+
+He invited “their little children” to be brought to Him and took them “one by one, and blessed them, and prayed unto the Father for them.”
+
+This scene of Him resurrected, reaching out with hands once nailed to a cross, touches me deeply.
+
+Some years ago at a general conference, I spoke of our grandson Paxton, who was born with a very rare chromosomal deletion. His parents would have carried him to the Savior when He called for all “afflicted in any manner” to come that He might heal them.
+
+Paxton lived three treasured years. He could not speak, crawl, walk, or run after his brothers. But little Paxton’s hands reached out to ours and to our Savior with love and affection.
+
+I remember the first time Paxton’s father and I gave him a priesthood blessing that, as it says in the scriptures, “the works of God should be made manifest in him.” They were. He brought immense joy to our family. Families with such a precious member know what a privilege it is to be blessed with one with special needs. Associating with Paxton, our whole family gained an increased, deep, and abiding trust in the Lord. Then God reached out and took him home.
+
+The words of the psalmist say it all: “Weeping may endure for a night, but joy cometh in the morning.”
+
+That joy is, as the Savior said, “Because I live, ye shall live also.”
+
+I know Paxton’s tender “spirit and [his] body shall be reunited again in … perfect form.” By the power of the Atonement of Jesus Christ, his joy will be in not only a resurrected body but one that is resurrected whole and perfect. All who live or ever have lived who come unto Christ and live His gospel will feel joy beyond any earthly expression as we reunite, resurrected, with our Father in Heaven and Jesus Christ and with our parents, grandparents, siblings, aunts, uncles, cousins, and ancestors.
+
+May we be at peace, brothers and sisters, for the Lord has promised, “Where I am, there ye may be also.” May we believe the Lord’s words in Isaiah: “I have graven thee upon the palms of my hands.” May we testify of Him by the way we live and what we love. May we feel to our very souls these stirring words: “He is risen! He is risen! Tell it out with joyful voice” and “let the whole wide earth rejoice.”
+
+As a special witness of the name of Jesus Christ—the King of glory, the Messiah triumphant, the Bright and Morning Star, and on this Easter morn, the Resurrection and the Life—I bear my witness of Him in reverence and in gratitude in the name of Jesus Christ, amen.
+
+---
+
+## Because of Jesus Christ
+
+**Speaker:** By Elder Dale G. Renlund
+
+**Calling:** Of the Quorum of the Twelve Apostles
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/46renlund?lang=eng
+
+Years ago our family had a little black dog, a toy poodle named Lady. Lady was smart, energetic, and great at fetching a ball. She was willing to retrieve a ball anytime, anyplace, and for as long as anyone was willing to throw one.
+
+One day, after repeatedly throwing a ball for her to fetch, I decided to throw two balls at the same time, one blue and one yellow. Lady chased after the blue ball, picked it up, began running back to me, and then saw the yellow ball. She dropped the blue ball, dashed to the yellow ball, picked it up, and started back to me. Then she seemed to think of the blue ball, dropped the yellow ball, turned around, ran back to the blue ball, picked it up, and began returning. As she was passing the yellow ball, she stopped, dropped the blue ball, picked up the yellow ball, and resumed running back. Then she dropped the yellow ball, turned around, scampered back to the blue ball, picked it up, and began running to me. As Lady passed the yellow ball again, she came to a screeching halt. She dropped the blue ball, looked back and forth from the blue ball to the yellow ball. Then she gave up, walked to her basket, and lay down. For Lady, two balls were too many. She became confused, overwhelmed, and discouraged.
+
+In our lives, we need to deal not just with blue and yellow concerns but also with red and green, orange and purple, polka dots and stripes, and every possible combination. We may feel like Lady—overwhelmed and discouraged—and just want to crawl back into bed.
+
+I cannot add more time to your days or eliminate the many concerns modern life brings. But I can offer this counsel: Not all matters are of equal value, and maintaining an eternal perspective helps us prioritize the things that are of greatest value. On this Easter Sunday, let us consider why focusing on Jesus Christ and the “infinite virtue of His great atoning sacrifice” is of greatest value and helps us no matter how many other concerns we must manage. His life, His mission, and the fruits of His Atonement bless us infinitely and daily.
+
+Jesus lived and died to do His Father’s will. His infinite Atonement—the series of events He experienced from Gethsemane through His death on the cross and on to His glorious Resurrection—is central to Heavenly Father’s plan for our salvation. The plan depended on Jesus Christ; there was no alternative. He completed the Atonement and thereby received “all power … in heaven and in earth.”
+
+Because of the merits, mercy, and grace of Jesus Christ, we can return home to our Heavenly Father and live in His presence. This is only possible through Jesus Christ. The Savior Himself said, “I am the way, the truth, and the life: no man cometh unto the Father, but by me.” Jesus, who leads us to salvation, has the power to do for us what we cannot do for ourselves because He completed His Atonement.
+
+Reflect on these reasons we celebrate Easter. First, Jesus Christ conquered death; He literally rose from the tomb. Because of Him, resurrection is a universal and unconditional gift for everyone who comes to earth. Death is not the end because the spirit and the body will be reunited, never again to be divided.
+
+Second, Jesus Christ has both the power and the desire to save us from our sins. Because of Jesus Christ, when we repent and follow Him, “immediately [will] the great plan of redemption be brought about unto [us].” The Redeemer suffered the punishment for everyone’s sins, transgressions, and mistakes. He can and will declare guiltless all who believe on His name, repent, follow the covenant path, and strive to endure to the end. “All mankind may be saved” because of Him and His atoning sacrifice. All means everyone. If everyone, then anyone. If anyone, then even one. And if even one, then even you.
+
+Jesus Christ has infinite capacity to forgive, promising that “as often as my people repent will I forgive them their trespasses against me.” Because of Jesus Christ, sins for which we have sincerely repented leave no spiritual scar, track, or trace. There is no scarlet letter to wear, now or in the eternities. When we repent with real intent, the entirety of our sin, not just a part, is figuratively nailed to the cross and we no longer bear its spiritual consequences. After we have repented, we owe no more to justice because Jesus has paid the debt; He pardons us from deserved punishment. We are forgiven, our hearts and hands are made clean, and the Lord remembers our sins no more. The Lord our God “is mighty; he will save, [and] he will rejoice over [us].”
+
+Third, Jesus Christ understands our challenges, having taken on not only our sins but also our griefs, sicknesses, and frailties. Because He endured and completed the infinite atoning sacrifice, He empathizes perfectly with us. He can “calm [our] anguish” and offers “gentle … peace … for [our] beseeching.” He, and only He, can consider every factor that shapes who we are: our genetics, intellectual abilities, traditions, experiences, mental and emotional conditions, and every other circumstance that affects who we are. He, and only He, will eventually judge us “according to [our] works, according to the desire of [our] hearts.”
+
+Because of Jesus Christ, all that is unfair in life can and will be made right. He will consecrate our afflictions for our gain. He will sanctify to us our deepest distress. He will fill with sweet a bitter cup. He will dependably and consistently make us whole. If we let Him, we will “suffer no manner of afflictions, save it [is] swallowed up in the joy of Christ.”
+
+Focusing on the Savior, His infinite Atonement, and what He has done for us will bring joy and clarity into our lives, no matter how many other concerns we have. This is why ancient and modern prophets have and always will direct us to Christ. You may remember that President Russell M. Nelson taught, “Whatever questions or problems you have, the answer is always found in the life and teachings of Jesus Christ.” And President Dallin H. Oaks, the Lord’s living prophet today, simply declared, “Jesus Christ is the way.”
+
+You need not be like our little dog, Lady—confused, discouraged, and overwhelmed—when facing too many balls; you do not need to crawl back to bed and cower. Instead, keep your eye on the ball. Focus on the Savior. Seek for the “precious gifts His Atonement can impart.” Then you can joyfully and confidently sing with the children:
+
+I will trust in Jesus. I will hear His call.
+
+He will never leave me, even when I fall.
+
+Jesus gives me power, lifts and comforts me,
+
+Helping me to live and grow eternally.
+
+Because Jesus Christ completed the Atonement, He has the power to help you along your earthly journey and to redeem you from death, both physical and spiritual. Celebrate the joyous message of Easter every day by reflecting every day on the blessings you receive because of Him. “Open wide your broken heart and let your Savior in!”
+
+On this Easter morning, I add my witness of “the great and wonderful love made manifest by the Father and the Son in the coming of the Redeemer into the world.” Jesus Christ is the Resurrection and the Life, the Only Begotten of the Father, the Worthy Lamb who was slain, our Redeemer, our Savior, our Advocate, and most assuredly the Risen Lord. “He lives, who once was dead.” In the name of Jesus Christ, amen.
+
+---
+
+## Alive in Christ
+
+**Speaker:** By President Dallin H. Oaks
+
+**Calling:** President of The Church of Jesus Christ of Latter-day Saints
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/49oaks?lang=eng
+
+## I.
+
+On this glorious Easter Sunday, I have chosen to speak first about the Resurrection, which is a pillar of our faith.
+
+The literal Resurrection of Jesus is the subject of so many scriptures that it is settled doctrine for believers of the Bible and Book of Mormon. For us, the universal Resurrection is equally certain. As the Book of Mormon teaches:
+
+“The spirit and the body shall be reunited again in its perfect form. …
+
+“Now, this restoration shall come to all, both old and young, both bond and free, both male and female, both the wicked and the righteous” (Alma 11:43–44).
+
+I wonder if we fully appreciate the enormous significance of this belief in a literal, universal resurrection. The conviction that death is not the conclusion of our identity changes the whole perspective of our mortal life. It affects how we look on the physical challenges of mortality. It gives us the strength and perspective to endure the mortal challenges faced by each of us and by those we love. It signifies that mortal deficiencies are only temporary! It also gives us the courage to face our own death or that of loved ones—even deaths we might call premature.
+
+Our belief in the Resurrection also encourages us to fulfill our family responsibilities in mortality. It helps us live together in love in this life in anticipation of joyful reunions and associations in the next. All of these truths have been preached in this conference session with great clarity.
+
+## II.
+
+Living worthy to meet Christ is no easy task. Many current writers characterize the time in which we live as toxic, a time of contempt or hostility toward adversaries. This hostility affects many different relationships in society, involving many whose Christian beliefs should orient them otherwise.
+
+Our Savior, Jesus Christ, taught us how to relate to one another. The great commandments in the law, He taught, were to love—God and neighbor (see Matthew 22:37–39).
+
+Asked, “Who is my neighbour?” Jesus answered with a parable that praised the merciful action of a Samaritan, who belonged to a group the Jews isolated and held in contempt (see Luke 10:29–37). But Jesus’s teachings about the circle of love went far beyond Samaritans. In the Sermon on the Mount, He declared:
+
+“Ye have heard that it hath been said, Thou shalt love thy neighbour, and hate thine enemy.
+
+“But I say unto you, Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you” (Matthew 5:43–44).
+
+What a revolutionary teaching for personal relationships! Love even your enemies! But who are our enemies? The full meaning of enemies in the sources from which King James’s translators chose the word enemies includes military foes but even extends to any who actively oppose one another. Today we might say that we are commanded to love our adversaries. All mortals are beloved children of God. As President David O. McKay taught, “There is no better way to manifest love for God than to show an unselfish love for one’s fellowmen.”
+
+I witnessed this uncommon loving of an adversary at a stake conference many years ago. As I looked over the audience before the meeting began, I had an unusual impression to call on a particular woman in a yellow dress. I asked the stake president if he believed this woman would give a suitable talk if called on. He said he thought so. At my request, he later called her out of the audience to give a short talk.
+
+As she came forward, I was apprehensive about what she might say. She introduced herself as a nurse employed to watch over patients in a maximum care facility. Her patients included one she described as “the most repulsive man” she had ever met. (Where was this heading? I asked myself.) From his bedridden position, he did everything he could do to make life miserable for the nurses who were caring for him—including foul language, spitting on the floor, and constantly insulting them in other repulsive ways. She despised him.
+
+One evening she heard a loud crash from this man’s room. Responding, she ran to his room and was shocked to find him fallen out of bed and thrashing about in a pool of broken glass, liquid, and blood. In that moment, a profound change came over her. She felt an almost electric current of love from our Heavenly Father to this man. She saw him as a child of God.
+
+As she knelt and held him in her arms and tried to give him comfort, he said, “I want to go home. I just want to go home.” In a short time, he was dead. She testified that being brought to see a despised enemy like this as a child of God was one of the great spiritual experiences of her life. For me, this was a lesson I needed to learn about our Heavenly Father’s love for all His children. That lesson can transform all of us to see each other as children of God who belong to each other.
+
+Years later, President Howard W. Hunter described this same love of God toward His children: “The world in which we live would beneﬁt greatly if men and women everywhere would exercise the pure love of Christ, which is kind, meek, and lowly. … It has no place for bigotry, hatred, or violence. … It encourages diverse people to live together in Christian love regardless of religious belief, race, nationality, ﬁnancial standing, education, or culture.”
+
+## III.
+
+Each of us can strive to follow our Savior in His teachings about how to relate to one another. This does not mean surrendering our values. The covenants we have made inevitably position us as devoted participants in the eternal contest between truth and error. We balance our various responsibilities.
+
+This balancing is not easy. When we seek to keep all the commandments in our personal lives, we are sometimes accused of having no love for those who don’t. When we show personal love and support loving causes, we are sometimes misunderstood as implying support for results that contradict our other religious duties. But as followers of Christ, we should seek to live peaceably and lovingly with other children of God who do not share our values and do not have the covenant obligations we have assumed. In a democratic government we should seek fairness for all. In countless circumstances, strangers’ suspicions or even hostility gradually gives way to friendship when personal contacts produce mutual respect.
+
+The Prophet Joseph Smith taught that we should “pour forth love” to all people. Speaking of our Savior, the Apostle John wrote, “We love him, because he first loved us” (1 John 4:19). We can follow the example of Jesus Christ, who is our role model, by choosing to love others—even if they show little or no love toward us. He declared, “Blessed are the peacemakers: for they shall be called the children of God” (Matthew 5:9; see also 3 Nephi 12:9).
+
+Peacemakers! How it would change the world if followers of Christ would forgo harsh and hurtful words in all their communications.
+
+In general conference, President Russell M. Nelson challenged us “to choose to be a peacemaker, now and always.”
+
+How can one person be a peacemaker?
+
+A bishop who seeks to heal a troubled marriage or resolve a personal controversy is working for peace.
+
+Young men and women are peacemakers when they forgo the temporary pleasure of self-gratifying activities and involve themselves in service projects and other acts of kindness.
+
+Persons who seek to reduce human suffering and persons who work to promote understanding among different peoples are also important workers for peace. So are faithful mothers and fathers who lovingly care for their own children or shelter foster children and raise them in righteousness rather than leave them to be scarred and twisted by the sins of others.
+
+Our missionaries seek to be peacemakers. They preach repentance from personal corruption, greed, and oppression because only by individual reformation can an entire society eventually rise above such evils. By inviting all to repent and come unto Christ, our missionaries are working for peace by helping individual men and women come unto Christ and experience “a mighty change” of heart and behavior (Mosiah 5:2).
+
+My brothers and sisters, as followers of Christ, let us follow Him by forgoing contention and by using the language and methods of peacemakers. In our families and other personal relationships, let us avoid what is harsh and hateful. Let us seek to be holy, like our Savior, in whose holy name, the name of Jesus Christ, I testify, amen.
+
+---
+
+## The Character of Christ
+
+**Speaker:** By President D. Todd Christofferson
+
+**Calling:** Second Counselor in the First Presidency
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/51christofferson?lang=eng
+
+The Apostle Peter reminds us that in the latter days, there will be doubters who question the Second Coming of Jesus Christ: “There shall come in the last days scoffers, walking after their own lusts, and saying, Where is the promise of his coming?”
+
+Peter reminds us that the “Lord is not slack” and that if there is any seeming delay in His return, it is because of His long-suffering mercy in giving us more time to repent before “the great and dreadful day of the Lord.” “But the day of the Lord will come,” Peter forcefully declares, “… in the which the heavens shall pass away with a great noise, and the elements shall melt with fervent heat, the earth also and the works that are therein shall be burned up.”
+
+Since we know that the Lord will come and establish a new earth where righteousness prevails, Peter asks, “What manner of persons ought ye to be?” He counsels that we should be preparing diligently now so that when the Lord comes, He will find us “in peace, without spot, and blameless,” leading lives of holiness.
+
+As I have pondered Peter’s question, “What manner of persons ought ye to be?” I have decided to speak today about the character of Jesus Christ. It is in emulating the character of Christ that we become the “manner of persons” we ought to be. Acquiring the character of Christ is one of the most important ways we take His name upon us.
+
+When we consider the character of the Savior, we tend to focus immediately on His attributes, such as virtue, integrity, humility, compassion, and courage, but we should also consider, What is it in Jesus that gives rise to such character traits? I believe they are the natural fruit of the thoughts, desires, and intents of His heart. Christlike character grows out of a Christlike heart. Thus, if we are to succeed in developing a Christlike character, we must possess His motivations—His thoughts, desires, and intents of the heart. For us, it will require what the scriptures call a mighty change of heart.
+
+Following King Benjamin’s inspired, prophetic discourse, his people testified, “The Spirit of the Lord Omnipotent … has wrought a mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually.” King Benjamin responded, “Ye shall be called the children of Christ, his sons, and his daughters; for behold, this day he hath spiritually begotten you; for ye say that your hearts are changed through faith on his name.”
+
+In the case of King Benjamin’s people, and some others, this spiritual rebirth with a changed heart was almost instantaneous. For most of us, our mighty change of heart occurs incrementally over time. In either case, the outcome is the same and equally valid. And in all cases, it requires faith in Christ, repentance, a baptismal covenant of obedience, and the grace of Jesus Christ through the Holy Ghost.
+
+Yes, it requires a consistent and sustained effort on our part, but remember, it is not simply a matter of our striving. The good news of the gospel of Jesus Christ is that we, each of us, can call on the grace of Jesus Christ to help us. With our baptism and confirmation, He promises us the companionship of the Holy Ghost, the messenger of His grace. Through the Holy Spirit, we receive His influence and spiritual gifts, “the power of godliness” in our lives. This transformative power produces a mighty change of heart and the character qualities that accompany it.
+
+## Christlike Motivations
+
+What are the desires of Christ’s heart that we want to carry in our own heart? I will mention three.
+
+## 1. The Pure Love of Christ
+
+Foremost among the motives that form Christ’s character is charity, “the pure love of Christ.” It was pure love that, before the Creation, led Him to offer Himself as our Redeemer. His Atonement was and is the supreme act of love. As He Himself said, “Greater love hath no man than this, that a man lay down his life for his friends.”
+
+The love of Christ yields character traits such as compassion, patience, a willingness to correct “when moved upon by the Holy Ghost,” and certainly a willingness to forgive.
+
+Elder David A. Bednar recalls a woman in his stake some years ago calling to request that he visit two young women who were being taken to the hospital following a horrific automobile accident. At that very moment, this sister received on another phone the terrible news that her own daughter had died from injuries sustained in the same accident. In a calm, deliberate voice, she said: “President Bednar, we must get in contact with the two other mothers. We must let them know as much as we can about the condition of their daughters and that they will soon be in the hospital.” Elder Bednar recalls that “there was no self-pity; … there was no turning inward. The Christlike character of this devoted woman was manifested in her immediate and almost instinctive turning outward to attend to the needs of other suffering mothers.”
+
+Elder Bednar observes, “Character is revealed … in the power to discern the suffering of other people when we ourselves are suffering; in the ability to detect the hunger of others when we are hungry; and in the power to reach out and extend compassion for the spiritual agony of others when we are in the midst of our own spiritual distress.”
+
+I think of Jesus in agony and near death on the cross remembering his mother, Mary, and placing her in the care of His beloved Apostle John.
+
+## 2. Lifting and Ministering to Others
+
+A second motivation that underlies the Savior’s character is His passion to foster the happiness and advancement of others. After all, His entire object, in harmony with the Father, is to bring to pass the immortality and eternal life of God’s children. As He taught His Apostles:
+
+“Whosoever will be great among you, shall be your minister: …
+
+“For even the Son of man came not to be ministered unto, but to minister, and to give his life a ransom for many.”
+
+Character qualities that grow out of devotion to the well-being and success of others include humility, meekness, selflessness, and courage. In his recent address at Brigham Young University, President Dallin H. Oaks counseled, “Look to the needs of others, and humility follows.” Jesus taught, “Learn of me; for I am meek and lowly in heart.” The meek are models of self-control, using or withholding their considerable powers and gifts as is best in every situation.
+
+As to selflessness, what better example do we have than missionaries, the tens of thousands of our missionaries who devote months and years of their lives exclusively to serving others (often strangers) and offering, in the name of Christ, His matchless gifts of repentance and forgiveness?
+
+## 3. Devotion to the Will of God
+
+A third motivating force essential to the character of Christ is His desire to glorify the Father and to fulfill the Father’s will in every particular. He declared, “My meat is to do the will of him that sent me, and to finish his work.”
+
+A Christlike desire to glorify God and do His will leads to the character qualities of honor, integrity, and virtue. Jesus, the paradigm of integrity, “was in all points tempted like as we are, yet without sin.” We can strive toward this ideal. Elder Kim B. Clark once called it pursuing a “life of moral excellence” with the Lord’s help.
+
+A “life of moral excellence” is a life of virtue. “Virtue is a pattern of thought and behavior based on high moral standards. It is fidelity to God and others. … [It] is striving to be clean and pure spiritually and physically.” It entails a search for and devotion to truth, to right thinking and right action. In his final address to us as President of the Church a year ago, President Russell M. Nelson pleaded: “Our thoughts, words, and actions need to be unfailingly virtuous and filled with the pure love of Jesus Christ towards all men. The great opportunity before us is to become the people God needs us to be.”
+
+In summary, Jesus thinks and acts out of pure love; He yearns to bless and lift others; and He delights to do the will of God. With faith in Christ, we can pray that the Holy Spirit will effect a mighty change in us to instill these same divine motivations in our heart and help us practice the attributes of a Christlike character. We can keep repenting to improve as we strive to follow the Lord’s example, “which faith and repentance bringeth a change of heart.” We can “become the people God needs us to be.”
+
+I return to the matter of Jesus Christ’s Second Coming. Adopting the character of Christ is not only a question of our personal preparation but a primary element of preparing the world for the Lord’s return and His glorious millennial reign. We tend to underestimate the influence of Christlike individuals in the world, but working one by one has always been Jesus’s approach to changing society and establishing His kingdom. It is the aggregation of individual choices over time that forms and changes societies for good or ill. No one of us alone can change the world, but each of us can have an influence in the world.
+
+On this joyful Easter Sunday, I bear testimony of the resurrected, living Jesus Christ. He is the head of this, His Church. President Dallin H. Oaks is called by Him to preside over the Church on the earth and to be the Lord’s prophetic spokesman to the world. With faith in Christ, may our character come to mirror His so that “when he shall appear we shall be like him … ; that we may have this hope; that we may be purified even as he is pure,” I pray in the name of Jesus Christ, amen.
+
+---
+
+## Eternal Marriage Is an Eternal Journey
+
+**Speaker:** By Elder Neil L. Andersen
+
+**Calling:** Of the Quorum of the Twelve Apostles
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/55andersen?lang=eng
+
+Following the Savior’s incomparable love and sacrifice offered in the Garden of Gethsemane and on the cross, His lifeless body was securely sealed in a borrowed tomb. But the tomb could not contain the divine Son of God. “Why seek ye the living among the dead?” the angels declared. “He is not here, but is risen.”
+
+Because of our Savior’s victory over death and sin, we will praise His name forever.
+
+Jesus Christ brought other immeasurable blessings. He said to His Apostle Peter, “Whatsoever thou shalt bind on earth shall be bound in heaven.” The sacred sealing power has been restored to the earth and is found today in His dedicated temples. President Gordon B. Hinckley said, “If nothing else came out of all of the sorrow and travail and pain of the restoration than the sealing power of the holy priesthood to bind together families forever, it would have been worth all that it has cost.”
+
+## Kneeling at the Altar
+
+In my 74 years, there are only a few experiences where nearly every emotion and feeling are solidly cemented in my conscious mind. One of the most poignant is as I knelt across the altar from Kathy in a holy temple of God. The hopes, the dreams, the love we shared all burst in a kaleidoscope of anticipation as we heard those unforgettable words: “for time and for all eternity.”
+
+To you in this vast worldwide congregation who lovingly remember that day in your life, I speak especially to you.
+
+At that moment, kneeling across the altar, we have a growing realization of the depth of our commitment to God and to each other. The sacred ordinance binds us together with our eternal companion and with God. We solemnly vow to keep the covenants, and the Lord promises us, as we are faithful, unspeakable blessings in mortality and beyond, including thrones, powers, and dominions in the eternal world.
+
+## Refining Our Nature
+
+Our even greater hope, however, is a desire to refine our very nature, to become more like our Savior, allowing us one day to live with Him. Within our sacred marriage, bound to God and to each other, we find ourselves in a crucible of spiritual development where vital qualities—sacrifice, charity, patience, and being a peacemaker, as President Dallin H. Oaks spoke of this morning, the very character of Christ, as President D. Todd Christofferson said—can become a greater part of us.
+
+As we increase our love for the Savior, our love for each other grows. Like our own discipleship, our eternal marriage is not a short-term experiment but a journey, an eternal journey of becoming who God desires us to become.
+
+In much of the world, confidence in the lasting nature of marriage is eroding. In the gospel of Jesus Christ, we proclaim that “marriage between a man and a woman is ordained of God.” We believe in eternal marriage, we teach of eternal marriage, and we seek an eternal marriage.
+
+## Preparing for the Covenants
+
+We anticipate our marriage with faith and confidence because we conscientiously prepare for the covenants we make in the house of the Lord. In our youth, we strengthen our faith in Jesus Christ and keep His commandments, including the law of chastity, a law so many in the world have set aside. We take upon us the name of Jesus Christ.
+
+But even with our preparation, we of course each have weaknesses, and we realize that our lives will require more unselfishness, more repentance, and more forgiveness. Kathy and I had engraved on the paper napkins for our wedding reception these words of William Shakespeare: “Love is not love [that] alters when it alteration finds.” In those first months as she got to know me better, I kept the leftover napkins all around our apartment.
+
+While embracing the happiness and sorrows of life’s experiences, we etch our covenants indelibly upon our souls, and we keep our eyes focused heavenward, toward the glorious destination awaiting us. We know the divine attributes we seek will not all be perfected in this life. Eternal marriage is an eternal journey.
+
+## Relying on the Holy Ghost
+
+We profoundly need the gift of the Holy Ghost in our personal lives and in our marriage. As has already been quoted in this conference, President Dallin H. Oaks recently said: “The adversary has become so effective at disguising truth that if you don’t have the Holy Ghost, you will be deceived. Many obstacles lie ahead. The distractions will be many.”
+
+One of the deceptions of the world is to discount the sacred importance and the actual power of the sealing ordinance. Keep your hope in each other and in Jesus Christ. His promises can see us through the obstacles and distractions.
+
+There are times in our marriage that require a stellar dose of patience.
+
+On our 25th wedding anniversary, Kathy and I were in Philadelphia speaking to missionaries. I received a call from President Boyd K. Packer of the Twelve. At the end of our conversation, I commented, “President Packer, today is our 25th wedding anniversary. Don’t you think that is a great accomplishment?” Without pausing, he responded, “It is for Kathy!” With your hope and faith in Christ, allow the Lord to expand your spiritual gifts of understanding and patience.
+
+In speaking about eternal marriage, let me mention two other issues.
+
+First, every true disciple of Jesus Christ, if it is his or her desire, will be eternally sealed to a righteous companion of his or her choosing throughout eternity, whether in this life or the next.
+
+Second, the question is asked, “Are there situations where divorce should be considered?” The answer is yes, there are, but the cautions are significant. I will include prophetic teachings on this subject in the published version of my message.
+
+## Caring for Each Other
+
+Fifty years ago, Kathy and I met an impressive couple who had also been recently married in the house of the Lord. Life was promising. They had children. She was talented and full of faith. His work prospered. They kept their covenants.
+
+Unexpectedly, the young woman developed serious health issues.
+
+Their son recently shared these reflections with me:
+
+“In my younger years, my sweet mom went through crushing periods of severe depression, bringing extended periods of difficulty in taking care of even her own needs. It was a new reality for both of my parents. Life would be different than they had anticipated.
+
+“My dad had never experienced mental illness and sought the help of his Heavenly Father. I can’t count the number of times I walked in on him while on his knees, or the number of Sundays he was quietly fasting again. He served my mother—and served us—with incredible love, patience, and humility. He sought the influence of the Holy Ghost, hoping to love, act, and react as the Savior would.
+
+“My mother was the love of his life. These seasons would be but a small moment. They were bound to one another forever. As they remained faithful, they would spend eternity together in health and happiness. That promise gave him a perfect brightness of hope.
+
+“While many times my mother felt that her challenges created a burden for my dad, he saw it differently. He loved serving this incredible, precious daughter of God.
+
+“As my mom bravely—and miraculously—overcame many of her health struggles, they experienced light and joy together: as a couple and as parents and grandparents.
+
+“Later, in her 60s, she faced an entirely different set of trials, including breast cancer and neurological issues that impacted her ability to walk. Once again, she and my dad doubled down on their commitment to each other and their covenants with the Lord.
+
+“They did it together through the final day of her mortal journey.”
+
+Eternal marriage is an eternal journey.
+
+## Receiving the Strength
+
+Who gives you the strength to hold tightly to each other and complete the mortal part of this eternal journey?
+
+“The everlasting God, … the Creator of the ends of the earth,” He who rose on the third day, “[He] fainteth not, neither is [He] weary. …
+
+“He giveth power [when you are] faint; and [when you] have no might [He] increaseth [your] strength. …
+
+“[And together, as you] wait upon the Lord … [you] shall mount up with wings as eagles; [together, you] shall run, and not be weary; and … walk, and not faint.”
+
+I solemnly testify of this sacred promise in the name of Jesus Christ, amen.
+
+---
+
+## Keys, Covenants, and Easter
+
+**Speaker:** By Elder Quentin L. Cook
+
+**Calling:** Of the Quorum of the Twelve Apostles
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/56cook?lang=eng
+
+It has been a special blessing to have the Sunday session of general conference coincide with the actual day we celebrate Easter. Our emphasis at Easter encompasses the eternity-shaping events that occurred in the Garden of Gethsemane, on the cross at Calvary, and in the Garden Tomb where Jesus Christ was resurrected.
+
+It is my witness that His Atonement accomplished His Father’s plan of salvation and provides the way for everyone who has ever lived to be free of death unconditionally and free of sin on condition of repentance. Therefore, the seminal doctrines of the Resurrection and the Atonement have been accomplished by our Lord and Savior, Jesus Christ.
+
+This Easter Sunday also coincides with the magnificent vision of the Savior that occurred in the Kirtland Temple on Easter Sunday of 1836—190 years ago—just one week after the Kirtland Temple was dedicated. That day, like today, was one of those times when Easter and the Passover season overlap.
+
+The appearance of the Savior to the Prophet Joseph Smith and Oliver Cowdery and the keys committed by Moses, Elias, and Elijah are central to the Restoration of the gospel of Jesus Christ in the latter days. The role of Elijah in restoring the priesthood keys of the sealing power is crucial in our journey of returning to our Father as a covenant people.
+
+A little Church history will help put these events in perspective.
+
+During the night of September 21, 1823, the angel Moroni appeared to 17-year-old Joseph Smith in a small log cabin near Palmyra, New York. The angel Moroni visited three times during that night and again in the morning. He taught and retaught critical information related to the unfolding of future events in the Restoration of Christ’s gospel.
+
+He told Joseph of gold plates hidden in the hillside nearby. In addition, he quoted prophecies from the Old Testament. The second section of the Doctrine and Covenants contains Moroni’s words to Joseph Smith relating to Elijah:
+
+“Behold, I will reveal unto you the Priesthood, by the hand of Elijah the prophet, before the coming of the great and dreadful day of the Lord.
+
+“And he shall plant in the hearts of the children the promises made to the fathers, and the hearts of the children shall turn to their fathers.
+
+“If it were not so, the whole earth would be utterly wasted at his coming.”
+
+If I were a 17-year-old and had access only to the Bible, I would have been very confused. Who was this prophet Elijah? And what priesthood would he reveal? Why would the whole earth be wasted if the children did not turn their hearts to their fathers and remember the promises made to them?
+
+Elijah was a remarkable prophet who held sacred priesthood keys and through whom mighty miracles were performed. Christians, Muslims, and Jews the world over accept Elijah as a prophet. Muslims believe that Elijah was a prophet sent by God (Allah) to call people away from idol worship—especially the worship of Baal—and back to the worship of the one true God.
+
+The Jews have been waiting for Elijah’s return for over 2,900 years as a forerunner to the coming of the Messiah.
+
+Prior to Jesus Christ’s mortal ministry, the prophet Elijah exercised the sealing power of the Melchizedek Priesthood.
+
+It is noteworthy to me that Elijah also appeared, with Moses, at the time of the transfiguration of Christ. Elijah conferred priesthood keys of the sealing power upon Peter, James, and John.
+
+It is also significant that when Christ visited the people on the American continent, He specifically recited to them the Old Testament account in Malachi concerning Elijah and his role in uniting families eternally prior to the Second Coming of Christ.
+
+Because of the Restoration, we understand the important and pivotal role Elijah has played in the salvation of mankind. Elijah committed to Joseph Smith the priesthood keys pertaining to the sealing power to bind sacred ordinances and covenants on earth and in heaven. This includes the vicarious ordinances of salvation and exaltation that must be performed here on earth in the temples of the Lord. The sealing ordinances are effective after this life and in the eternities—to seal husbands and wives, parents and children. Without these keys, there are no eternal families, and “the whole earth would be utterly wasted.”
+
+One of the many special spiritual experiences I had with my dear friend and beloved missionary companion—and later my Quorum President—President Jeffrey R. Holland, related to the prophet Elijah.
+
+Starting in 2009, Elder Holland and I had the privilege of escorting various groups of people—including Reform, Conservative, and Orthodox Rabbi leaders, as well as secular Jewish leaders—through open-house tours in temples here in Utah.
+
+At the baptismal font, I had the opportunity to explain to them the doctrine of baptism for our deceased ancestors. This relates directly to Malachi’s promises of turning the hearts of children to their deceased fathers. I read to them from 1 Kings 7:25, where Solomon’s temple is described. The baptismal font sits on top of the hinder parts of twelve oxen representing the twelve tribes of Israel. This brought both recognition and tears to some. They realized that they were essentially looking at certain aspects of Solomon’s temple, which has sacred significance to both Jews and Muslims.
+
+When we entered the sealing room, Elder Holland was overcome with emotion and, with tears in his eyes, explained to them that he did not want to offend them but felt compelled to share something. Then, in a very spiritually powerful way, he explained that Elijah indeed had come and restored the sacred keys that allow the eternal sealing of husbands and wives and their families. He explained that the sealing room, where we were assembled, is a place where the restored keys are exercised. Our Jewish friends appreciated the fact that Old Testament scriptural accounts of prophets are featured so prominently in our temples and doctrine.
+
+A few years later, Jewish leaders requested that we celebrate the 175th anniversary of Orson Hyde’s historic dedication of the Holy Land in Jerusalem. Elder Holland and I were blessed to represent the Church at that celebration.
+
+Two additional experiences following that event were particularly significant to me. First, I came to understand Elder Holland’s history with Jerusalem. He was in his 30s when, on behalf of President Spencer W. Kimball and other Church leaders, Elder Holland spearheaded the effort to establish the Jerusalem Center on the Mount of Olives. He worked for almost 15 years with many others to accomplish most of what the Church built in Jerusalem. Elder Holland worked tirelessly with both Palestinian and Jewish leaders.
+
+Elder Holland loved being in the places where the Savior performed miracles and accomplished the Atonement.
+
+Second, during the visit to Jerusalem, there was time for Elder Holland and me, along with our wives, Pat and Mary, to be together next to the Garden Tomb and read the precious verses from each of the four Gospels that recount the last few days of the Savior’s earthly ministry, culminating in His atoning sacrifice and glorious Resurrection.
+
+Can you imagine how it felt for two former missionary companions, then serving as Apostles, and our sweet wives, having the opportunity to walk where Jesus walked, to read from sacred scriptures of the last days of His mortal ministry, and to feel the spirit of these miraculous events?
+
+Let me assure you that you do not need to physically visit Jerusalem to feel the same things that we felt that day and have many times since.
+
+You can have that knowledge and confirmation by the Spirit when you study the life of our Savior, the restoration of the priesthood, and the return of the sealing keys by Elijah that unite our families for eternity. You can feel by the surety of spiritual confirmation that our Savior accomplished the Father’s plan. He atoned for our sins and broke the bands of death so that we might return to the Father and the Son in the celestial kingdom.
+
+I promise to you on this Easter Day that as you adhere to His ordinances, covenants, and commandments, you will grow closer in your relationship with our Savior as well as your appreciation and gratitude for the sealing keys that have been restored in this dispensation.
+
+I testify that the keys committed by ancient prophets to the Prophet Joseph Smith in the Kirtland Temple are an essential part of the restored gospel of Jesus Christ.
+
+As an Apostle, I bear my sure and certain witness of Jesus Christ, the Savior of the world, who leads His Church. I testify of His Atonement and Resurrection and rejoice with you on this special Easter Sunday for all that the Savior has accomplished that we might have eternal life. In the name of Jesus Christ, amen.
+
+---
+
+## ’Tis Eastertide: No One Walks Alone
+
+**Speaker:** By Elder Gerrit W. Gong
+
+**Calling:** Of the Quorum of the Twelve Apostles
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/58gong?lang=eng
+
+As this Easter Sabbath general conference of The Church of Jesus Christ of Latter-day Saints draws to a close, we, like the disciples on the road to Emmaus, long for our Savior to abide with us, for ’tis Eastertide.
+
+The Gospel of Luke tells us, “Two [disciples] went that same day”—Easter day—“to a village called Emmaus, … from Jerusalem about threescore furlongs” (about seven miles or 12 kilometers). Emmaus means “hot springs,” a place of healing.
+
+Imagine we are walking to Emmaus. A stranger joins us. He sees we are sad. We tell Him, “Jesus of Nazareth, … a prophet mighty in deed and word before God and all the people,” has been crucified. And “to day is the third day since these things were done.”
+
+As we walk, the stranger opens the scriptures and expounds all things concerning Jesus Christ. Our hearts burn within us. As we draw close to the village, we ask our new companion, “Abide with us: for it is toward evening.”
+
+Our friend eats with us. He takes bread, blesses it, breaks, and gives to us. Our eyes are opened. We know Him—the resurrected Jesus Christ. Though we did not recognize Him before, He has been walking with us all along.
+
+The Gospel of Mark testifies Jesus appeared three times on that Easter Day but was not recognized at first.
+
+“He appeared first to Mary Magdalene,” who initially supposed Jesus to be the gardener.
+
+Next, Jesus appeared “unto two of them, as they walked.” These two disciples on the road to Emmaus ultimately knew Him in the “breaking of bread.”
+
+Third, Jesus “appeared unto the eleven as they sat at meat.” “Jesus himself stood in the midst of them, and saith[,] … Behold my hands and my feet, that it is I myself.” To show He was not a spirit, Jesus ate “a piece of … broiled fish, and of an honeycomb.”
+
+Jesus Christ walking with His disciples on the road to Emmaus reveals a covenant pattern. Sometimes on our dusty roads to Emmaus, we feel alone, misunderstood, burdened, unseen. But as He “talk[s] with us by the way,” His words in scripture can cause our hearts to burn. As He breaks and blesses the sacramental bread, His ordinances and covenants can help us know Him. As we walk by faith with Him, abiding in Him, and He in us, we come to know He lives. His Easter promises are real.
+
+Each Sabbath we invite all to come worship Jesus Christ in the community of His restored Church. In the sacramental ordinance, we covenant that we are willing to take upon us the name of Jesus Christ, always remember Him, and keep His commandments. He promises we can always have His Spirit to be with us. As we witness and remember Jesus each week, we abide and walk with Him.
+
+Just as the disciples on the road to Emmaus ask Jesus to abide with them, Jesus Christ promises to abide with us. In the Gospel of John, chapters 14 and 15, Jesus teaches His disciples and us how He can remain, belong, walk with us. His faithfulness is stronger than the cords of death.
+
+When we have a question, problem, or joy, Jesus Christ says, “I am your answer—your way, your truth, your life.”
+
+To abide with us, in John 14 Jesus promises us the First and Second Comforters. The First Comforter Jesus speaks of is the Holy Ghost.
+
+“And I will pray [unto] the Father, and he shall give you another Comforter, that he may abide with you for ever.”
+
+“The Comforter, which is the Holy Ghost, whom the Father [shall] send in my name, he shall teach you all things, and bring all things to your remembrance.”
+
+The Second Comforter Jesus speaks of is Himself. Jesus promises, “I will not leave you comfortless: I will come to you.”
+
+For “he that loveth me shall be loved of my Father, and I will love him, and will manifest myself to him.”
+
+Indeed, “if a man love me, he will keep my words: and my Father will love him, and we will come unto him, and make our abode with him.”
+
+Abide and abode. In John 15, Jesus Christ also teaches He is the vine and God our Father is the husbandman. A branch “cannot bear fruit of itself.” We without the Lord can do nothing. But “he that abideth in me, and I in him, the same bringeth forth much fruit,” and “your fruit should remain.” Jesus says, “These things have I spoken unto you, that my joy might remain [or abide] in you, and that your joy might be full.”
+
+We began this general conference with solemn assembly. Solemn assemblies mark significant Church milestones or events, such as the sustaining of a new Church President. Whether a solemn assembly occurs earlier or later, by sacred pattern and precedent, we symbolically demonstrate united commitment and support.
+
+Solemn assembly dates to ancient Israel, including at King Solomon’s dedication of the temple. In this dispensation a historic solemn assembly was held on March 27, 1836, after the Kirtland Temple was completed.
+
+At this conference, in solemn assembly, we witnessed and sustained President Dallin H. Oaks as the Lord’s prophet and our prophet, with President Henry B. Eyring and President D. Todd Christofferson as our First Presidency, and Elder Gérald Caussé and Elder Clark G. Gilbert as members of the Quorum of the Twelve Apostles.
+
+As we “seek … first the kingdom of God, and his righteousness,” we follow Jesus Christ and the Lord’s prophet willingly, obediently, joyfully. We are richly blessed as we do so.
+
+We are grateful President Dallin H. Oaks will be our concluding speaker. When I was a new freshman at Brigham Young University and President Oaks was the new president of Brigham Young University, we spoke together on a panel for parents and prospective students. As I waited nervously for the program to begin, President Oaks leaned over to assure me. With a warm smile, he said he was wearing a red tie because he was celebrating his 40th birthday and was feeling old. To me, as a new freshman, 40 did seem pretty old!
+
+President Oaks then told me a story. I still remember the principle. Opening a large chest filled with coins, a grandfather invited his grandchildren to collect all the coins they could. Excited, the grandchildren gathered handfuls of the more plentiful but less valuable coins, such as pennies, nickels, and dimes. However, one granddaughter carefully chose only a few coins. Her grandfather asked why. She replied, “Grandpa, all my coins are gold pieces.”
+
+A man loved and tutored by the Lord, President Dallin H. Oaks has exemplified “good, better, best” all his life. He chooses the best spiritual part. He teaches by precept and example how to follow our Savior.
+
+Jesus Christ’s Atonement changes everything. It brings literal resurrection. It can enable our return to the presence of God and the eternal uniting of families. We can heal, reconcile, abide in covenant belonging. With Nephi of old, our souls delight in the covenants the Lord has made, “in his grace, and in his justice, and power, and mercy in the great and eternal plan of deliverance from death.”
+
+This is my Easter witness:
+
+“Jesus Christ … died, was buried, and rose again the third day, and ascended into heaven.”
+
+“I know … my Redeemer lives,” and “while he lives, I’ll sing[,] … my Prophet, Priest, and King.”
+
+As we walk our dusty roads to Emmaus, He will be with us. If you see someone walking alone and sad, will you please walk with them? No one sits alone, and no one should walk their road to Emmaus alone or unseen. Let us see and walk together in His love so He can abide with and in us, and we in Him, at this Eastertide and each day, I pray in the sacred and holy name of Jesus Christ, amen.
+
+---
+
+## Closing Remarks
+
+**Speaker:** By President Dallin H. Oaks
+
+**Calling:** President of The Church of Jesus Christ of Latter-day Saints
+
+**Year:** 2026
+
+**Season:** April
+
+**URL:** https://www.churchofjesuschrist.org/study/general-conference/2026/04/59oaks?lang=eng
+
+The Tabernacle Choir has just sung a musical prayer, “Tell Me the Stories of Jesus.” What a suitable summary of the messages of these last two days. Soon, we will close the conference with “Redeemer of Israel.” Both hymns continue the focus of the two days of this conference.
+
+The Spirit of the Lord has inspired all of us to concentrate our worship, focus our learning, and unite our testimonies on the teachings of the Lord Jesus Christ and His Father’s plan for our eternal increase and joy.
+
+Truly, Jesus Christ is the way to peace in this world and eternal life in the world to come. He knows and loves each of us perfectly and invites us to walk with Him, abide in Him, and follow His example of ministering to others one by one in charity and love. We have been reminded of the central role of marriage and families in our Heavenly Father’s plan for the eternal destiny of His children. May we all demonstrate the pure love of Christ in our families, in our communities, and in all of our interactions with God’s children.
+
+As the messages from this conference are published, we invite all to study and ponder them prayerfully and to act in faith on the principles they explain. The Lord has promised, “Unto him that receiveth I will give more.” As we treasure up and act upon the teachings of this conference, the Lord will continue to teach and inspire us with personal revelation and guidance.
+
+I promise this to each of us as we follow the directions of the servants of the Lord and “look to God and live.” In the name of Jesus Christ, amen.
+
+---
 
 ## They Are Their Own Judges
 
@@ -92,9 +1524,7 @@ Alma described promised blessings available to every devoted disciple of the Sav
 
 I joyfully witness that Jesus Christ is our living Savior. Alma’s promise is true and applicable to you and me—today, tomorrow, and for all eternity. I so testify in the sacred name of the Lord Jesus Christ, amen.
 
-
 ---
-
 
 ## Taking on the Name of Jesus Christ
 
@@ -148,9 +1578,7 @@ The Savior invites us, “Come unto the Father in my name, and in due time recei
 
 He lives. I absolutely know it. He loves you. He gave His life for you. He pleads with you to come unto the Father through Him. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Look to God and Live
 
@@ -214,9 +1642,7 @@ Looking to God means that He is not just one of our priorities; it means, rather
 
 I bear testimony of the Father, Son, and Holy Ghost, who in perfect unity of word, thought, purpose, and action are the one God, to whom we may look for all good things. I bear testimony of the Atonement of Jesus Christ, whence comes the power to fulfill this wonderful promise: “Look unto me, and endure to the end, and ye shall live; for unto him that endureth to the end will I give eternal life.” In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Family Proclamation—Words from God
 
@@ -294,9 +1720,7 @@ When we live with our eyes single to the glory of God, we respect one another an
 
 Our Father in Heaven has provided the proclamation on the family to help guide us home to Him, to help us learn and be filled with love, strength, purpose, and eternal understanding. With all my soul, I plead with you to live close to Him and His Beloved Son. I promise as you do so, the Spirit will inspire and guide you and help you feel in your heart Their promised peace that “passeth all understanding.” In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Lord Is Hastening His Work
 
@@ -366,9 +1790,7 @@ Following the Savior and His doctrine and teachings has never been easy in a wor
 
 I testify that the doctrine of the Church of Jesus Christ is eternal and true. I bear my sure and certain witness that Jesus Christ lives and because of His Atonement, we can be one with Him. In the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## And Now I See
 
@@ -418,9 +1840,7 @@ Was blind, but now I see.
 
 In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Blessed Are the Peacemakers
 
@@ -520,9 +1940,7 @@ Peacemaking is a Christlike attribute. Peacemakers are sometimes labeled naive o
 
 We fulfill our divine role as children of a loving Heavenly Father as we strive to become peacemakers. I bear testimony of Jesus Christ, who is the Prince of Peace, the Son of the living God, in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## No One Sits Alone
 
@@ -604,9 +2022,7 @@ The letter continued, “Elder Gong, when you told about the young man gaining h
 
 Covenant belonging deepens as we come to each other and to the Lord in His inn. The Lord blesses us all when no one sits alone. And who knows? Maybe the person we sit next to may become our best fortune cookie friend. May we find and make place for Him and each other at the supper of the Lamb, I humbly pray in the holy name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Jesus Christ and Your New Beginning
 
@@ -674,9 +2090,7 @@ Our Saviour uttered one final understatement, without which there would be no ca
 
 Because He always did those things which pleased His Father, and because He “suffered the will of the Father in all things,” you and I can have new beginnings. Please receive your new beginning, even today, right now. Jesus Christ is the Author and Finisher of our faith, writing countless new chapters with us. He is the Beginning and the End—the end of our shame and suffering and the beginning of a new life in Him, letting us receive His grace, leave the past behind, and begin again with a new dawn, as many times as we need. Truly His “goodness and mercy shall follow [us] all the days of [our lives].” In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Introduction
 
@@ -702,9 +2116,7 @@ Since all of us who have been assigned to speak in general conference would like
 
 My own brief tribute—suitable to this conference and to the tributes we have already paid—is this: I loved Russell M. Nelson and have learned more about the gospel and gospel leadership from my long friendship and association with him than from any other leader I have personally known. He is our model as a servant and follower of the Lord Jesus Christ. Of these things I testify, in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Sustaining of General Authorities, Area Seventies, and General Officers
 
@@ -758,9 +2170,7 @@ The following Area Seventies were sustained during a leadership session held as 
 
 Bhanu K. Hiranandani and Fernando Vivas.
 
-
 ---
-
 
 ## Proved and Strengthened in Christ
 
@@ -844,9 +2254,7 @@ If we remain faithful in our service, the Lord will refine us. He will strengthe
 
 I testify that God knows you. He knows the trials you face. He is with you. He will not forsake you. I testify that Jesus Christ is the Son of God. He is our strength, our Redeemer, our hope. If we trust Him, He will make our spiritual power equal to every trial we are called to bear. I so testify in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Atoning Love of Jesus Christ
 
@@ -946,9 +2354,7 @@ Brothers and sisters, may we each be “sanctified in Christ by the grace of God
 
 I testify of the love, the mercy, and the grace of our Savior and Redeemer. He lives. We are His; we are children of the covenant. As we believe in Him, follow Him, and trust Him, He will lift us from our sorrows and our sins. Then, beyond this mortal life, in our Father’s house, we will live with Him forever and ever. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Family-Centered Gospel of Jesus Christ
 
@@ -1006,9 +2412,7 @@ Great blessings come to families if they pray together, kneeling night and morni
 
 I testify of the Lord Jesus Christ, who is the Only Begotten Son of God, our Eternal Father. He invites us to follow the covenant path that leads to a heavenly family reunion. The sealing powers of the priesthood, directed by the keys restored in the Kirtland Temple, bring families together for eternity (see Doctrine and Covenants 110:13–16). They are currently being exercised in a growing number of temples of the Lord throughout the world. This is real. Let us be part of it, I pray, in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Do Your Part with All Your Heart
 
@@ -1142,9 +2546,7 @@ That is the essence of who we are—as followers of Christ.
 
 I urge and bless every member of the Church, and all who desire to be part of it, to trust the Savior and engage, patiently and diligently, in doing your part with all your heart—that your joy may be full and that, one day, you will receive all the Father has. Of this I bear witness in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Adorned with the Virtue of Temperance
 
@@ -1200,9 +2602,7 @@ My beloved brothers and sisters, I extend an earnest invitation to all of us to 
 
 I solemnly bear my testimony that the constant pursuit of temperance purifies our soul and sanctifies our heart before the Savior, gently drawing us nearer to Him and preparing us, with hope and peace, for that glorious day when we shall meet Him at His Second Coming. I share these sacred words in the name of our Savior, Jesus Christ, amen.
 
-
 ---
-
 
 ## And We Talk of Christ
 
@@ -1290,9 +2690,7 @@ Just days ago, I learned about a grandmother who rehearsed the Easter story with
 
 I add my testimony to his—and to yours and to that of angels and prophets—that He is risen and that He lives, of which I testify in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Sustaining of General Authorities, Area Seventies, and General Officers
 
@@ -1390,9 +2788,7 @@ The following Area Seventies will be released on or before August 1, 2025:
 
 John D. Amos, Jay D. Andersen, Faapito Auapaau, Frederick K. Balli, Steven C. Barlow, Kevin W. Birch, John W. Boswell, Kevin G. Brown, J. Francisco Bührer, Suchat Chaichana, Christian C. Chigbundu, Matthew R. Clarke, L. Guido Cristobal, B. Corey Cuvelier, Edmarc R. Dumas, Brik V. Eyre, Timothy L. Farnes, Carlos A. Gabaldón, M. Andrew Galt, Vladislav Y. Gornostaev, Aaron T. Hall, Thomas Hänni, Richard I. Heaton, Broc C. Hiatt, Brian J. Holmes, David H. Huntsman, Norman Insong, Daniel Kabason, Federico M. Kähnlein, Jeffrey J. Kerr, David G. LaFrance, Marcelo Louza, Jose G. Manarin, Jeremiah J. Morgan, Mark A. Mortensen, S. Ephraim Msane, R. Pepper Murray, Eduardo F. Ortega, Nathan D. Pace, Michael M. Packer, Jorge W. Pérez, Kyrylo Pokhylko, Sergio A. Poncio, Art Rascon, Miguel A. Reynoso, Gustavo G. Rezende, Robert G. Rivarola, Edward B. Rowe, Alexey V. Samaykin, Luciano Sankari, Henry Savstrom, J. Matthew Scott, James E. Slaughter, Robert T. Smith, Ricardo Spencer, Colin C. Stauffer, David C. Stewart, Konstantin Tolomeev, Arlen M. Tumaliuan, Martin J. Turvey, Yan Carlos Vega, Paul B. Whippy, Chad R. Wilkinson, Dow R. Wilson, Markus Zarse.
 
-
 ---
-
 
 ## As a Little Child
 
@@ -1454,9 +2850,7 @@ Sisters and brothers and friends, at the top of the list of the most beautiful i
 
 In that same spirit of testimony, I bear witness that in his youth, Joseph Smith saw what he said he saw and conversed with those with whom he said he spoke. I testify that a humble and pure Russell M. Nelson is God’s ordained and gifted prophet and seer. Coming from a lifetime of reading, I bear witness that the Book of Mormon is the most rewarding book I have ever read and the keystone of my little dwelling in a kingdom of many mansions. I bear witness that priesthood and prayer are restoring my life—Christ’s priesthood and your prayers. I know all this to be true and bear witness of it in the name of the most loyal and humble of all God’s sons—Alpha and Omega, the Great I Am, the crucified, the faithful witness—even the Lord Jesus Christ, amen.
 
-
 ---
-
 
 ## Right Before Our Eyes
 
@@ -1526,9 +2920,7 @@ Know that He understands. He took upon Himself all our sins, mistakes, misery, a
 
 I emphasize again the words of our living prophet: “Do you see what is happening right before our eyes? I pray that we will not miss the majesty of this moment! The Lord is hastening His work.” May we as disciples of our day shout, “Hurrah for Israel” as we prepare for the return of our Lord and Savior. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Atonement of Jesus Christ Provides the Ultimate Rescue
 
@@ -1614,9 +3006,7 @@ President Russell M. Nelson, at our last conference, emphasized this principle 
 
 We must never forget the sacrifices and examples of prior generations, but our adulation, appreciation, and worship should be centered on the Savior of the world and His atoning sacrifice. I testify that the key to the Father’s plan of happiness is the Atonement wrought by our Savior, Jesus Christ. He lives and guides His Church. The Atonement of Jesus Christ provides the ultimate rescue from the trials we face in this life. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Confidence in the Presence of God
 
@@ -1702,9 +3092,7 @@ Spanish Fork, Utah
 
 I testify that Jesus Christ, the Redeemer of Israel, leads this, His Church. He is preparing to come again. May we likewise prepare to receive Him. For this I pray in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Eternity’s Great Gifts: Jesus Christ’s Atonement, Resurrection, Restoration
 
@@ -1790,9 +3178,7 @@ Each Easter season, we celebrate, as a symbolic whole, eternity’s great gifts 
 
 May we each find in Jesus Christ atonement, resurrection, and restoration—peace, becoming, and belonging—that which is enduringly real and joyful, happy and forever, I pray in His holy name, Jesus Christ, amen.
 
-
 ---
-
 
 ## Receive His Gift
 
@@ -1850,9 +3236,7 @@ Moroni exhorts us to “deny not the gifts of God” but to “come unto Christ,
 
 You are a child of God. This is not just a nice song we sing. Will you please accept, open, and receive this gift of knowledge and understanding from Him? Will you hold it close as the precious treasure it is? Re-receive this gift, or perhaps truly receive it for the very first time, and let it transform every aspect of your life. This is the more excellent way God has prepared for you through the gift of His Son. You really are that you might have joy! In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Divine Helps for Mortality
 
@@ -1908,9 +3292,7 @@ Humility and trust in the Lord are the remedies for such deviations. As the Book
 
 I have spoken of the many mortal helps our loving Father in Heaven has given to help His children return to Him. Our part in this divine plan is to trust in God and seek and use these divine helps, most notably the Atonement of His Beloved Son, our Savior and Redeemer, Jesus Christ. I pray that we will teach and live these principles, in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Worship
 
@@ -1992,9 +3374,7 @@ President Russell M. Nelson has emphasized that “every man and every woman wh
 
 May we, as the ancient Nephites and Lamanites, “fall down at the feet of Jesus, and … worship him.” May we, as commanded by Jesus, “fall down and worship the Father in [the] name [of the Son].” May we receive the Holy Spirit and yield our hearts to God, have no other gods before Him, and as disciples of Jesus Christ, emulate His character in our own lives. I testify that as we do, we will experience joy in worship. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Cherishing Life
 
@@ -2086,9 +3466,7 @@ How could this noble woman of God take a child as her own who could be a daily r
 
 My dear brothers and sisters, the diminishing love for unborn children worldwide is a grave concern. God cherishes life. It is His work and His glory to bring immortality and eternal life to His children. As disciples of Jesus Christ, we cherish life. “By this shall all men know that ye are my disciples, if ye have love one to another.” May we share our love even more abundantly with those who need us so desperately. I express my love for you and our Heavenly Father’s love for His children coming to earth. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Personal Preparation to Meet the Savior
 
@@ -2172,9 +3550,7 @@ When our beloved Savior comes again.
 
 In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## “Draw Near unto Me”
 
@@ -2280,9 +3656,7 @@ This is His true Church—the Church of Jesus Christ. We will, on the Day of Jud
 
 I testify as a witness of the risen Savior and our Redeemer, in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Times of Restitution of All Things
 
@@ -2366,9 +3740,7 @@ I witness that God, the Eternal Father, is our Father. I testify and witness tha
 
 And I joyfully witness that the Father and the Son appeared to the boy Joseph Smith, thus initiating the Restoration of the gospel of Jesus Christ in the latter days. The Book of Mormon is another testament of Jesus Christ and contains the word of God. Priesthood authority to represent the Savior and act in His name again is found on the earth. And The Church of Jesus Christ of Latter-day Saints is Christ’s New Testament Church restored. I bear my sure witness that all of these things are true in the sacred name of the Lord Jesus Christ, amen.
 
-
 ---
-
 
 ## Reverence for Sacred Things
 
@@ -2418,9 +3790,7 @@ My brothers and sisters, reverence for the sacred fosters genuine gratitude, exp
 
 I testify to you that as we strive to incorporate such virtue into our daily lives, we will be able to increase our humility, expand our understanding of God’s will for us, and strengthen our confidence in the promises of the covenants we have made with the Lord. I witness that as we embrace this gift of reverence for sacred things—whether in the mountain of the Lord’s house, in a meetinghouse, or in our own homes—we will be filled with astounding amazement and awe as we connect to the perfect love of our Heavenly Father and Jesus Christ. I reverently witness these truths in the sacred name of our Savior and Redeemer, Jesus Christ, amen.
 
-
 ---
-
 
 ## “By This All Will Know That You Are My Disciples”
 
@@ -2514,9 +3884,7 @@ As I learned from my friend in Germany, our love for God and His children is a p
 
 May God bless us to patiently but diligently seek to live up to the ideals our Savior, Redeemer, and Master has set for us—so all will know that we are His disciples. In the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Following Christ
 
@@ -2596,9 +3964,7 @@ In this conference four years ago, President Nelson gave us a prophetic challeng
 
 As followers of Christ, we teach and testify of Jesus Christ, our Perfect Role Model. So let us follow Him by forgoing contention. As we pursue our preferred policies in public actions, let us qualify for His blessings by using the language and methods of peacemakers. In our families and other personal relationships, let us avoid what is harsh and hateful. Let us seek to be holy, like our Savior, in whose holy name I testify and invoke His blessing to help us be Saints. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Sacred Scriptures—the Foundations of Faith
 
@@ -2682,9 +4048,7 @@ The sacred scriptures and living prophets are a major way a loving Heavenly Fath
 
 I bear my sure witness of the divinity of Jesus Christ and the reality of His Atonement, in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Nourish the Roots, and the Branches Will Grow
 
@@ -2776,9 +4140,7 @@ My dear brothers and sisters, my dear friends, there’s a part of me that misse
 
 It is my sincere prayer and blessing that we will constantly nourish the roots of our faith in the Savior, in His doctrine, and in His Church. Of this I testify in the sacred name of our Savior, our Redeemer, our Master—in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Sustaining of General Authorities, Area Seventies, and General Officers
 
@@ -2838,9 +4200,7 @@ The following Area Seventies were sustained during a leadership session held as 
 
 Miguel A. Avila, Jean Pierre A. L. Haboko, Ramiro Ibarra Sanchez, George Katembo Njogu Munene, A. Enrique Texeira, Francisco Villanueva Rojas.
 
-
 ---
-
 
 ## “Behold I Am the Light Which Ye Shall Hold Up”
 
@@ -2918,9 +4278,7 @@ Dear President Nelson, on behalf of the members and friends of the Lord’s Chur
 
 I bear my apostolic witness that Jesus Christ is “the light … of the world.” May we all, as His disciples, “hold up” His light. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Lord Jesus Christ Will Come Again
 
@@ -3026,9 +4384,7 @@ I bear my solemn witness that Jesus Christ is the Son of God. I am His disciple.
 
 Through the power of the sacred priesthood keys I hold, I declare this truth to you and to all the world! In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## “This Is My Gospel”—“This Is My Church”
 
@@ -3086,9 +4442,7 @@ The Savior refers to The Church of Jesus Christ of Latter-day Saints as “my ch
 
 I invite you to commit yourself more fully to the Savior, His gospel, and His Church. As you do so, you will find that the combination of the Savior’s gospel and His Church brings power into your life. This power is far greater than dynamite. It’ll shatter the rocks in your way, transform you into an inheritor in God’s kingdom. And you will be “filled with that joy which is unspeakable and full of glory.” In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## “I Am He”
 
@@ -3142,9 +4496,7 @@ So, through abundance as well as poverty, through private acclaim as well as pub
 
 Brothers and sisters, I testify that The Church of Jesus Christ of Latter-day Saints is the vehicle God has provided for our exaltation. The gospel it teaches is true, and the priesthood legitimizing it is not derivative. I testify that Russell M. Nelson is a prophet of our God, as His predecessors were and as His successors will be. And one day that prophetic guidance will lead a generation to see our Messenger of Salvation descend like “lightning … out of the east,” and we will exclaim, “Jesus of Nazareth.” With arms forever outstretched and love unfeigned, He will reply, “I am he.” I so promise with the apostolic power and authority of His holy name, even Jesus Christ, amen.
 
-
 ---
-
 
 ## Aligning Our Will with His
 
@@ -3206,9 +4558,7 @@ One of the most glorious moments of mortality occurs when we discover the joy th
 
 I testify to you that following the Lord’s will in our life will enable us to find the most precious pearl in the world—the kingdom of heaven. I pray that each of us, in our time and turn, will be able to declare, with covenant confidence, to our Heavenly Father and Savior Jesus Christ that “what works for Thee works for me.” I say these things in the sacred name of the Savior Jesus Christ, amen.
 
-
 ---
-
 
 ## Days Never to Be Forgotten
 
@@ -3288,9 +4638,7 @@ My beloved brothers and sisters, my dear young friends, there will likely be dif
 
 I testify that those who approach the Lord with a sincere heart and real intent, those who have the name of the Savior upon their lips and the Holy Spirit in their souls, those who embark upon this grand and glorious pilgrimage will discover and experience bounteous celestial blessings and receive a witness that God hears you, knows you, and loves you. You will experience days never to be forgotten. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Holiness to the Lord in Everyday Life
 
@@ -3406,9 +4754,7 @@ Holiness to the Lord makes daily living sacred. It draws us closer and happier t
 
 As did my friend, you may wonder if your Heavenly Father loves you. The answer is a resounding, absolute yes! We can feel His love as we make holiness to the Lord ours each day, happy and forever. May we do so, I pray in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Burying Our Weapons of Rebellion
 
@@ -3482,9 +4828,7 @@ In the end, burying our weapons of rebellion against God simply means yielding t
 
 Burying our weapons of rebellion leads to a unique joy. With all who have ever become converted to the Lord, we are “brought to sing [the song of] redeeming love.” Our Heavenly Father and His Son, our Redeemer, have confirmed Their unending commitment to our ultimate happiness through the most profound love and sacrifice. We experience Their love daily. Surely we can reciprocate with our own love and loyalty. May we bury—very, very deep—any element of rebellion against God in our lives and replace it with a willing heart and a willing mind. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Simple Is the Doctrine of Jesus Christ
 
@@ -3566,9 +4910,7 @@ You can find hope in the scriptural record of families. We read of those who tur
 
 I bear witness of the sacred work of teaching Heavenly Father’s children the simple doctrine of Jesus Christ, which allows us to be spiritually cleansed and ultimately be welcomed into God’s presence, to live with Him and His Son in glory forever in families. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Triumph of Hope
 
@@ -3670,9 +5012,7 @@ Brothers and sisters, the peace you seek may not come as quickly as you desire, 
 
 May we nurture our precious faith, pressing forward with a perfect brightness of hope. I testify that our hope is our Savior, Jesus Christ. Through Him, all our righteous dreams will be realized. He is the God of hope—the triumph of hope. He lives and He loves you. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Welcome to the Church of Joy
 
@@ -3738,9 +5078,7 @@ Ammon in the Book of Mormon expresses the feelings of my heart when he says:
 
 Welcome to the church of joy! In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## In the Space of Not Many Years
 
@@ -3840,9 +5178,7 @@ As we follow President Benson’s counsel and ask ourselves why the Lord inspire
 
 I joyfully witness that God the Eternal Father is our Father. Jesus Christ is His Only Begotten and Beloved Son. He is our Savior. And I testify that as we walk in the meekness of the Lord’s Spirit, we will avoid and overcome pride and have peace in Him. I so witness in the sacred name of the Lord Jesus Christ, amen.
 
-
 ---
-
 
 ## Covenant Confidence through Jesus Christ
 
@@ -3894,9 +5230,7 @@ We also know from the temple that if we want the Spirit of the Lord to be unrest
 
 The ongoing and accelerating building of temples will continue to excite, inspire, and bless us. Yet more important, as we change our preparation to enter the temple, we will change our experience in the temple, which will transform our lives outside of the temple. May this transformation fill us with confidence in our holy covenants made with God through Jesus Christ. God lives, Jesus is our Savior, and this is His restored Church on earth. I reverently declare these truths in the sacred name of our Savior, Jesus Christ, amen.
 
-
 ---
-
 
 ## Words Matter
 
@@ -3990,9 +5324,7 @@ I love the Lord Jesus Christ. He is, in the words of the Old Testament prophet I
 
 Of this I testify as an Apostle called to the Lord’s divine service—to declare His word—and called to stand as a special witness of Him. In the name of the Lord Jesus Christ, amen.
 
-
 ---
-
 
 ## God’s Intent Is to Bring You Home
 
@@ -4064,9 +5396,7 @@ In other words, the Father’s plan is not about roadblocks. It never was; it ne
 
 This is the good news! I am unspeakably grateful for these simple truths. The Father’s design, His plan, His purpose, His intent, His wish, and His hope are all to heal you, all to give you peace, all to bring you, and those you love, home. Of this I am a witness in the name of Jesus Christ, His Son, amen.
 
-
 ---
-
 
 ## All Things for Our Good
 
@@ -4182,9 +5512,7 @@ This is the Lord’s eternal purpose. It is His eternal perspective. It is His e
 
 When life is cluttered and purpose isn’t clear, when you want to live better but don’t know how, please come to God our Father and Jesus Christ. Trust They live, love you, and want all things for your good. I testify They do, infinitely and eternally, in the sacred and holy name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Powerful, Virtuous Cycle of the Doctrine of Christ
 
@@ -4236,9 +5564,7 @@ We do need all our compassion, empathy, and love as we interact with those aroun
 
 I invite you to live the doctrine of Christ repeatedly, iteratively, and intentionally and help others on their way. I testify that the doctrine of Christ is central to Heavenly Father’s plan; it is, after all, His doctrine. As we exercise faith in Jesus Christ and His Atonement, we are propelled along the covenant path and motivated to help others become faithful disciples of Jesus Christ. We can become heirs in Heavenly Father’s kingdom, which is the culmination of faithfully living the doctrine of Christ. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Motions of a Hidden Fire
 
@@ -4294,9 +5620,7 @@ Fortunately, we have help for this task—lots of help. We need to believe in an
 
 Brothers and sisters, as we repent of our sins and come boldly to the “throne of grace,” leaving before Him there our alms and our heartfelt supplications, we will find mercy and compassion and forgiveness at the benevolent hands of our Eternal Father and His obedient, perfectly pure Son. Then, with Job and all the refined faithful, we will behold a world “too wonderful” to understand. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Be One with Christ
 
@@ -4382,9 +5706,7 @@ We are united by our love of and faith in Jesus Christ and as children of a lovi
 
 I bear my sure and certain witness that Jesus Christ lives, and because of His Atonement, we can be one with Christ. In the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Temples, Houses of the Lord Dotting the Earth
 
@@ -4450,9 +5772,7 @@ The Lord promised, “Every soul who forsaketh his sins and cometh unto me, and 
 
 In this day of confusion and commotion, I testify that the temple is His holy house and will help preserve us, protect us, and prepare us for the glorious day when, with all His holy angels, our Savior returns in majesty, power, and great glory. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Sustaining of General Authorities, Area Seventies, and General Officers
 
@@ -4552,9 +5872,7 @@ The following Area Seventies will be released on or before August 1, 2024:
 
 Solomon I. Aliche, Guillermo A. Alvarez, Daren R. Barney, Julius F. Barrientos, James H. Bekker, David L. Buckner, Glenn Burgess, Marcos Cabral, Gregorio E. Casillas, Dunstan G. B. T. Chadambuka, Alan C. K. Cheung, Paul N. Clayton, Michael Cziesla, Hiroyuki Domon, Mernard P. Donato, I. Raymond Egbo, Zachary F. Evans, Sapele Fa‘alogo Jr., Saulo G. Franco, David Frischknecht, John J. Gallego, Efraín R. García, Robert Gordon, Mark A. Gottfredson, D. Martin Goury, Michael J. Hess, Bhanu K. Hiranandani, Richard S. Hutchins, Tito Ibañez, Eustache Ilunga, Akinori Ito, Anthony M. Kaku, Christopher H. Kim, H. Moroni Klein, Stephen Chee Kong Lai, V. Daniel Lattaro, Thabo Lebethoa, Tarmo Lepp, Itzcoatl Lozano, Kevin Lythgoe, Clement M. Matswagothata, Edgar P. Montes, Luiz C. D. Queiroz, Ifano Rasolondraibe, Eduardo D. Resek, Tomás G. Román, Ramon E. Sarmiento, Steven D. Shumway, Luis Spina, Jared W. Stone, Michael B. Strong, Djarot Subiantoro, Carlos G. Süffert, Voi R. Taeoalii, Karim Del Valle, Sergio R. Vargas, Helmut Wondra.
 
-
 ---
-
 
 ## “Be Still, and Know That I Am God”
 
@@ -4626,9 +5944,7 @@ I promise that as we build the foundation of our lives on the “rock” of Jesu
 
 I joyfully witness that God is our Heavenly Father, we are His children, and Jesus Christ is our Redeemer and the “rock” of our salvation. I so testify in the sacred name of the Lord Jesus Christ, amen.
 
-
 ---
-
 
 ## The Testimony of Jesus
 
@@ -4690,9 +6006,7 @@ My invitation is to act now to secure your place as one who is valiant in the te
 
 Our Father wants all His children who will to enjoy eternal life with Him in His celestial kingdom. Jesus suffered, died, and was resurrected to make that possible. He “hath ascended into heaven, and hath sat down on the right hand of God, to claim of the Father his rights of mercy which he hath upon the children of men.” I pray that we may all be blessed with a burning testimony of the Lord Jesus Christ, rejoice and be valiant in that testimony, and enjoy the fruits of His grace in our lives continually. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## A Higher Joy
 
@@ -4824,9 +6138,7 @@ And like good Milton Wright, perhaps you will raise your voice in rejoicing and 
 
 May we all seek and find the higher joy that comes from devoting our lives to our Heavenly Father and His Beloved Son. This is my earnest prayer and blessing in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Bridging the Two Great Commandments
 
@@ -4910,9 +6222,7 @@ In the days ahead, when you pass over a majestic suspension bridge or even when 
 
 May this strengthen our faith in Jesus Christ and His Atonement, of which I testify in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## All Will Be Well Because of Temple Covenants
 
@@ -4986,9 +6296,7 @@ My dear brothers and sisters, I bear witness that there is nothing more importan
 
 I give you my sure witness that Jesus is the Christ. He lives and leads His Church. Temples are houses of the Lord. President Russell M. Nelson is God’s living prophet on the earth. I love him, and I love each of you. In the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Covenants and Responsibilities
 
@@ -5038,9 +6346,7 @@ The Church of Jesus Christ is known as a church that emphasizes making covenants
 
 I testify of Jesus Christ, who is the head of that Church, and invoke His blessings on all who seek to keep their sacred covenants. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Rejoice in the Gift of Priesthood Keys
 
@@ -5152,9 +6458,7 @@ My dear brothers and sisters, I testify that this is The Church of Jesus Christ 
 
 Let us rejoice in the restoration of priesthood keys, which make it possible for you and me to enjoy every spiritual blessing we are willing and worthy to receive. I so testify in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Kingdoms of Glory
 
@@ -5212,9 +6516,7 @@ There is much we do not know about the three major periods in the plan of salvat
 
 My dear brothers and sisters, I testify of the truth of these things. I testify of our Lord Jesus Christ, “the author and finisher of our faith,” whose Atonement, under the plan of our Father in Heaven, makes it all possible, in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Brothers and Sisters in Christ
 
@@ -5282,9 +6584,7 @@ My dear brothers and sisters, may we align our hearts and minds with the knowled
 
 I testify to you that as we continue to flow this way during our mortal life, a new day will begin with a new light that will brighten our lives and illuminate wonderful opportunities to value more, and be more fully blessed by, the diversity created by God among His children. We will surely become instruments in His hands to promote respect and dignity among all His sons and daughters. God lives. Jesus is the Savior of the world. President Nelson is the prophet of God in our day. I bear witness of these truths in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Tithing: Opening the Windows of Heaven
 
@@ -5374,9 +6674,7 @@ You and I are part of God’s important work upon the earth. It will not come to
 
 This is my witness. Jesus is the Christ. This is His holy work. He will come again. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Think Celestial!
 
@@ -5490,9 +6788,7 @@ Ulaanbaatar, Mongolia
 
 The Lord is directing us to build these temples to help us think celestial. God lives. Jesus is the Christ. His Church has been restored to bless all of God’s children. I so testify in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Be Peaceable Followers of Christ
 
@@ -5584,9 +6880,7 @@ The final line of a perceptive hymn conveys the ultimate answer in a beautiful f
 
 As an Apostle of the Lord Jesus Christ, I testify that “peaceable followers of Christ” will find personal peace in this life and a glorious heavenly reunion. I bear a sure witness of the Savior’s divinity and the reality of His Atonement. He is our Savior and Redeemer. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## In the Path of Their Duty
 
@@ -5672,9 +6966,7 @@ They of the last wagon, all who are no less serviceable, and you who today are p
 
 I joyfully witness that Heavenly Father and His Beloved Son live and Their promises are sure, in the sacred name of the Lord Jesus Christ, amen.
 
-
 ---
-
 
 ## Promptings of the Spirit
 
@@ -5766,9 +7058,7 @@ I close with an invitation especially for all youth! Many of you start your day 
 
 I add my testimony to you, gifted Latter-day Saints, of God the Father, Jesus Christ, and the Holy Ghost, who bears testimony of Them. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Praise to the Man
 
@@ -5828,9 +7118,7 @@ May our Heavenly Father watch over us now and bless all the proceedings of the c
 
 I leave you my witness and testimony that I know that Jesus is the Christ. He is our Savior, our Redeemer. He is our best friend. In the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Sustaining of General Authorities, Area Seventies, and General Officers
 
@@ -5900,9 +7188,7 @@ The following Area Seventies were released during a leadership session held as p
 
 Henry J. Eyring and Youngjoon Kwon.
 
-
 ---
-
 
 ## Jesus Christ Is the Treasure
 
@@ -5954,9 +7240,7 @@ Brothers and sisters, I encourage you to remember and always focus on Jesus Chri
 
 I bear my solemn and sure witness that God, the Eternal Father, is our Heavenly Father and that He lives; Jesus is the Christ; He is our kind, wise heavenly Friend; and this is His restored Church. Thank you for your faith and faithfulness. I pray that you will be blessed, prospered, and preserved, in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Prodigal and the Road That Leads Home
 
@@ -6082,9 +7366,7 @@ No, our path will not be free from grief, sorrow, or sadness. But we came this f
 
 It is my prayer that each one of us may hear, in this profound parable, the Father’s voice calling us to enter the road that leads home—that we may have the courage to repent, receive forgiveness, and follow the path that leads back to our compassionate and merciful God. Of this I bear witness and leave you my blessing in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## How Great Will Be Your Joy
 
@@ -6158,9 +7440,7 @@ As an Apostle of the Lord Jesus Christ, I ask you to serve as a missionary in th
 
 I also promise that as you serve, you will feel the love of the Lord in your life, you will know Him, He will know you, and “how great shall be your joy.” Your dedicated service to Jesus Christ will inspire and bless your family, your grandchildren, and great-grandchildren. “Peace, and love [will] be multiplied” in their lives for years to come. I promise. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Sealing Power
 
@@ -6216,9 +7496,7 @@ This is a scene taking place constantly all over the world in temples. This is t
 
 I testify that the sealing power and authority restored to earth through Joseph Smith are real, that what is thereby bound on earth truly is bound in heaven. I testify that President Russell M. Nelson, as President of the Church, is the one man on earth today that by his keys directs the use of this supernal power. I testify that the Atonement of Jesus Christ has made immortality a verity and the possibility of exalted family relationships a reality. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Love Is Spoken Here
 
@@ -6302,9 +7580,7 @@ May we each learn to speak and hear His love here, in our hearts and homes, and 
 
 In God’s plan, we will each transition one day from this life into the next life. When we meet the Lord, I imagine Him saying, with words of instruction and promise, “My love is spoken here.” In the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Our Constant Companion
 
@@ -6384,9 +7660,7 @@ Heavenly messengers restored priesthood keys. President Russell M. Nelson is th
 
 As a witness of Jesus Christ, I know that He lives and He leads His Church. You and I have the opportunity to have the Holy Ghost as our constant companion and to have those truths confirmed as we remember and love the Savior, repent, and ask for His love to be in our hearts. I pray that we may have that blessing and the companionship of the Holy Spirit this day and every day of our lives. I love you. In the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Hosanna to the Most High God
 
@@ -6456,9 +7730,7 @@ Though we do not stand at the gates of Jerusalem today with palms in our hands, 
 
 I leave with you my blessing as an Apostle of Jesus Christ that you will diligently strive to live righteously and be among those who, with palms in their hands, will herald the Son of God, the great Redeemer of us all. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## One in Christ
 
@@ -6544,9 +7816,7 @@ I return to the events of Holy Week and the ultimate triumph of our Redeemer. Th
 
 This morning, I bear witness of His literal Resurrection and all that it implies, in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Safely Gathered Home
 
@@ -6626,9 +7896,7 @@ We respect agency. In this secular world, many will not respond and participate 
 
 I bear my sure and certain apostolic witness of the divinity of Jesus Christ and our Father in Heaven’s plan for us in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Remember What Matters Most
 
@@ -6708,9 +7976,7 @@ Brothers and sisters, I testify and witness to you that I know that Jesus Christ
 
 In my ministry, I have learned what matters most is our relationships with Heavenly Father and His Beloved Son, our families, and our neighbors, and allowing the Spirit of the Lord to guide us in those relationships so we can testify of the things that matter most and last longest. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Jesus Christ Is the Strength of Parents
 
@@ -6828,9 +8094,7 @@ Jesus Christ is the strength of parents.
 
 Of this I testify in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Sustaining of General Authorities, Area Seventies, and General Officers
 
@@ -6936,9 +8200,7 @@ The following Area Seventies will be released on or before August 1, 2023:
 
 Richard K. Ahadjie, Duane D. Bell, Hubermann Bien Aimé, Víctor R. Calderón, Michel J. Carter, Daniel Córdova, John N. Craig, William H. K. Davis, Fernando P. Del Carpio, Richard J. DeVries, Kylar G. Dominguez, Torben Engbjerg, Kenneth J. Firmage, Edgar Flores, Silvio Flores, Carlos A. Genaro, Mark A. Gilmour, Sergio A. Gómez, Roberto Gonzalez, Virgilio Gonzalez, Spencer R. Griffin, Marcel Guei, Oleksiy H. Hakalenko, Matthew S. Harding, David J. Harris, Kevin J. Hathaway, José Hernández, Glenn M. Holmes, Richard Neitzel Holzapfel, Okechukwu I. Imo, Michael D. Jones, Pungwe S. Kongolo, Ricardo C. Leite, Aretemio C. Maligon, Edgar A. Mantilla, Lincoln P. Martins, Carl R. Maurer, Daniel S. Mehr II, Glen D. Mella, Tomas S. Merdegia Jr., Allistair B. Odgers, R. Jeffrey Parker, Victor P. Patrick, Denis E. Pineda, Henrique S. Simplicio, Jeffrey H. Singer, Michael L. Staheli, Jeffrey K. Wetzel, Michael S. Wilstead, and David L. Wright.
 
-
 ---
-
 
 ## “Abide in Me, and I in You; Therefore Walk with Me”
 
@@ -7038,9 +8300,7 @@ I promise that by the power of the Holy Ghost, you can know and feel the gospel 
 
 I joyfully witness that Jesus Christ is our loving and living Savior and Redeemer. If we abide in Him, He will abide in us. And as we walk in and with Him, we will be blessed to bring forth much fruit. I so testify in the sacred name of the Lord Jesus Christ, amen.
 
-
 ---
-
 
 ## Ministering
 
@@ -7122,9 +8382,7 @@ We may tire physically. But in His service we do “not weary in well-doing.” 
 
 Wherever we are in this Easter season, let us reach out and care as our Savior would, especially to those whom we are privileged by love and assignment to minister. In so doing, may we draw closer to Jesus Christ and each other, becoming more like Him and the followers of Jesus Christ He would have us each be. In His sacred name, Jesus Christ, amen.
 
-
 ---
-
 
 ## Accessing God’s Power through Covenants
 
@@ -7178,9 +8436,7 @@ As you walk the covenant path, from baptism to the temple and throughout life, I
 
 As you come to Christ and are connected to Him and our Heavenly Father by covenant, something seemingly unnatural happens. You are transformed and become perfected in Jesus Christ. You become a covenant child of God and an inheritor in His kingdom. I can imagine Him saying to you, “Thou art my dear child in whom I delight. Welcome home.” In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Finding Personal Peace
 
@@ -7274,9 +8530,7 @@ I express my love to you. Your great faith and love are reaching people and allo
 
 I pray that you may find peace, help many others to find it, and pass it along. There will be a wonderful thousand years of peace when the Lord comes again. I so testify in joy and in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Peacemakers Needed
 
@@ -7354,9 +8608,7 @@ I bless you to replace belligerence with beseeching, animosity with understandin
 
 God lives! Jesus is the Christ. He stands at the head of this Church. We are His servants. He will help us to become His peacemakers. I so testify in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Teachings of Jesus Christ
 
@@ -7488,9 +8740,7 @@ We believe in Christ. I conclude with what He said about how we should know and 
 
 I affirm the truth of these teachings in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Answer Is Always Jesus Christ
 
@@ -7554,9 +8804,7 @@ Harrisburg, Pennsylvania
 
 My dear brothers and sisters, I bear witness that Jesus Christ directs the affairs of His Church. I testify that following Him is the only way to enduring happiness. I know that His power is descending upon His covenant-keeping people, who are “armed with righteousness and with the power of God in great glory.” I so testify, with my love and blessing for each of you, in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Followers of the Prince of Peace
 
@@ -7606,9 +8854,7 @@ May we today, on this Palm Sunday, spread out our robes of love and palm leaves 
 
 I testify that Jesus Christ lives and that His perfect love, expressed through His atoning sacrifice, is extended to all who desire to walk with Him and enjoy His peace in this world and in the world to come. I say these things in the holy name of the Savior and Redeemer, Jesus Christ, amen.
 
-
 ---
-
 
 ## The Greatest Easter Story Ever Told
 
@@ -7696,9 +8942,7 @@ His visit as a resurrected Savior, introduced by God the Father, is a most glori
 
 I close with my testimony of the truthfulness of the Book of Mormon and of Jesus Christ as the Son of the living God. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## My Mind Caught Hold upon This Thought of Jesus Christ
 
@@ -7774,9 +9018,7 @@ Matt, Maddy, Ruby, Claire, and June arrived at the temple for the appointment Sa
 
 In this Easter season, I witness the complete and absolute truth of the Savior’s incomparable atoning sacrifice and of His glorious Resurrection. As your mind remains firmly and forever upon the thought of Jesus Christ, and as you continue to focus your life more fully on the Savior, I promise you that you will feel His hope, His peace, and His love. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Be True to God and His Work
 
@@ -7854,9 +9096,7 @@ I am grateful that we will now hear from President Nelson. I testify that Presid
 
 As an Apostle of the Lord Jesus Christ, I bear my sure witness of the Savior’s divinity and the reality of His Atonement in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## What Is True?
 
@@ -7892,9 +9132,7 @@ From this pulpit today and tomorrow, you will continue to hear truth. Please mak
 
 I love you, my dear brothers and sisters. I pray that this conference will provide the spiritual feast you are seeking. In the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Happy and Forever
 
@@ -7968,9 +9206,7 @@ We find heaven’s sociality in each other. God’s work and glory include bring
 
 Dear brothers and sisters, God our Heavenly Father and His Beloved Son live. They offer peace, joy, and healing to every kindred and tongue, to each of us. The Lord’s prophet is leading the way. Latter-day revelation continues. May we draw closer to our Savior in the holy house of the Lord, and may He draw us closer to God and each other as we knit our hearts together in Christ-given compassion, truth, and mercy in all our generations—in time and eternity, happy and forever. In Jesus Christ, it is possible; in Jesus Christ, it is true. I so witness, in His holy name, Jesus Christ, amen.
 
-
 ---
-
 
 ## Nourishing and Bearing Your Testimony
 
@@ -8116,9 +9352,7 @@ When a moment like this comes, grab it and embrace it. You will feel the warmth 
 
 I offer my testimony and witness to you—God is our Heavenly Father, Jesus Christ lives, and The Church of Jesus Christ of Latter-day Saints is God’s Church on the earth today led by our dear prophet, President Russell M. Nelson. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Lifted Up upon the Cross
 
@@ -8164,9 +9398,7 @@ As we take up our crosses and follow Him, it would be tragic indeed if the weigh
 
 As the glorious Resurrection followed the agonizing Crucifixion, so blessings of every kind are poured out on those who are willing, as the Book of Mormon prophet Jacob says, to “believe in Christ, and view his death, and suffer his cross.” Sometimes these blessings come soon and sometimes they come later, but the marvelous conclusion to our personal via dolorosa is the promise from the Master Himself that they do and will come. To obtain such blessings, may we follow Him—unfailingly, never faltering nor fleeing, never flinching at the task, not when our crosses may be heavy and not when, for a time, the path may grow dark. For your strength, your loyalty, and your love, I give deep personal thanks. This day I bear apostolic witness of Him who was “lifted up” and of the eternal blessings He bestows to those “lifted up” with Him, even the Lord Jesus Christ, amen.
 
-
 ---
-
 
 ## Sustaining of General Authorities, Area Seventies, and General Officers
 
@@ -8234,9 +9466,7 @@ Luis R. Arbizú, Michael V. Beheshti, David A. Benalcázar, Berne S. Broad
 
 Elder Levi W. Heath and Elder ‘Inoke F. Kupu, who were serving as Area Seventies, passed away in 2022.
 
-
 ---
-
 
 ## Focus on the Temple
 
@@ -8262,9 +9492,7 @@ We are also planning to build multiple temples in selected large metropolitan ar
 
 My dear brothers and sisters, may you focus on the temple in ways you never have before. I bless you to grow closer to God and Jesus Christ every day. I love you. May God be with you until we meet again, I pray in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## A Framework for Personal Revelation
 
@@ -8318,9 +9546,7 @@ Even as we trust God’s prior answers, we need to be open to further personal r
 
 The elements of the framework for personal revelation are overlapping and mutually reinforcing. But within that framework, the Holy Ghost can and will reveal everything we need to soar onto and maintain momentum on the covenant path. Thus we can be blessed by the power of Jesus Christ to become what Heavenly Father wants us to be. I invite you to have the confidence to claim personal revelation for yourself, understanding what God has revealed, consistent with the scriptures and the commandments He has given through His appointed prophets and within your own purview and agency. I know that the Holy Ghost can and will show you all things that you should do. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## In Partnership with the Lord
 
@@ -8370,9 +9596,7 @@ Brothers and sisters, the Savior set the perfect example of unity and harmony of
 
 I testify to you that as we—women and men—work together in a true and equal partnership, we will enjoy the unity taught by the Savior as we fulfill the divine responsibilities in our marriage relationships. I promise you, in the name of Christ, that hearts will be “knit together in unity and in love one towards another,” we will find more joy in our journey to eternal life, and our capacity to serve one another and with one another will multiply significantly. I bear witness to these truths in the holy name of the Savior Jesus Christ, amen.
 
-
 ---
-
 
 ## Put On Thy Strength, O Zion
 
@@ -8460,9 +9684,7 @@ As we appropriately seek for the spiritual gift of eyes to see and ears to hear,
 
 I joyfully declare my witness of the divinity and living reality of God, our Eternal Father, and of His Beloved Son, Jesus Christ. I testify that Jesus Christ is our Savior and Redeemer and that He lives. And I also witness that the Father and the Son appeared to the boy Joseph Smith, thus initiating the Restoration of the Savior’s gospel in the latter days. May each of us seek for and be blessed with eyes to see and ears to hear, I pray in the sacred name of the Lord Jesus Christ, amen.
 
-
 ---
-
 
 ## This Day
 
@@ -8518,9 +9740,7 @@ My dear friends, as an Apostle of the Lord, I invite you to follow our beloved p
 
 I testify that by divine design the Book of Mormon was prepared in ancient America to come forth to declare God’s word, to bring souls to the Lord Jesus Christ and His restored gospel “this day.” In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Drawing Closer to the Savior
 
@@ -8610,9 +9830,7 @@ We are all “children of the covenant” stretching across the earth in nations
 
 It is a wondrous journey to be wheat among the tares, sometimes fraught with heartache but always calmed by the maturing and assuring settling of our faith. As you allow your love for the Savior and His love for you to sink deep into your heart, I promise you added confidence, peace, and joy in meeting the challenges of your life. And the Savior promises us: “I [will] gather together my people, according to the parable of the wheat and the tares, that the wheat may be secured in the garners to possess eternal life, and be crowned with celestial glory.” In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Follow Jesus Christ with Footsteps of Faith
 
@@ -8684,9 +9902,7 @@ Let us follow Jesus Christ with faith in every footstep. We need to serve the Lo
 
 May we ever follow in the footsteps of Jesus Christ and, with faith in our every footstep, focus on Him, keeping our feet firmly planted on the covenant path, is my humble prayer in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Overcome the World and Find Rest
 
@@ -8768,9 +9984,7 @@ I call upon you, my dear brothers and sisters, to become this righteous people. 
 
 With the power of the holy apostleship vested in me, I bless you in your quest to overcome this world. I bless you to increase your faith in Jesus Christ and learn better how to draw upon His power. I bless you to be able to discern truth from error. I bless you to care more about the things of God than the things of this world. I bless you to see the needs of those around you and strengthen those you love. Because Jesus Christ overcame this world, you can too. I so testify in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Helping the Poor and Distressed
 
@@ -8842,9 +10056,7 @@ All of the humanitarian efforts of The Church of Jesus Christ of Latter-day Sain
 
 I testify of Jesus Christ, whose light and Spirit guide all of the children of God in helping the poor and distressed throughout the world. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Legacy of Encouragement
 
@@ -8928,9 +10140,7 @@ I pray for our missionaries across the world. May they be inspired to encourage 
 
 I testify that He lives and leads His Church. I am His witness. President Russell M. Nelson is the living prophet of God for all the earth. I know that is true. In the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Jesus Christ Is the Strength of Youth
 
@@ -9050,9 +10260,7 @@ My dear friends, let me repeat, if the Savior were standing here today, He would
 
 Of this I bear my solemn witness as an Apostle of the Lord Jesus Christ and leave you my heartfelt blessing in deep gratitude and love for you, in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Doctrine of Belonging
 
@@ -9156,9 +10364,7 @@ Thus, the doctrine of belonging comes down to this—each one of us can affirm: 
 
 I testify you do belong, in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Missionary Service Blessed My Life Forever
 
@@ -9218,9 +10424,7 @@ I pray that you young men and young women and your parents will see and know how
 
 May God bless the youth of the Church to desire to prepare and serve Him is my humble prayer, which I offer this morning in the sacred name of the Lord Jesus Christ, amen.
 
-
 ---
-
 
 ## Introductory Message
 
@@ -9250,9 +10454,7 @@ We are grateful that broadcast technology now gives Church leaders the capacity 
 
 This is the work of the Lord Jesus Christ. We are His servants, directed by His Holy Spirit. We invoke the blessings of our Lord upon the leaders of these organizations and upon the faithful women and girls who serve the Lord in these organizations and in their individual lives. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Power of Spiritual Momentum
 
@@ -9342,9 +10544,7 @@ As you act on these pursuits, I promise you the ability to move forward on the c
 
 God lives! Jesus is the Christ! He lives! He loves us and will help us. Of this I testify in the sacred name of our Redeemer, Jesus Christ, amen.
 
-
 ---
-
 
 ## Preaching the Gospel of Peace
 
@@ -9380,9 +10580,7 @@ All missionaries teach and testify of the Savior. The spiritual darkness in the 
 
 May this conference be a time of peace and spiritual feasting for you. May you seek and receive personal revelation during these sessions, I pray in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Divine Love in the Father’s Plan
 
@@ -9446,9 +10644,7 @@ As President Russell M. Nelson declared in our last conference: “There has ne
 
 May we all implement that sacred doctrine in our own lives, I pray in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## We Each Have a Story
 
@@ -9536,9 +10732,7 @@ We each have a story. Come discover yours. Come find your voice, your song, your
 
 Praise God’s plan of happiness, Jesus Christ’s Atonement, continuing restoration in His gospel and Church. Please come find your family, all your generations, and bring them home. In the sacred and holy name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Your Divine Nature and Eternal Destiny
 
@@ -9592,9 +10786,7 @@ In the temple, we learn who we are and where we have been. The Roman philosopher
 
 I invite you to center your life on Jesus Christ and remember the foundational truths in the Young Women theme. If you are willing, the Holy Ghost will guide you. Our Heavenly Father wants you to become His heir and receive all that He has. He cannot offer you more. He cannot promise you more. He loves you more than you know and wants you to be happy in this life and in the life to come. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## To Heal the World
 
@@ -9698,9 +10890,7 @@ Religious freedom brings balance to competing philosophies. The good of religion
 
 I witness that Russell M. Nelson is God’s living prophet. I testify that Jesus Christ leads and guides this Church. He atoned for our sins, was crucified on a cross, and was resurrected on the third day. Because of Him, we can live again for all eternity; and those who so desire can be with our Father in Heaven. This truth I proclaim to all the world. I am grateful for the freedom to do so. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Following Jesus: Being a Peacemaker
 
@@ -9806,9 +10996,7 @@ Each time I read John chapter 13, I am reminded of the Savior’s perfect exampl
 
 May we love Him and love one another. May we be peacemakers, that we may be called the “children of God,” I pray in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Steady in the Storms
 
@@ -9870,9 +11058,7 @@ I bear you my solemn witness that the Lord Jesus Christ has given you the invita
 
 I plead with you to accept the Savior’s invitation. Like a meek and loving child, accept His help. Make and keep the covenants He offers in The Church of Jesus Christ of Latter-day Saints. They will strengthen you. The Savior knows the storms and the places of safety on the way home to Him and to our Heavenly Father. He knows the way. He is the Way. I so testify in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Now Is the Time
 
@@ -9924,9 +11110,7 @@ These 17 temples will bless countless lives on both sides of the veil. I love yo
 
 For this I pray in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Our Heartfelt All
 
@@ -10028,9 +11212,7 @@ So, my dear friends and beloved fellow disciples of Jesus Christ, let us not be 
 
 I testify that this is true, as I also testify that Jesus Christ is our Master, our Redeemer, and our one and only Way back to our beloved Father in Heaven. In the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Our Relationship with God
 
@@ -10114,9 +11296,7 @@ In the end, it is the blessing of a close and abiding relationship with the Fath
 
 In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Sustaining of General Authorities, Area Seventies, and General Officers
 
@@ -10206,9 +11386,7 @@ The following Area Seventies were sustained during a leadership session held as 
 
 Elzimar Gouvêa de Albuquerque, Roland J. Bäck, Raúl Barrón, Bruno V. Barros, Eric Baxter, Oscar Bedregal, Joep Boom, Michael P. Brady, Randall A. Brown, Kennedy F. Canuto, Stephen K. Christensen, Nathan A. Craig, Mark Anthony Dundon, Favio M. Durán, Amândio A. Feijó, Claude R. Gamiette, Scott L. Hymas, Jason C. Jensen, Roberto G. F. Leite, John W. Lewis, Paulo Renato Marinho, Blaine R. Maxfield, Eduardo R. Mora, David Ngabizele, João Luis Oppe, Justice N. Otuonye, Emanuel Petrignani, Daniel Piros, Craig W. J. Raeside, Nelson Ramírez, Alexey V. Samaykin, Jose Antonio San Gabriel, Jose Estuardo Sazo, Steven D. Shumway, Oswaldo J. Soto, Mark G. Stewart, Scott N. Taylor, Roseveltt de Pina Teixeira, Gordon L. Treadway, Harold Truque, Nikolai Ustyuzhaninov, Carlos Ernesto Velasco, Kyle A. Vest, Sergio Villa, and Min Zu Wang.
 
-
 ---
-
 
 ## In Awe of Christ and His Gospel
 
@@ -10256,117 +11434,7 @@ My beloved brothers and sisters, I pray that we will ever stand in awe of Jesus 
 
 Jesus is the Redeemer of the world, and this is His Church. I bear witness of these truths in the awe-inspiring, sacred, and sublime name of our Savior, Jesus Christ, amen.
 
-
 ---
-
-
-## He Is Risen with Healing in His Wings:
-
-**Speaker:** By Elder Patrick Kearon
-
-**Calling:** Of the Presidency of the Seventy
-
-**Year:** 2022
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2022/04/24kearon?lang=eng
-
-Marin, I’m Elder Holland, and things are about to go downhill.
-
-We are all intrigued by survival stories. We hear tales of intrepid explorers and ordinary people alike who manage to keep themselves alive against all odds and expectations, and we can’t help but ask ourselves, “Could I have done that?”
-
-I think immediately of British explorer Ernest Shackleton and the crew of his ship HMS Endurance, shipwrecked in Antarctic ice and then stranded on a barren island for nearly two years. Shackleton’s extraordinary leadership and indomitable resolve saved the lives of his men, despite the harshest conditions.
-
-Then I think of the crew of Apollo 13 hurtling through space to land on the moon! But disaster struck when an oxygen tank exploded, and the mission had to be aborted. Short of oxygen, the crew and mission control ingeniously improvised and brought all three astronauts safely back to earth.
-
-I marvel at the astonishing survival of individuals and families victimized by war, imprisoned in camps, and those who become refugees who heroically and courageously keep alive the flame of hope for fellow sufferers, who impart goodness in the face of brutality, and who somehow manage to help others endure just one more day.
-
-Could you or I survive in any one of these extreme circumstances?
-
-Perhaps some of you, however, consider the accounts of survivors, and your soul cries out that you are living a survival story right now as a victim of abuse, neglect, bullying, domestic violence, or any suffering of this kind. You are in the midst of your own desperate attempt to survive a situation that feels very much like a disastrous shipwreck or a promising mission suddenly aborted. Will you ever be rescued; will you make it through your own survival story?
-
-The answer is yes. You can survive. You have in fact already been rescued; you have already been saved—by the One who has suffered the very torment you are suffering and endured the very agony you are enduring. Jesus has overcome the abuses of this world to give you power to not only survive but one day, through Him, to overcome and even conquer—to completely rise above the pain, the misery, the anguish, and see them replaced by peace.
-
-The Apostle Paul asks:
-
-“Who shall separate us from the love of Christ? shall tribulation, or distress, or persecution, or famine, or nakedness, or peril, or sword? …
-
-“Nay, in all these things we are more than conquerors through him that loved us.”
-
-You will remember when President Russell M. Nelson issued the following invitation in general conference. He said: “As you study your scriptures … , I encourage you to make a list of all that the Lord has promised He will do for covenant Israel. I think you will be astounded!”
-
-Here are just a few of the powerful and comforting promises our family found. Imagine the Lord speaking these words to you—to you who are surviving—because they are for you:
-
-Fear not.
-
-I know your sorrows, and I have come to deliver you.
-
-I will not leave you.
-
-My name is upon you, and my angels have charge over you.
-
-I will do wonders among you.
-
-Walk with me; learn of me; I will give you rest.
-
-I am in your midst.
-
-You are mine.
-
-With those assurances very much in mind, I want to speak directly to those who feel as though there is no way out of their own survival story because of the trauma inflicted by the cruel actions of others. If this is your survival story, we weep with you. We yearn for you to overcome the confusion, shame, and fear, and we long for you, through Jesus Christ, to conquer.
-
-If you have experienced any kind of abuse, violence, or oppression, you may be left with the idea that these events were somehow your fault and that you deserve to carry the shame and guilt you feel. You may have had thoughts such as:
-
-I could have prevented this.
-
-God doesn’t love me anymore.
-
-Nobody will ever love me.
-
-I am damaged beyond repair.
-
-The Savior’s Atonement applies to others but not to me.
-
-These erroneous thoughts and feelings may have been a barrier to seeking help from family, friends, leaders, or professionals, and so you have struggled alone. If you have sought help from those you trust, you may still be wrestling with ideas of shame and even self-loathing. The impact of these events can remain for many years. You hope that one day you’ll feel better, but somehow that day has not yet come.
-
-The abuse was not, is not, and never will be your fault, no matter what the abuser or anyone else may have said to the contrary. When you have been a victim of cruelty, incest, or any other perversion, you are not the one who needs to repent; you are not responsible.
-
-You are not less worthy or less valuable or less loved as a human being, or as a daughter or son of God, because of what someone else has done to you.
-
-God does not now see, nor has He ever seen, you as someone to be despised. Whatever has happened to you, He is not ashamed of you or disappointed in you. He loves you in a way you have yet to discover. And you will discover it as you trust in His promises and as you learn to believe Him when He says you are “precious in [His] sight.”
-
-You are not defined by these terrible things that have been done to you. You are, in glorious truth, defined by your eternally existing identity as a son or daughter of God and by your Creator’s perfect, infinite love and invitation to whole and complete healing.
-
-Though it may seem impossible, feel impossible, healing can come through the miracle of the redemptive might of the Atonement of Jesus Christ, who is risen “with healing in his wings.”
-
-Our merciful Savior, victorious over darkness and depravity, has power to right all wrongs, a life-giving truth for those wronged by others.
-
-Please know that the Savior has descended below all things, even what has happened to you. Because of that, He knows exactly what real terror and shame feel like and how it feels to be abandoned and broken. From the depths of His atoning suffering, the Savior imparts hope you thought was lost forever, strength you believed you could never possess, and healing you couldn’t imagine was possible.
-
-There is no place for any kind of abuse—physical, sexual, emotional, or verbal—in any home, any country, or any culture. Nothing a wife, child, or husband might do or say makes them “deserve” to be beaten. No one, in any country or culture, is ever “asking for” aggression or violence from someone else in authority or by someone who is bigger and stronger.
-
-Those who abuse and who seek to hide their grievous sins may get away with it for a time. But the Lord, who sees all, knows the deeds and the thoughts and intents of the heart. He is a God of justice, and His divine justice will be served.
-
-Miraculously, the Lord is also a God of mercy to the truly repentant. Abusers—including those who were once abused themselves—who confess, forsake their sin, and do all in their power to make recompense and restitution, have access to forgiveness through the miracle of the Atonement of Christ.
-
-For the falsely accused, the unspeakable gravity of these accusations brings its own purgatory. But they too are blessed by the Savior’s vicarious suffering for them and the knowledge that ultimately truth will prevail.
-
-But unrepentant abusers will stand before the Lord to account for their heinous crimes.
-
-The Lord Himself is crystal clear in His condemnation of abuse of any kind: “But whoso shall offend one of these little ones … , it were better for him that a millstone were hanged about his neck, and that he were drowned in the depth of the sea.”
-
-Dear friends who have been so terribly wounded—and for that matter, anyone who has borne the injustices of life—you can have a new beginning and a fresh start. In Gethsemane and on Calvary, Jesus “took upon Himself … all of the anguish and suffering ever experienced by you and me,” and He has overcome it all! With arms outstretched, the Savior offers the gift of healing to you. With courage, patience, and faithful focus on Him, before too long you can come to fully accept this gift. You can let go of your pain and leave it at His feet.
-
-Your gentle Savior declared, “The thief cometh not, but for to steal, and to kill, and to destroy: I am come that [you] might have life, and that [you] might have it more abundantly.” You are a survivor, you can heal, and you can trust that with the power and grace of Jesus Christ, you will overcome and conquer.
-
-Jesus specializes in the seemingly impossible. He came here to make the impossible possible, the irredeemable redeemable, to heal the unhealable, to right the unrightable, to promise the unpromisable. And He’s really good at it. In fact, He’s perfect at it. In the name of Jesus Christ, our Healer, amen.
-
-For more information and resources, see “Abuse” in the Life Help section at ChurchofJesusChrist.org and in the Gospel Library app.
-
-
----
-
 
 ## Conversion to the Will of God
 
@@ -10430,9 +11498,7 @@ This has been the clarion call for generations of Latter-day Saints, especially 
 
 The blessings of sharing the gospel include increasing our conversion to the will of God and letting God prevail in our lives. We bless others to experience a “mighty change” of heart. There is truly eternal joy in helping to bring souls unto Christ. Laboring for the conversion of oneself and others is the noble task. I so testify in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Fear Not: Believe Only!
 
@@ -10498,9 +11564,7 @@ To any of our youth out there who are struggling, whatever your concerns or diff
 
 Someone who faced circumstances far more desperate than you and I ever will once cried: “Go forward [my beloved young friends]. Courage, … and on, on to the victory! Let your hearts rejoice, and be exceedingly glad.” We have so much to be glad about. We have each other, and we have Him. Don’t deny us the chance to have you, I plead, in the sacred and holy name of the Lord Jesus Christ, our Master, amen.
 
-
 ---
-
 
 ## Love, Share, Invite
 
@@ -10602,9 +11666,7 @@ As we love, share, and invite, we take part in that great and glorious work that
 
 That we may heed the Savior’s call and strive to engage in His great commission is my prayer in the name of Jesus the Christ, amen.
 
-
 ---
-
 
 ## But We Heeded Them Not
 
@@ -10674,9 +11736,7 @@ Press on. Hold fast. Heed not.
 
 I witness that fidelity to the covenants and ordinances of the Savior’s restored gospel enables us to press on in the work of the Lord, to hold fast to Him as the Word of God, and to heed not the allurements of the adversary. In the fight for right, may each of us wield a sword, even “the mighty sword of truth,” in the sacred name of the Lord Jesus Christ, amen.
 
-
 ---
-
 
 ## “Lovest Thou Me More Than These?”
 
@@ -10752,9 +11812,7 @@ I testify that we are blessed to have the gospel of Jesus Christ to guide us in 
 
 I testify that Jesus Christ is our beloved Savior. He is the Only Begotten Son of God. And I bear this testimony humbly in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Daily Restoration
 
@@ -10864,9 +11922,7 @@ As we do so, God will smile upon us. “The Lord shall … bless thee in the lan
 
 That we will seek daily restoration and continually strive to walk in the Way of Jesus Christ is my prayer. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Things of My Soul
 
@@ -10964,9 +12020,7 @@ I close with an invitation for each of you to consider the seven “things of my
 
 The things of my soul are as precious to me as yours are to you. These things strengthen our service in the Church and in all areas of life. They commit us to Jesus Christ, they remind us of our covenants, and they help us feel secure in the arms of the Lord. I testify that He desires that our souls “shall never hunger nor thirst, but shall be filled” with His love as we seek to become His true disciples, to be one with Him as He is with the Father. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Peace of Christ Abolishes Enmity
 
@@ -11020,9 +12074,7 @@ If we are not one, we are not His. My invitation is to be valiant in putting our
 
 Let us follow the example of Saints from around the world who are successfully becoming disciples of Christ. We can rely on Jesus Christ, who “is our peace, who … hath broken down the middle wall of partition between us; having abolished in his [atoning sacrifice] the enmity.” Our witness of Jesus Christ to the world will be strengthened, and we will remain spiritually healthy. I testify that as we “shun contention” and become “like-minded with the Lord in love and united with Him in faith,” His peace will be ours. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Simply Beautiful—Beautifully Simple
 
@@ -11108,9 +12160,7 @@ May we keep the gospel simple as we take upon us our divinely appointed responsi
 
 Doing so will surely bring joy and peace. Of this I promise and testify—and of Jesus Christ as our Savior and our Redeemer—in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Trust Again
 
@@ -11206,9 +12256,7 @@ And like the other son or daughter, we are gently entreated by God to rejoice to
 
 Our life journeys are individual, but we can come again to God our Father and His Beloved Son through trust in God, each other, and ourselves. Jesus beckons, “Be not afraid, only believe.” As did the Prophet Joseph, undaunted may we trust in our Heavenly Father’s care. Dear brother, dear sister, dear friend, please look again for faith and trust—a miracle He promises you today. In the sacred and holy name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Need for a Church
 
@@ -11272,9 +12320,7 @@ In closing, I remind all that we do not believe that good can be accomplished on
 
 Despite the good works that can be accomplished without a church, the fulness of doctrine and its saving and exalting ordinances are available only in the restored Church. In addition, Church attendance gives us the strength and enhancement of faith that come from associating with other believers and worshipping together with those who are also striving to stay on the covenant path and be better disciples of Christ. I pray that we will all be steadfast in these Church experiences as we seek eternal life, the greatest of all the gifts of God, in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Personal Peace in Challenging Times
 
@@ -11340,9 +12386,7 @@ While we honor and sustain him as our prophet, we worship our Heavenly Father an
 
 I testify and provide my personal apostolic witness that Jesus Christ, the Savior and Redeemer of the world, leads and guides His restored Church. His life and atoning mission are the true source of peace. He is the Prince of Peace. I bear my sure and solemn witness that He lives. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Sustaining of General Authorities, Area Seventies, and General Officers
 
@@ -11414,9 +12458,7 @@ The following Area Seventies were released on August 1, 2021:
 
 P. David Agazzani, Quilmer A. Agüero, Frederick O. Akinbo, Nelson Ardila, Richard C. Baquiran, Dong Chol Beh, Matthieu Bennasar, Lawrence P. Blunck, Luis J. Camey, Douglas B. Carter, Aroldo B. Cavalcante, Luis C. Chaverri, Ulises Chávez, Brent J. Christensen, Douglas L. Dance, M. T. Ben Davis, Marc C. Davis, J. Scott Dorius, M. Dirk Driscoll, Antonio F. Faúndez, José A. Fernández, Matías D. Fernández, Candido Fortuna, Bruce E. Ghent, Michael A. Gillenwater, Michael D. Groll, Daniel G. Hamilton, Tom-Atle Herland, Raymond S. Heyman, Jerat K. C. Igwe, Christophe Kawaya, John A. Koranteng, Ming-Shun Kuan, Todd S. Larkin, Juan J. Levrino, Carlo M. Lezano, Felix A. Martinez, J Vaun McArthur, Kevin K. Miskin, Helamán Montejo, Michael R. Murray, Ryan V. Pagaduan, A. Moroni Pérez, Carlos E. Perrotti, Mark P. Peteru, Thomas T. Priday, Brian L. Rawson, Rene Romay, Blake M. Roney, Luis G. Ruiz, Maximo A. Saavedra Jr., Pedro A. Sanhueza, Eric J. Schmutz, Paul H. Sinclair, Benjamin T. Sinjoux, David L. Stapleton, Daniel Texeira, Seiji Tokuzawa, Maxsimo C. Torres, Jesús Vélez, Carlos Villarreal, Paul H. Watkins, Robert K. William, C. Dale Willis, Kevin J Worthen, and Luis G. Zapata.
 
-
 ---
-
 
 ## The Love of God
 
@@ -11486,9 +12528,7 @@ Here is the solution for our incessantly quarrelsome times—the love of God. In
 
 I bear witness of the reality of our Heavenly Father and our Redeemer, Jesus Christ, and of Their constant, undying love. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## With the Power of God in Great Glory
 
@@ -11558,9 +12598,7 @@ This woman learned that binding herself to the Savior through covenants and ordi
 
 Covenant promises and blessings are possible only because of our Savior, Jesus Christ. He invites us to look to Him, come unto Him, learn of Him, and bind ourselves to Him through the covenants and ordinances of His restored gospel. I testify and promise that honoring covenants arms us with righteousness and with the power of God in great glory. And I witness that the living Lord Jesus Christ is our Savior. Of these truths I joyfully testify in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Savior’s Abiding Compassion
 
@@ -11612,9 +12650,7 @@ My dear friends, I testify that as we strive to incorporate the Savior’s compa
 
 I pray that we will become more long-suffering and understanding of others and that the Lord’s mercy will, in perfect meekness, soothe our impatience with their imperfections. This is the Savior’s invitation to us. I testify that He lives. He is the perfect model of merciful and patient discipleship. I bear my testimony of these truths in the holy name of the Savior Jesus Christ, amen.
 
-
 ---
-
 
 ## The Temple and Your Spiritual Foundation
 
@@ -11700,9 +12736,7 @@ I love you, dear brothers and sisters. These truths I know: God, our Heavenly Fa
 
 God lives! Jesus is the Christ! This is His Church, restored to help you fulfill your divine destiny. I so testify in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Name of the Church Is Not Negotiable
 
@@ -11800,9 +12834,7 @@ I am an eyewitness to the power of heaven that rests upon our beloved prophet, P
 
 I witness that Jesus is the Christ, the Son of God. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Make Time for the Lord
 
@@ -11840,9 +12872,7 @@ I love you, dear brothers and sisters. The Lord knows you and loves you. He is y
 
 May God be with you until we meet again, I pray in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Greatest Possession
 
@@ -11894,9 +12924,7 @@ Seal it for thy courts above.
 
 In the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Faith to Ask and Then to Act
 
@@ -11964,9 +12992,7 @@ I testify that Jesus Christ lives. He is our Savior and our Redeemer. This is Hi
 
 I pray that you may have that same witness. I pray that you will ask Heavenly Father for the faith in Jesus Christ you need to make and keep the covenants that will allow the Holy Ghost to be your constant companion. I leave you with my love and my sure witness in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Pure Truth, Pure Doctrine, and Pure Revelation
 
@@ -12000,9 +13026,7 @@ This is The Church of Jesus Christ of Latter-day Saints. We are His covenant peo
 
 I invoke a blessing upon all who are seeking greater light, knowledge, and truth. I express my love for each of you, in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Defending Our Divinely Inspired Constitution
 
@@ -12064,9 +13088,7 @@ The Church of Jesus Christ of Latter-day Saints will, of course, exercise its ri
 
 I testify of the divinely inspired Constitution of the United States and pray that we who recognize the Divine Being who inspired it will always uphold and defend its great principles. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Why the Covenant Path
 
@@ -12142,9 +13164,7 @@ Let us heed the prophet’s call to stay on the covenant path. Nephi saw us and 
 
 With Nephi, “my soul delighteth in the covenants of the Lord.” On this Easter Sunday, I bear testimony of Jesus Christ, whose Resurrection is our hope and the assurance of all that is promised on and at the end of the covenant path. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## COVID-19 and Temples
 
@@ -12186,9 +13206,7 @@ Temples are a vital part of the Restoration of the gospel of Jesus Christ in its
 
 As we close this conference, we again express our love for you. We pray that God will shower His blessings and watchcare upon each of you. Together we are engaged in His sacred service. With courage, let us all press on in the glorious work of the Lord! For this I pray in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Hope in Christ
 
@@ -12282,9 +13300,7 @@ Let us call upon our members who are single to serve, lift, and teach. Disregard
 
 I bear my witness on this Easter weekend of our Savior, Jesus Christ, and the eternal hope He gives me and all who believe in His name. And I bear this testimony humbly in His sacred name, even Jesus Christ, amen.
 
-
 ---
-
 
 ## Welcome Message
 
@@ -12322,9 +13338,7 @@ As we listen to the messages that have been carefully prepared by our leaders un
 
 I love you, my dear brothers and sisters, and testify that our Heavenly Father and His Beloved Son know and love you individually. They stand ready to assist you in every step forward you take. Welcome to general conference and to the privilege of hearing the voice of the Lord. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Bless in His Name
 
@@ -12390,9 +13404,7 @@ You may feel small compared to the great sweep of what the Lord will do. If you 
 
 I bless you now to be able to feel His love and His trust, in the name of the Lord Jesus Christ, amen.
 
-
 ---
-
 
 ## What Has Our Savior Done for Us?
 
@@ -12466,9 +13478,7 @@ Jesus Christ did all of this because He loves all of the children of God. Love i
 
 I testify of all of this and pray that we all will remember what our Savior has done for each of us and that we all will love and serve Him, in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Not as the World Giveth
 
@@ -12516,9 +13526,7 @@ May I close where I began. Tomorrow is Easter, a time for the righteous principl
 
 In spite of betrayal and pain, mistreatment and cruelty, and bearing all the accumulated sins and sorrows of the human family, the Son of the living God looked down the long path of mortality, saw us this weekend, and said: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.” Have a blessed, joyful, peaceful Easter. Its untold possibilities have already been paid for by the Prince of Peace, whom I love with all my heart, whose Church this is, and of whom I bear unequivocal witness, even the Lord Jesus Christ, amen.
 
-
 ---
-
 
 ## Sustaining of General Authorities, Area Seventies, and General Officers
 
@@ -12610,9 +13618,7 @@ The following Area Seventies were sustained during a leadership session held as 
 
 Daniel P. Amato, Rodney A. Ames, Marcelo Andrezzo, Samuel Annan-Simons, Patrick Appianti-Sarpong, Eduardo M. Argana, Steven C. Barlow, Erik Bernskov, Mark E. Bonham, K. Bruce Boucher, Jonathan G. Cannon, Juan P. Casco, Gregorio E. Casillas, Fernando R. Castro, Ranulfo Cervantes, Thomas K. Checketts, Ross A. Chiles, Benjamin Cinco, David C. Clark, Félix Conde, Jorge A. Contreras, Corbin E. Coombs, Moroni Costa, Leandro J. Curaba, B. Corey Cuvelier, Ernesto A. Deyro Jr., J. Kimo Esplin, Tomás Familia, Michael D. Groll, John Gutty, Oleksiy H. Hakalenko, Tommy D. Haws, Levi W. Heath, Brian J. Holmes, Hal C. Hunsaker, Yuichi Imai, Bruce H. Ixcot, Paul H. Jean Baptiste, Dong Hwan Jeong, Frederick M. Kamya, Gaëtan Kelounou, David S. Kinard, Julio E. Lee, R. Darío Lorenzana, Odair José Castro de Lira, Enrique M. Loo, Hernán D. Lucero, Bartolome Madriaga, Douglas P. Maxfield, Héctor Méndez, Steven C. Merrell, Quinn S. Millington, Siegfried A. Naumann, Ricardo J. Nieves, Lorenzo E. Norambuena, Enefiok Ntem, Charles O. Oide, Juan L. Orquera, Roberto C. Pacheco, Damon Page, Franck A. Poznanski, T. Michael Price, Alexandre Ret, Frédéric T. Riemer, Russell A. Robinson, Leonardo S. Rojas, Douglas A. Rozsa, Lee M. Shumway, Robert H. Simpson, Vance K. Smith, Martiniano S. Soquila Jr., Victor H. Suazo, Raul Tapia, Carlos Torres, Bruno E. Vásquez, M. Travis Wolsey, and Richard G. Youngblood.
 
-
 ---
-
 
 ## Bishops—Shepherds over the Lord’s Flock
 
@@ -12694,9 +13700,7 @@ Some words and the sacred callings they describe are imbued with almost a spirit
 
 Bishops, we sustain you! Bishops, we love you! You are truly the Lord’s shepherds over His flock. The Savior will not forsake you in these sacred callings. Of this I testify, on this Easter weekend, in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## The Personal Journey of a Child of God
 
@@ -12776,9 +13780,7 @@ I testify that your own personal journey as a child of God did not begin for you
 
 May we always remember that each spirit child of God is coming to earth on his or her own personal journey. May we welcome them, safeguard them, and always love them. As you receive these precious children in the Savior’s name and help them in their eternal journey, I promise you that the Lord will bless you and shower His love and approval upon you. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Room in the Inn
 
@@ -12870,9 +13872,7 @@ Our Good Samaritan promises to return. Miracles occur when we care for each othe
 
 As we create room in His Inn, welcoming all, our Good Samaritan can heal us on our dusty mortal roads. With perfect love, our Father and His Son, Jesus Christ, promise “peace in this world, and eternal life in the world to come”—“that where I am ye shall be also.” I so gratefully witness and testify in the sacred and holy name of Jesus Christ, amen.
 
-
 ---
-
 
 ## “Behold! I Am a God of Miracles”
 
@@ -12960,9 +13960,7 @@ To us in times of trial He has said, “Behold the wounds which pierced my side,
 
 On this Easter Sunday, as we celebrate the miracle of our Lord’s Resurrection, as an Apostle of Jesus Christ I humbly pray that you will feel the power of the Redeemer in your life, that your appeals to our Heavenly Father will be answered with the love and commitment Jesus Christ demonstrated throughout His ministry. I pray that you may stand steadfast and faithful in all that is to come. And I bless you that miracles will attend you as we experienced in Goshen—if it be the Lord’s will. Look for these heaven-sent blessings in your life as you “seek this Jesus of whom the prophets and apostles have written, that the grace of God the Father, and also the Lord Jesus Christ, and the Holy Ghost, which beareth record of them, may be and abide in you forever.” In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## I Love to See the Temple
 
@@ -13056,9 +14054,7 @@ This is my sacred duty.
 
 I bear solemn testimony that we are children of a loving Heavenly Father. He chose His Beloved Son, Jesus Christ, to be our Savior and Redeemer. The only way to return to live with Them and with our family is through the ordinances of the holy temple. I testify that President Russell M. Nelson holds and exercises all the keys of the priesthood that make eternal life possible for all of God’s children. I so testify in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Hearts Knit Together
 
@@ -13174,9 +14170,7 @@ On this holy Easter weekend, I find abiding peace in knowing that “the Lord is
 
 Of this I testify—and of Jesus Christ as our Savior and our Redeemer—in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## “The Principles of My Gospel”
 
@@ -13260,9 +14254,7 @@ With all the energy of my soul, I invite all of us to learn, live, and love prin
 
 I know that the doctrine and principles of the gospel of Jesus Christ are the foundational sources of direction for our lives and of enduring joy in mortality and eternity. And on this glorious Easter Sunday, I joyfully witness that our living Savior is the fount from which these truths flow. I so testify in the sacred name of the Lord Jesus Christ, amen.
 
-
 ---
-
 
 ## What We Are Learning and Will Never Forget
 
@@ -13326,9 +14318,7 @@ My dear brethren, there are many things the Lord wants us to learn from our expe
 
 The future is bright for God’s covenant-keeping people. The Lord will increasingly call upon His servants who worthily hold the priesthood to bless, comfort, and strengthen mankind and to help prepare the world and its people for His Second Coming. It behooves each of us to measure up to the sacred ordination we have received. We can do this! I so testify, with my expression of love for each of you, my beloved brethren, in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Christ Is Risen; Faith in Him Will Move Mountains
 
@@ -13408,9 +14398,7 @@ Your growing faith in Him will move mountains—not the mountains of rock that b
 
 On this Easter Sunday, with my deep feelings of love and gratitude, I declare my witness that Jesus Christ is indeed risen. He is risen to lead His Church. He is risen to bless the lives of all of God’s children, wherever they live. With faith in Him, we can move the mountains in our lives. I so testify in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Infuriating Unfairness
 
@@ -13480,9 +14468,7 @@ Do not let unfairness harden you or corrode your faith in God. Instead, ask God 
 
 I testify that the Savior lives. He understands unfairness. The marks in the palms of His hands continually remind Him of you and your circumstances. He ministers to you in all your distress. For those who come unto Him, a crown of beauty will replace the ashes of mourning; joy and gladness will replace grief and sorrow; appreciation and celebration will replace discouragement and despair. Your faith in Heavenly Father and Jesus Christ will be rewarded more than you can imagine. All unfairness—especially infuriating unfairness—will be consecrated for your gain. I so testify in the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Jesus Christ: The Caregiver of Our Soul
 
@@ -13536,9 +14522,7 @@ One of their sons, who is currently serving as a bishop in Brazil, related the f
 
 My dear brothers and sisters, on this Easter Sunday, I bear my solemn witness that Jesus rose from the dead and that He lives. I testify to you that through Him and His infinite Atonement, the Savior provided us the way to overcome death, both physically and spiritually. In addition to these great blessings, He also offers us comfort and assurance in difficult times. I assure you that as we put our trust in Jesus Christ and in His supernal atoning sacrifice, enduring in our faith to the end, we will enjoy the promises of our beloved Heavenly Father, who does everything within His power to help us return to His presence one day. This is His work and His glory! I testify to you that Jesus is the Christ, the Redeemer of the world, the promised Messiah, the Resurrection and the Life. And I share these truths with you in His holy name, the Only Begotten of the Father, our Lord, Jesus Christ, amen.
 
-
 ---
-
 
 ## God among Us
 
@@ -13676,9 +14660,7 @@ God is among us.
 
 Of this I testify and bear witness in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Watch Ye Therefore, and Pray Always
 
@@ -13778,9 +14760,7 @@ I invite all Church members, as well as our neighbors and friends of other faith
 
 How great is the power of prayer, and how needed are our prayers of faith in God and His Beloved Son in the world today! Let us remember and appreciate the power of prayer. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Moving Forward
 
@@ -13818,9 +14798,7 @@ As we gather to hear the words the Lord has inspired His servants to deliver, I 
 
 I pray that you will choose to lay hold upon the word of God as it is declared during this general conference. And I pray that you may feel the Lord’s perfect love for you, in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Sisters in Zion
 
@@ -13898,9 +14876,7 @@ Charity is the pure love of Christ. And it is faith in Him and the full effects 
 
 I testify that you are citizens of the Lord’s kingdom on the earth. You are daughters of a loving Heavenly Father, who sent you into the world with unique gifts that you promised to use to bless others. I promise you that the Lord will lead you by the hand, through the Holy Ghost. He will go before your face as you help Him prepare His people to become His promised Zion. I so testify in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Recommended to the Lord
 
@@ -13976,9 +14952,7 @@ When the Lord calls for us to “redouble” our efforts, He is asking that we i
 
 I promise you as an Apostle of the Lord Jesus Christ that as you strive to redouble your righteous efforts, you will feel renewed in your devotion to God the Father and Jesus Christ, you will feel an abundance of the Holy Ghost guiding you, you will be grateful for your sacred covenants, and you will feel peace knowing you are “recommended to the Lord.” In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Hearts Knit in Righteousness and Unity
 
@@ -14072,9 +15046,7 @@ The clarion call to members of The Church of Jesus Christ of Latter-day Saints i
 
 It is my prayer that we will be righteous and united and completely focused on serving and worshipping our Savior, Jesus Christ, of whom I testify. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## A New Normal
 
@@ -14108,9 +15080,7 @@ Now, my dear brothers and sisters, I bless you to be filled with the peace of th
 
 May we go forward together to fulfill our divine mandate—that of preparing ourselves and the world for the Second Coming of the Lord. I so pray, with my expression of love for you, in the sacred name of Jesus Christ, amen.
 
-
 ---
-
 
 ## Love Your Enemies
 
@@ -14190,9 +15160,7 @@ That is a good secular reason for following “eternal and perpetual” interest
 
 Knowing that we are all children of God gives us a divine vision of the worth of all others and the will and ability to rise above prejudice and racism. As I have lived for many years in different places in this nation, the Lord has taught me that it is possible to obey and seek to improve our nation’s laws and also to love our adversaries and our enemies. While not easy, it is possible with the help of our Lord, Jesus Christ. He gave this command to love, and He promises His help as we seek to obey it. I testify that we are loved and will be helped by our Heavenly Father and His Son, Jesus Christ. In the name of Jesus Christ, amen.
 
-
 ---
-
 
 ## We Will Prove Them Herewith
 
@@ -14294,9 +15262,7 @@ The process of proving ourselves is a fundamental part of Heavenly Father’s gr
 
 I witness that God the Eternal Father is our Father. Jesus Christ is His Only Begotten and living Son, our Savior and Redeemer. Of these truths I joyfully testify in the sacred name of the Lord Jesus Christ, amen.
 
-
 ---
-
 
 ## Tested, Proved, and Polished
 
@@ -14396,9 +15362,7 @@ I express my gratitude for the many faithful members of the Church of Jesus Chri
 
 I testify that we are children of a Heavenly Father, who loves us. I feel President Russell M. Nelson’s love for us all. He is the Lord’s prophet in the world today. I so testify in the sacred name of the Lord Jesus Christ, amen.
 
-
 ---
-
 
 ## We Talk of Christ
 
@@ -14472,5247 +15436,4 @@ How grateful we are for our beloved prophet, President Russell M. Nelson, who h
 
 My dear friends across the world, let us talk of Christ, anticipating His glorious promise: “Whosoever … shall confess me before men, him will I confess … before my Father.” I testify He is the Son of God. In the name of Jesus Christ, amen.
 
-
 ---
-
-
-## Highly Favored of the Lord
-
-**Speaker:** By Elder Gary E. Stevenson
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/10/53stevenson?lang=eng
-
-One day years ago, as young missionaries laboring in a tiny branch on the small island of Amami Oshima, Japan, my companion and I were ecstatic to learn that President Spencer W. Kimball would be visiting Asia and that all members and missionaries in Japan were invited to Tokyo to hear the prophet at an area conference. With branch members, my companion and I excitedly began making plans for the conference, which would require a 12-hour boat ride across the East China Sea to mainland Japan, followed by a 15-hour train ride to Tokyo. Sadly, however, it was not to be. We received word from our mission president that because of distance and time, my companion and I would not be able to attend the conference in Tokyo.
-
-While members of our little branch embarked for Tokyo, we stayed behind. The following days seemed quiet and empty. We held sacrament meeting alone in the small chapel, while the Latter-day Saints and missionaries of Japan attended the conference.
-
-My sense of personal disappointment intensified even as I joyfully listened to branch members return from the conference days later to report that President Kimball had announced a temple in Tokyo. They gushed with excitement as they shared the fulfillment of their dream. They described how, upon hearing the temple announcement, members and missionaries were unable to contain their joy and spontaneously erupted into clapping their hands.
-
-Years have passed, but I can still remember the disappointment I felt from missing that historic meeting.
-
-In recent months I have reflected upon this experience as I have observed others face deep disappointment and sorrow—far greater and deeper than mine ever was as a young missionary—brought on by the worldwide COVID-19 pandemic.
-
-Earlier this year, as the pandemic accelerated, the First Presidency pledged that “the Church and its members will faithfully exhibit our commitment to being good citizens and good neighbors” and will “use an abundance of caution.” Thus, we experienced the suspension of Church gatherings worldwide, the return of more than half the Church’s missionary force to their home nations, and the closure of all temples throughout the Church. Thousands of you were preparing to enter the temple for living ordinances—including temple sealings. Others of you have completed your service as missionaries early or have been temporarily released and reassigned.
-
-During this time, government and educational leaders closed schools—which consequently altered graduations and forced the cancellation of sporting, social, cultural, and educational events and activities. Many of you prepared for events that were not attended, performances that were not heard, and athletic seasons that were not played.
-
-Even more poignant are thoughts of families who have lost loved ones during this time; most could not hold funerals or other tender gatherings as they had hoped.
-
-In short, many, many of you have dealt with heartbreaking disappointment, sorrow, and discouragement. So how do we heal, endure, and move forward when things seem so broken?
-
-The prophet Nephi began engraving the small plates when he was a grown man. As he looked back on his life and ministry, he offered an important reflection in the very first verse of the Book of Mormon. This verse frames an important principle for us to consider in our time. Following his familiar words, “I, Nephi, having been born of goodly parents … ,” he writes, “and having seen many afflictions in the course of my days, nevertheless, having been highly favored of the Lord in all my days.”
-
-As students of the Book of Mormon, we are familiar with the many afflictions to which Nephi refers. Yet following acknowledgment of his afflictions in the course of his days, Nephi gives his gospel perspective of being highly favored of the Lord in all his days. Times of affliction and disappointment do not change the watchful eye of the Lord as He favorably looks upon us, blessing us.
-
-Lesa and I recently met virtually with about 600 missionaries in Australia, most of whom were under some measure of confinement or restriction related to COVID-19, many working from their apartments. Together we considered individuals in the New Testament, Book of Mormon, and Doctrine and Covenants whom the Lord blessed to accomplish greatness in adversity. All were defined more by what they were able to do with the Lord’s help than by what they could not do as a result of their confinement and restriction.
-
-We read of Paul and Silas, who, while imprisoned in stocks, prayed, sang, taught, testified—and even baptized the jailer.
-
-And again of Paul, in Rome, who was under house arrest for two years, during which time he continually “expounded and testified the kingdom of God,” “teaching those things which concern the Lord Jesus Christ.”
-
-Of Nephi and Lehi, the sons of Helaman, who after abuse and imprisonment were encircled by a fire of protection as the Lord’s “still voice of perfect mildness … did pierce [their captors] even to the very soul.”
-
-Of Alma and Amulek in Ammonihah, who found that many “did believe … and began to repent, and to search the scriptures,” even though they were then mocked and without food, water, or clothes, bound and confined in prison.
-
-And finally of Joseph Smith, who, while languishing in Liberty Jail, felt abandoned and forsaken, then heard the words of the Lord: “These things … shall be for thy good” and “God shall be with you forever.”
-
-Each of them understood what Nephi knew: that although they had seen many afflictions in the course of their days, they were highly favored of the Lord.
-
-We too can draw parallels as individual members and as a church in the way in which we have been highly favored of the Lord during the challenging times we have encountered the past several months. As I cite these examples, let them also strengthen your testimony of the seership of our living prophet, who prepared us with adjustments before any hint of a pandemic, enabling us to endure the challenges that have come.
-
-First, becoming more home centered and Church supported.
-
-Two years ago, President Russell M. Nelson said: “We have become accustomed to thinking of ‘church’ as something that happens in our meetinghouses, supported by what happens at home. We need an adjustment to this pattern. … A home-centered Church, supported by what takes place inside our … buildings.” What a prophetic adjustment! Home-centered gospel learning has been put into practice with the temporary closure of meetinghouses. Even as the world begins to normalize and we return to chapels, we will want to retain our home-centered patterns of gospel study and learning developed during the pandemic.
-
-A second example of being highly favored of the Lord is the revelation regarding ministering in a higher and holier way.
-
-In 2018, President Nelson introduced ministering as an adjustment “in the way we care for each other.” The pandemic has introduced numerous opportunities to hone our ministering skills. Ministering brothers and sisters, young women and young men, and others have reached out to provide contact, conversation, yard care, meals, messages via technology, and the sacrament ordinance to bless those in need. The Church itself has also been ministering to others during the pandemic with an unprecedented distribution of commodities to food banks, homeless shelters, and immigrant support centers and with projects directed to the world’s most serious hunger situations. Relief Society sisters and their families responded to the challenge of making millions of masks for health-care workers.
-
-A final example of being blessed during adversity is finding heightened joy in the return of temple ordinances.
-
-This is best described with a story. When Sister Kaitlyn Palmer received her mission call last April, she was excited to be called as a missionary but felt it equally important and special to go to the temple to receive her endowment and make sacred covenants. Shortly after she scheduled her endowment, the announcement came that all temples would temporarily close due to the worldwide pandemic. After receiving this heartbreaking information, she then learned she would attend the missionary training center (MTC) virtually from her home. Despite these disappointments, Kaitlyn focused on keeping her spirits high.
-
-In the intervening months, Sister Palmer never lost hope of attending the temple. Her family fasted and prayed that temples would open prior to her departure. Kaitlyn would often start her home MTC mornings by saying, “Is today going to be the day we receive a miracle and temples open back up?”
-
-On August 10, the First Presidency announced that Kaitlyn’s temple would reopen for living ordinances on the exact day her early-morning flight to her mission was scheduled. She would not be able to attend the temple and make her flight. With little hope for success, her family contacted temple president Michael Vellinga to see if there was any way the miracle they had been praying for could be realized. Their fasting and prayers were answered!
-
-At 2:00 a.m., hours before her flight departure, Sister Palmer and her family, in tears, were greeted at the temple doors by the smiling temple president with the words, “Good morning, Palmer family. Welcome to the temple!” As she completed her endowment, they were encouraged to move quickly, as the next family was waiting at the temple doors. They drove directly to the airport just in time to make her flight to her mission.
-
-The temple ordinances we have missed over several months seem sweeter than previously imagined as temples around the world reopen in phases.
-
-As I close, please listen to the encouraging, enthusiastic, uplifting words of the Prophet Joseph Smith. One would never guess he penned them in affliction and isolation, constrained and restricted at a home in Nauvoo, hiding from those who were seeking to illegally apprehend him:
-
-“Now, what do we hear in the gospel which we have received? A voice of gladness! A voice of mercy from heaven; and a voice of truth out of the earth; glad tidings for the dead; a voice of gladness for the living and the dead; glad tidings of great joy. …
-
-“… Shall we not go on in so great a cause? Go forward and not backward. Courage, … and on, on to the victory! Let your hearts rejoice, and be exceedingly glad. Let the earth break forth into singing.”
-
-Brothers and sisters, I believe that one day, each of you will look back at the canceled events, the sadness, the disappointments, and the loneliness attendant to the challenging times we are passing through to see them overshadowed by choice blessings and increased faith and testimonies. I believe that in this life, and in the life to come, your afflictions, your Ammonihah, your Liberty Jail, will be consecrated for your gain. I pray that, along with Nephi, we can acknowledge the afflictions in the course of our days while at the same time recognizing that we are highly favored of the Lord.
-
-I close with my testimony of Jesus Christ, who Himself was no stranger to affliction and as part of His infinite Atonement descended below all things. He understands our grief, pain, and desperation. He is our Savior, our Redeemer, our hope, our consolation, and our Deliverer. Of this I testify in His holy name, Jesus Christ, amen.
-
-
----
-
-
-## Sustaining of General Authorities, Area Seventies, and General Officers
-
-**Speaker:** Presented by President Henry B. Eyring
-
-**Calling:** Second Counselor in the First Presidency
-
-**Year:** 2020
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/10/21eyring?lang=eng
-
-Brothers and sisters, I will now present to you the General Authorities, Area Seventies, and General Officers of the Church for your sustaining vote.
-
-It is proposed that we sustain Russell Marion Nelson as prophet, seer, and revelator and President of The Church of Jesus Christ of Latter-day Saints; Dallin Harris Oaks as First Counselor in the First Presidency; and Henry Bennion Eyring as Second Counselor in the First Presidency.
-
-Those in favor may manifest it.
-
-Those opposed, if any, may manifest it.
-
-It is proposed that we sustain Dallin H. Oaks as President of the Quorum of the Twelve Apostles and M. Russell Ballard as Acting President of the Quorum of the Twelve Apostles.
-
-Those in favor, please signify.
-
-Any opposed may manifest it.
-
-It is proposed that we sustain the following as members of the Quorum of the Twelve Apostles: M. Russell Ballard, Jeffrey R. Holland, Dieter F. Uchtdorf, David A. Bednar, Quentin L. Cook, D. Todd Christofferson, Neil L. Andersen, Ronald A. Rasband, Gary E. Stevenson, Dale G. Renlund, Gerrit W. Gong, and Ulisses Soares.
-
-Those in favor, please manifest it.
-
-Any opposed may so indicate.
-
-It is proposed that we sustain the counselors in the First Presidency and the Quorum of the Twelve Apostles as prophets, seers, and revelators.
-
-All in favor, please manifest it.
-
-Contrary, if there be any, by the same sign.
-
-We have released Elders L. Whitney Clayton, Enrique R. Falabella, and Richard J. Maynes as General Authority Seventies and grant them emeritus status.
-
-Those who wish to join with us in expressing gratitude to these Brethren and to their families for their remarkable service, please so manifest.
-
-We have released Elder L. Todd Budge as a General Authority Seventy.
-
-All who wish to thank him for his service, please do so by the uplifted hand.
-
-We have released Bishops Dean M. Davies and W. Christopher Waddell as First and Second Counselors, respectively, in the Presiding Bishopric.
-
-All who wish to express appreciation to these Brethren for their dedicated service may so indicate.
-
-We have released the following as Area Seventies: Ruben Acosta, René R. Alba, Alberto A. Alvarez, Vladimir N. Astashov, José Batalla, Bradford C. Bowen, Sergio Luis Carboni, Armando Carreón, S. Marc Clay Jr., Z. Dominique Dekaye, Osvaldo R. Dias, Michael M. Dudley, Mark P. Durham, E. Xavier Espinoza, James E. Evanson, Paschoal F. Fortunato, Sam M. Galvez, Patricio M. Giuffra, Leonard D. Greer, Daniel P. Hall, Toru Hayashi, Paul F. Hintze, Adolf J. Johansson, Wisit Khanakham, Seung Hoon Koo, Pedro X. Larreal, Johnny L. Leota, José E. Maravilla, Joel Martinez, Joaquim J. Moreira, Isaac K. Morrison, Eduardo A. Norambuena, Ferdinand P. Pangan, Jairus C. Perez, Steven M. Petersen, Jay D. Pimentel, Edvaldo B. Pinto Jr., Alexey V. Samaykin, K. David Scott, Rulon F. Stacey, Karl M. Tilleman, William R. Titera, Carlos R. Toledo, Cesar E. Villar, David T. Warner, Gary K. Wilde, and William B. Woahn.
-
-Those who wish to join us in expressing appreciation for their excellent service, please manifest it.
-
-With Elder L. Whitney Clayton being released as a General Authority Seventy and being granted emeritus status, he has also been released as a member of the Presidency of the Seventy.
-
-Elder Brent H. Nielson has been called as a member of the Presidency of the Seventy, and we propose that he be sustained.
-
-All in favor, please manifest it.
-
-Any opposed, please indicate.
-
-It is proposed that we sustain Dean M. Davies as a General Authority Seventy.
-
-Those in favor, please manifest it.
-
-Any opposed may so signify.
-
-It is proposed that we sustain W. Christopher Waddell to serve as First Counselor in the Presiding Bishopric and L. Todd Budge to serve as Second Counselor in the Presiding Bishopric.
-
-Those in favor may manifest it.
-
-Any opposed, by the same sign.
-
-It is proposed that we sustain the following as new Area Seventies: Laurian P. Balilemwa, Jonathon W. Bunker, Enrique R. Mayorga, and Konstantin Tolomeev.
-
-Those in favor may manifest it.
-
-Those opposed, if any, may manifest it.
-
-It is proposed that we sustain the other General Authorities, Area Seventies, and General Officers of the Church as presently constituted.
-
-All in favor, please manifest it.
-
-Contrary, if there be any, by the same sign.
-
-Those who opposed any of the proposals should contact their stake president.
-
-Brothers and sisters, we express gratitude for your continued faith and prayers in behalf of the leaders of the Church.
-
-
----
-
-
-## Seek Christ in Every Thought
-
-**Speaker:** By Elder Ulisses Soares
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/10/43soares?lang=eng
-
-In his poetic hymn of praise, the Psalmist declared:
-
-“O Lord, thou hast searched me, and known me.
-
-“Thou knowest my downsitting and mine uprising, thou understandest my thought afar off.
-
-“Thou compassest my path and my lying down, and art acquainted with all my ways.”
-
-In this poem’s semantic parallelism, the Psalmist praises the Lord’s divine attribute of omniscience because He truly knows every aspect of our souls. Being aware of all that is necessary for us in this life, the Savior invites us to seek Him in every thought and to follow Him with all our heart. This gives us the promise that we can walk in His light and that His guidance prevents the influence of darkness in our life.
-
-Seeking Christ in every thought and following Him with all our heart requires that we align our mind and desires with His. The scriptures refer to this alignment as “stand[ing] fast in the Lord.” This course of action implies that we continually conduct our lives in harmony with the gospel of Christ and focus daily on everything that is good. Only then may we achieve “the peace of God, which passeth all understanding” and which will “keep [our] hearts and minds through Christ Jesus.” The Savior Himself instructed the elders of the Church in February 1831, “Treasure these things up in your hearts, and let the solemnities of eternity rest upon your minds.”
-
-Despite our continuous efforts to seek out the Lord, inappropriate thoughts may penetrate our mind. When such thoughts are permitted and even invited to stay, they can shape the desires of our heart and lead us to what we will become in this life and eventually to what we will inherit for eternity. Elder Neal A. Maxwell once emphasized this principle by saying, “Desires … determine the gradations in outcomes, including why ‘many are called, but few are chosen.’”
-
-Our ancient and modern prophets have constantly reminded us to resist temptation in order to avoid losing our spiritual traction and becoming confused, disoriented, and disillusioned in life.
-
-Metaphorically speaking, yielding to temptation is like approaching a magnet with a metal object. The magnet’s invisible force attracts the metal object and holds it tightly. The magnet loses its power over it only when the metal object is placed far from it. Therefore, just as the magnet is unable to exercise power over a faraway metal object, as we resist temptation, it fades away and loses its power over our mind and heart and, consequently, over our actions.
-
-This analogy reminds me of an experience that a very faithful member of the Church shared with me some time ago. This member told me that when she awakened on one particular morning, an improper thought that she had never experienced before unexpectedly entered her mind. Although it caught her completely by surprise, she reacted against the situation in a split second, saying to herself and to that thought, “No!” and replaced it with something good to divert her mind from the unwelcome thought. She told me that as she exercised her moral agency in righteousness, that negative, involuntary thought immediately disappeared.
-
-When Moroni called upon the people to believe in Christ and to repent, he urged them to come unto the Savior with all their hearts, stripping themselves from all uncleanness. Furthermore, Moroni invited them to ask God, with unbreakable determination, that they would not fall into temptation. Applying these principles in our lives requires more than a mere belief; it requires adjusting our minds and hearts to these divine principles. Such adjustment requires a daily and constant personal effort, in addition to reliance on the Savior, because our mortal inclinations will not disappear on their own. Fighting against temptation takes a lifetime of diligence and faithfulness. But please know that the Lord is ready to assist us in our personal efforts and promises remarkable blessings if we endure to the end.
-
-During a particularly difficult time when Joseph Smith and his fellow prisoners in Liberty Jail did not have freedom in anything except for their thoughts, the Lord provided helpful counsel and a promise to them that are extended to all of us:
-
-“Let thy bowels also be full of charity towards all men [and women], and to the household of faith, and let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God; …
-
-“The Holy Ghost shall be thy constant companion, and thy scepter an unchanging scepter of righteousness and truth.”
-
-In doing so, holy thoughts will continuously adorn our minds and pure desires will lead us to righteous actions.
-
-Moroni also reminded his people not to be consumed by their lusts. The word lust refers to an intense longing and improper desire for something. It encompasses any dark thoughts or evil desires that cause an individual to focus on selfish practices or worldly possessions rather than doing good, being kind, keeping the commandments of God, and so forth. It is often manifested through the most carnal feelings of the soul. The Apostle Paul identified some of these feelings, such as “uncleanness, lasciviousness, … hatred, … wrath, strife, … envyings, … and such like.” Besides all the evil aspects of lust, we cannot forget that the enemy uses it as a secret and deceptive weapon against us when he tempts us to do something wrong.
-
-My beloved brothers and sisters, I testify that as we rely upon the rock of salvation, the Savior of our souls, and follow Moroni’s counsel, our ability to control our thoughts will increase significantly. I can assure you that our spiritual maturity will grow at an increasing pace, changing our heart, making us more like Jesus Christ. Additionally, the influence of the Holy Ghost will be more intense and continuous in our life. Then the enemy’s temptations, little by little, will lose their power over us, resulting in a happier and more pure and consecrated life.
-
-For those who, for whatever reason, fall into temptation and are dwelling upon unrighteous actions, I assure you that there is a way back, that there is hope in Christ. A few years ago, I had the opportunity to visit with a dear member of The Church of Jesus Christ of Latter-day Saints who went through a very difficult time in his life after committing a major transgression. When I first saw him, I could see a sadness in his eyes, accompanied by a brightness of hope in his countenance. His very expression reflected a humble and changed heart. He had been a dedicated Christian and had been richly blessed by the Lord. However, he had let a single improper thought invade his mind, which then led to others. As he steadily became more and more permissive of these thoughts, soon they took root in his mind and began to grow deep in his heart. He eventually acted upon these unworthy desires, which led him to make decisions against everything that was most precious in his life. He told me that if he had not given place to that foolish thought to begin with, he would not have become vulnerable and susceptible to the temptations of the enemy—temptations that brought so much sadness in his life, at least for a period of time.
-
-Fortunately, like the prodigal son in the famous parable found in the gospel of Luke, “he came to himself” and woke up from that nightmare. He renewed his trust in the Lord and felt true contrition and had the desire to eventually return to the Lord’s fold. That day we both felt the Savior’s redeeming love for us. At the end of our brief visit, we were both overcome with emotion, and to this day, I remember the resplendent joy in his countenance when he left my office.
-
-My dear friends, when we resist the little temptations, which often come unexpectedly in our life, we are better equipped to avoid serious transgressions. As President Spencer W. Kimball said: “Seldom does one enter into deeper transgression without first yielding to lesser ones, which open the door to the greater. … ‘A clean field [does not] suddenly [become] weedy.’”
-
-While preparing to accomplish His divine mission on earth, the Savior Jesus Christ exemplified the importance of constantly resisting everything that might dissuade us from realizing our eternal purpose. After several unsuccessful attacks by the enemy, who attempted to divert Him from His mission, the Savior categorically dismissed the devil by saying: “Get thee hence, Satan. … Then the devil leaveth him, and, behold, angels came and ministered unto him.”
-
-Can you imagine, my brothers and sisters, what would happen if we were to derive strength and courage from the Savior and say, “No” and “Get thee hence” to unvirtuous thoughts that very first moment they come into our minds? What would be the impact on the desires of our hearts? How would our resulting actions keep us close to the Savior and allow the continued influence of the Holy Ghost in our lives? I know that by following Jesus’s example, we will avoid many tragedies and undesirable behaviors that might cause family problems and disagreements, negative emotions and inclinations, perpetrating injustices and abuses, enslavement by evil addictions, and anything else that would be against the Lord’s commandments.
-
-In his historic and touching message from April this year, our dear prophet, President Russell M. Nelson, made a promise that all those who are willing to “hear Him”—hear Jesus Christ—and obey His commandments “will be blessed with additional power to deal with temptation, struggles, and weakness” and that our capacity to feel joy will increase, even during the increasing current turbulence.
-
-I testify to you that the promises given by our dear prophet are the promises given by the Savior Himself. I invite all of us to “hear Him” in every thought and follow Him with all our heart in order to obtain the strength and courage to say, “No” and “Get thee hence” to all the things that might bring unhappiness into our life. If we do so, I promise that the Lord will send an added measure of His Holy Spirit to strengthen and comfort us and we may become individuals after the Lord’s own heart.
-
-I bear my witness that Jesus Christ lives and that through Him, we may triumph over the enemy’s evil influences and qualify to live for eternity with the Lord and in the presence of our beloved Father in Heaven. I testify of these truths with all my love for you and for our beautiful Savior, to whose name I give glory, honor, and praise evermore. I say these things in the sacred name of Jesus Christ, amen.
-
-
----
-
-
-## Embrace the Future with Faith
-
-**Speaker:** By President Russell M. Nelson
-
-**Calling:** President of The Church of Jesus Christ of Latter-day Saints
-
-**Year:** 2020
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/10/37nelson?lang=eng
-
-This has been an unforgettable evening. My dear sisters, I am honored to be with you. You have been on my mind so often during these past few months. You are more than eight million strong. You have not only the numbers but the spiritual power to change the world. I have watched you doing just that during this pandemic.
-
-Some of you suddenly found yourselves searching for scarce supplies or a new job. Many tutored children and checked on neighbors. Some welcomed missionaries home earlier than expected, while others transformed your homes into missionary training centers. You have used technology to connect with family and friends, to minister to those who have felt isolated, and to study Come, Follow Me with others. You have found new ways to make the Sabbath a delight. And you have made protective masks—millions of them!
-
-With heartfelt compassion and love, my heart goes out to the many women around the world whose loved ones have died. We weep with you. And we pray for you. We praise and pray for all who work tirelessly to safeguard the health of others.
-
-You young women have also been remarkable. Though social media has been flooded with contention, many of you have found ways to encourage others and share our Savior’s light.
-
-Sisters, you have all been absolutely heroic! I marvel at your strength and your faith. You have shown that in difficult circumstances, you bravely carry on. I love you, and I assure you that the Lord loves you and sees the great work you are performing. Thank you! Once again, you have proven that you are literally the hope of Israel!
-
-You embody the hopes that President Gordon B. Hinckley had for you when he introduced “The Family: A Proclamation to the World” 25 years ago in the September 1995 general Relief Society meeting. It is significant that he chose to introduce this important proclamation to the sisters of the Church. By doing so, President Hinckley underscored the irreplaceable influence of women in the Lord’s plan.
-
-Now, I would love to know what you have learned this year. Have you grown closer to the Lord, or do you feel further away from Him? And how have current events made you feel about the future?
-
-Admittedly, the Lord has spoken of our day in sobering terms. He warned that in our day “men’s hearts [would fail] them” and that even the very elect would be at risk of being deceived. He told the Prophet Joseph Smith that “peace [would] be taken from the earth” and calamities would befall mankind.
-
-Yet the Lord has also provided a vision of how remarkable this dispensation is. He inspired the Prophet Joseph Smith to declare that “the work of … these last days, is one of vast magnitude. … Its glories are past description, and its grandeur unsurpassable.”
-
-Now, grandeur may not be the word you would choose to describe these past few months! How are we to deal with both the somber prophecies and the glorious pronouncements about our day? The Lord told us how with simple, but stunning, reassurance: “If ye are prepared ye shall not fear.”
-
-What a promise! It is one that can literally change the way we see our future. I recently heard a woman of deep testimony admit that the pandemic, combined with an earthquake in the Salt Lake Valley, had helped her realize she was not as prepared as she thought she was. When I asked whether she was referring to her food storage or her testimony, she smiled and said, “Yes!”
-
-If preparation is our key to embracing this dispensation and our future with faith, how can we best prepare?
-
-For decades, the Lord’s prophets have urged us to store food, water, and financial reserves for a time of need. The current pandemic has reinforced the wisdom of that counsel. I urge you to take steps to be temporally prepared. But I am even more concerned about your spiritual and emotional preparation.
-
-In that regard, we can learn a lot from Captain Moroni. As commander of the Nephite armies, he faced opposing forces that were stronger, greater in number, and meaner. So, Moroni prepared his people in three essential ways.
-
-First, he helped them create areas where they would be safe—“places of security” he called them. Second, he prepared “the minds of the people to be faithful unto the Lord.” And third, he never stopped preparing his people—physically or spiritually. Let us consider these three principles.
-
-Moroni fortified every Nephite city with embankments, forts, and walls. When the Lamanites came against them, they “were astonished exceedingly, because of the wisdom of the Nephites in preparing their places of security.”
-
-Similarly, as turmoil rages around us, we need to create places where we are safe, both physically and spiritually. When your home becomes a personal sanctuary of faith—where the Spirit resides—your home becomes the first line of defense.
-
-Likewise, the stakes of Zion are “a refuge from the storm” because they are led by those who hold priesthood keys and exercise priesthood authority. As you continue to follow the counsel of those whom the Lord has authorized to guide you, you will feel greater safety.
-
-The temple—the house of the Lord—is a place of security unlike any other. There, you sisters are endowed with priesthood power through the sacred priesthood covenants you make. There, your families are sealed for eternity. Even this year, when access to our temples has been seriously limited, your endowment has given you constant access to God’s power as you have honored your covenants with Him.
-
-Simply said, a place of security is anywhere you can feel the presence of the Holy Ghost and be guided by Him. When the Holy Ghost is with you, you can teach truth, even when it runs counter to prevailing opinions. And you can ponder sincere questions about the gospel in an environment of revelation.
-
-I invite you, my dear sisters, to create a home that is a place of security. And I renew my invitation for you to increase your understanding of priesthood power and of temple covenants and blessings. Having places of security to which you can retreat will help you embrace the future with faith.
-
-We have undertaken a major project to extend the life and capacity of the Salt Lake Temple.
-
-Some questioned the need for taking such extraordinary measures. However, when the Salt Lake Valley suffered a 5.7-magnitude earthquake earlier this year, this venerable temple shook hard enough that the trumpet on the statue of the angel Moroni fell!
-
-Just as the physical foundation of the Salt Lake Temple must be strong enough to withstand natural disasters, our spiritual foundations must be solid. Then, when metaphorical earthquakes rock our lives, we can stand “steadfast and immovable” because of our faith.
-
-The Lord taught us how to increase our faith by seeking “learning, even by study and also by faith.” We strengthen our faith in Jesus Christ as we strive to keep His commandments and “always remember him.” Further, our faith increases every time we exercise our faith in Him. That is what learning by faith means.
-
-For example, each time we have the faith to be obedient to God’s laws—even when popular opinions belittle us—or each time we resist entertainment or ideologies that celebrate covenant-breaking, we are exercising our faith, which in turn increases our faith.
-
-Further, few things build faith more than does regular immersion in the Book of Mormon. No other book testifies of Jesus Christ with such power and clarity. Its prophets, as inspired by the Lord, saw our day and selected the doctrine and truths that would help us most. The Book of Mormon is our latter-day survival guide.
-
-Of course, our ultimate security comes as we yoke ourselves to Heavenly Father and Jesus Christ! Life without God is a life filled with fear. Life with God is a life filled with peace. This is because spiritual blessings come to the faithful. Receiving personal revelation is one of the greatest of those blessings.
-
-The Lord has promised that if we will ask, we may receive “revelation upon revelation.” I promise that as you increase your capacity to receive revelation, the Lord will bless you with increased direction for your life and with boundless gifts of the Spirit.
-
-Even when things went well, Captain Moroni continued to prepare his people. He never stopped. He never became complacent.
-
-The adversary never stops attacking. So, we can never stop preparing! The more self-reliant we are—temporally, emotionally, and spiritually—the more prepared we are to thwart Satan’s relentless assaults.
-
-Dear sisters, you are adept at creating places of security for yourselves and those you love. Further, you have a divine endowment that enables you to build faith in others in compelling ways. And you never stop. You have demonstrated that once again this year.
-
-Please, keep going! Your vigilance in safeguarding your homes and instilling faith in the hearts of your loved ones will reap rewards for generations to come.
-
-My dear sisters, we have so much to look forward to! The Lord placed you here now because He knew you had the capacity to negotiate the complexities of the latter part of these latter days. He knew you would grasp the grandeur of His work and be eager to help bring it to pass.
-
-I am not saying that the days ahead will be easy, but I promise you that the future will be glorious for those who are prepared and who continue to prepare to be instruments in the Lord’s hands.
-
-My dear sisters, let us not just endure this current season. Let us embrace the future with faith! Turbulent times are opportunities for us to thrive spiritually. They are times when our influence can be much more penetrating than in calmer times.
-
-I promise that as we create places of security, prepare our minds to be faithful to God, and never stop preparing, God will bless us. He will “deliver us; yea, insomuch that he [will] speak peace to our souls, and [will] grant unto us great faith, and … cause us that we [can] hope for our deliverance in him.”
-
-As you prepare to embrace the future with faith, these promises will be yours! I so testify, with my expression of love for you and my confidence in you, in the sacred name of Jesus Christ, amen.
-
-
----
-
-
-## Do Justly, Love Mercy, and Walk Humbly with God
-
-**Speaker:** By Elder Dale G. Renlund
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/10/55renlund?lang=eng
-
-As followers of Jesus Christ, and as Latter-day Saints, we strive—and are encouraged to strive—to do better and be better. Perhaps you have wondered, as I have, “Am I doing enough?” “What else should I be doing?” or “How can I, as a flawed person, qualify to ‘dwell with God in a state of never-ending happiness’?”
-
-The Old Testament prophet Micah asked the question this way: “Wherewith shall I come before the Lord, and bow myself before the high God?” Micah satirically wondered whether even exorbitant offerings might be enough to compensate for sin, saying: “Will the Lord be pleased with thousands of rams, or with ten [thousand] … rivers of oil? shall I give my firstborn for … the sin of my soul?”
-
-The answer is no. Good deeds are not sufficient. Salvation is not earned. Not even the vast sacrifices Micah knew were impossible can redeem the smallest sin. Left to our own devices, the prospect of returning to live in God’s presence is hopeless.
-
-Without the blessings that come from Heavenly Father and Jesus Christ, we can never do enough or be enough by ourselves. The good news, though, is that because of and through Jesus Christ we can become enough. All people will be saved from physical death by the grace of God, through the death and Resurrection of Jesus Christ. And if we turn our hearts to God, salvation from spiritual death is available to all “through the Atonement of [Jesus] Christ … by obedience to the laws and ordinances of the Gospel.” We can be redeemed from sin to stand clean and pure before God. As Micah explained, “[God] hath shewed thee, O man, what is good; and what doth the Lord require of thee, but to do justly, and to love mercy, and to walk humbly with thy God?”
-
-Micah’s direction on turning our hearts to God and qualifying for salvation contains three interconnected elements. To do justly means acting honorably with God and with other people. We act honorably with God by walking humbly with Him. We act honorably with others by loving mercy. To do justly is therefore a practical application of the first and second great commandments, to “love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind … [and to] love thy neighbour as thyself.”
-
-To do justly and walk humbly with God is to intentionally withdraw our hand from iniquity, walk in His statutes, and remain authentically faithful. A just person turns away from sin and toward God, makes covenants with Him, and keeps those covenants. A just person chooses to obey the commandments of God, repents when falling short, and keeps on trying.
-
-When the resurrected Christ visited the Nephites, He explained that the law of Moses had been replaced by a higher law. He instructed them not to “offer up … sacrifices and … burnt offerings” any longer but to offer “a broken heart and a contrite spirit.” He also promised, “And whoso cometh unto me with a broken heart and a contrite spirit, him will I baptize with fire and with the Holy Ghost.” When we receive and use the gift of the Holy Ghost after baptism, we can enjoy the constant companionship of the Holy Ghost and be taught all things that we should do, including how to walk humbly with God.
-
-Jesus Christ’s sacrifice for sin and salvation from spiritual death are available to all who have such a broken heart and contrite spirit. A broken heart and contrite spirit prompt us to joyfully repent and try to become more like our Heavenly Father and Jesus Christ. As we do so, we receive the Savior’s cleansing, healing, and strengthening power. We not only do justly and walk humbly with God; we also learn to love mercy the way that Heavenly Father and Jesus Christ do.
-
-God delights in mercy and does not begrudge its use. In Micah’s words to Jehovah, “Who is a God like unto thee, that pardoneth iniquity, … will have compassion upon us,” and will “cast all … sins into the depths of the sea.” To love mercy as God does is inseparably connected to dealing justly with others and not mistreating them.
-
-The importance of not mistreating others is highlighted in an anecdote about Hillel the Elder, a Jewish scholar who lived in the first century before Christ. One of Hillel’s students was exasperated by the complexity of the Torah—the five books of Moses with their 613 commandments and associated rabbinic writings. The student challenged Hillel to explain the Torah using only the time that Hillel could stand on one foot. Hillel may not have had great balance but accepted the challenge. He quoted from Leviticus, saying, “Thou shalt not avenge, nor bear any grudge against the children of thy people, but thou shalt love thy neighbour as thyself.” Hillel then concluded: “That which is hateful unto you, do not do to your neighbor. This is the whole of the Torah; the rest is commentary. Go forth and study.”
-
-Always dealing honorably with others is part of loving mercy. Consider a conversation I overheard decades ago in the emergency department of Johns Hopkins Hospital in Baltimore, Maryland, in the United States. A patient, Mr. Jackson, was a courteous, pleasant man who was well known to the hospital staff. He had previously been hospitalized multiple times for the treatment of alcohol-related diseases. On this occasion, Mr. Jackson returned to the hospital for symptoms that would be diagnosed as inflammation of the pancreas caused by alcohol consumption.
-
-Toward the end of his shift, Dr. Cohen, a hardworking and admired physician, evaluated Mr. Jackson and determined that hospitalization was warranted. Dr. Cohen assigned Dr. Jones, the physician next up in rotation, to admit Mr. Jackson and oversee his treatment.
-
-Dr. Jones had attended a prestigious medical school and was just beginning her postgraduate studies. This grueling training was often associated with sleep deprivation, which likely contributed to Dr. Jones’s negative response. Confronted with her fifth admission of the night, she complained loudly to Dr. Cohen. She felt it was unfair that she would have to spend many hours caring for Mr. Jackson, because his predicament was, after all, self-inflicted.
-
-Dr. Cohen’s emphatic response was spoken in almost a whisper. He said, “Dr. Jones, you became a physician to care for people and work to heal them. You didn’t become a physician to judge them. If you don’t understand the difference, you have no right to train at this institution.” Following this correction, Dr. Jones diligently cared for Mr. Jackson during the hospitalization.
-
-Mr. Jackson has since died. Both Dr. Jones and Dr. Cohen have had stellar careers. But at a critical moment in her training, Dr. Jones needed to be reminded to do justly, to love mercy, and to care for Mr. Jackson without being judgmental.
-
-Over the years, I have benefited from that reminder. Loving mercy means that we do not just love the mercy God extends to us; we delight that God extends the same mercy to others. And we follow His example. “All are alike unto God,” and we all need spiritual treatment to be helped and healed. The Lord has said, “Ye shall not esteem one flesh above another, or one man shall not think himself above another.”
-
-Jesus Christ exemplified what it means to do justly and to love mercy. He freely associated with sinners, treating them honorably and with respect. He taught the joy of keeping God’s commandments and sought to lift rather than condemn those who struggled. He did denounce those who faulted Him for ministering to people they deemed unworthy. Such self-righteousness offended Him and still does.
-
-To be Christlike, a person does justly, behaving honorably with both God and other people. A just person is civil in words and action and recognizes that differences in outlook or belief do not preclude genuine kindness and friendship. Individuals who do justly “will not have a mind to injure one another, but to live peaceably” one with another.
-
-To be Christlike, a person loves mercy. People who love mercy are not judgmental; they manifest compassion for others, especially for those who are less fortunate; they are gracious, kind, and honorable. These individuals treat everyone with love and understanding, regardless of characteristics such as race, gender, religious affiliation, sexual orientation, socioeconomic status, and tribal, clan, or national differences. These are superseded by Christlike love.
-
-To be Christlike, a person chooses God, walks humbly with Him, seeks to please Him, and keeps covenants with Him. Individuals who walk humbly with God remember what Heavenly Father and Jesus Christ have done for them.
-
-Am I doing enough? What else should I be doing? The action we take in response to these questions is central to our happiness in this life and in the eternities. The Savior does not want us to take salvation for granted. Even after we have made sacred covenants, there is a possibility that we may “fall from grace and depart from the living God.” So we should “take heed and pray always” to avoid falling “into temptation.”
-
-But at the same time, our Heavenly Father and Jesus Christ do not want us to be paralyzed by continual uncertainty during our mortal journey, wondering whether we have done enough to be saved and exalted. They surely do not want us to be tormented by mistakes from which we have repented, thinking of them as wounds that never heal, or to be excessively apprehensive that we might stumble again.
-
-We can assess our own progress. We can know “that the course of life [that we are] pursuing is according to God’s will” when we do justly, love mercy, and walk humbly with our God. We assimilate the attributes of Heavenly Father and Jesus Christ into our character, and we love one another.
-
-When you do these things, you will follow the covenant path and qualify to “dwell with God in a state of never-ending happiness.” Your souls will be infused with the glory of God and with the light of everlasting life. You will be filled with incomprehensible joy. I testify that God lives and that Jesus is the Christ, our Savior and Redeemer, and He lovingly and joyfully extends His mercy to all. Don’t you love it? In the name of Jesus Christ, amen.
-
-
----
-
-
-## All Nations, Kindreds, and Tongues
-
-**Speaker:** By Elder Gerrit W. Gong
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/10/24gong?lang=eng
-
-Dear brothers and sisters, I recently officiated in a temple sealing, following COVID-19 guidelines. With the bride and groom, both faithful returned missionaries, were their parents and all their siblings. This was not easy. The bride is the ninth of ten children. Her nine siblings sat in order, oldest to youngest, socially distanced of course.
-
-The family had sought to be good neighbors wherever they lived. However, one community had been unwelcoming—because, the bride’s mother said, their family were members of The Church of Jesus Christ of Latter-day Saints.
-
-The family did everything to make friends at school, contribute, and be accepted, but to no avail. The family prayed and prayed hearts would soften.
-
-One night, the family felt their prayers were answered, though in a very unexpected way. Their house caught fire and burned to the ground. But something else happened. The fire softened their neighbors’ hearts.
-
-Their neighbors and local school gathered clothes, shoes, and other necessities needed by the family, who had lost everything. Kindness opened understanding. It was not the way the family hoped or expected their prayers to be answered. However, they express gratitude for what they learned through hard experiences and unexpected answers to heartfelt prayers.
-
-Truly, for those with faithful hearts and eyes to see, the Lord’s tender mercies are manifest amidst life’s challenges. Faithfully met challenges and sacrifice do bring the blessings of heaven. In this mortality, we may lose or wait for some things for a time, but in the end we will find what matters most. That is His promise.
-
-Our 2020 bicentennial proclamation begins with the profoundly inclusive promise that “God loves His children in every nation of the world.” To each of us in every nation, kindred, tongue, and people, God promises, covenants, and invites us to come partake of His abundant joy and goodness.
-
-God’s love for all people is affirmed throughout scripture. That love encompasses the Abrahamic covenant, gathering His scattered children, and His plan of happiness in our lives.
-
-In the household of faith there are to be no strangers, no foreigners, no rich and poor, no outside “others.” As “fellowcitizens with the saints,” we are invited to change the world for the better, from the inside out, one person, one family, one neighborhood at a time.
-
-This happens when we live and share the gospel. Early in this dispensation, the Prophet Joseph received a remarkable prophecy that Heavenly Father desires everyone everywhere to discover God’s love and experience His power to grow and change.
-
-That prophecy was received here, at the Smith family log home in Palmyra, New York.
-
-Completed in 1998, the Smith home is reconstructed on its original foundation. The second-story bedroom occupies the same 18- by 30- by 10-foot (5.5 by 9 by 3m) physical space where Moroni, as a glorious messenger from God, came to the young Joseph on the evening of September 21, 1823.
-
-You remember what the Prophet Joseph recounted:
-
-“[Moroni] said … God had a work for me to do; and that my name should be had for good and evil among all nations, kindreds, and tongues. …
-
-“[Moroni] said there was a book deposited, … that the fulness of the everlasting Gospel was contained in it.”
-
-Here we pause. We worship God the Eternal Father and His Son, Jesus Christ, not the Prophet Joseph nor any mortal man or woman.
-
-Yet consider how the prophecies God gives His servants are fulfilled. Some are fulfilled earlier, some later, but all are fulfilled. As we hearken to the Lord’s spirit of prophecy, we can become, in our own way, part of the fulfillment of His prophecies and promises—part of the gospel blessing the world.
-
-In 1823, Joseph was an unknown 17-year-old boy living in an obscure village in a newly independent country. Unless it were true, how would he imagine to say he would be an instrument in God’s work and translate by God’s gift and power sacred scripture that would become known everywhere?
-
-Yet, because it is true, you and I can witness that prophecy being fulfilled even as we are invited to help bring it to pass.
-
-Brothers and sisters, across the world, each of us participating in this October 2020 general conference is among the nations, kindreds, and tongues spoken of.
-
-Today, members of The Church of Jesus Christ of Latter-day Saints live in 196 nations and territories, with 3,446 Church stakes in 90 of them. We represent both geographic breadth and centers of strength.
-
-In 1823, who would have imagined that in the year 2020 there would be three countries each with more than a million members of this Church—the United States, Mexico, and Brazil?
-
-Or 23 countries each with more than 100,000 members of the Church—three in North America, fourteen in Central and South America, one in Europe, four in Asia, and one in Africa?
-
-President Russell M. Nelson calls the Book of Mormon “a miraculous miracle.” Its witnesses testify, “Be it known unto all nations, kindreds, tongues, and people.” Today, general conference is available in 100 languages. President Nelson has testified of Jesus Christ and His restored gospel in 138 nations and counting.
-
-Beginning with 5,000 printed copies of the 1830 first edition of the Book of Mormon, some 192 million copies of all or part of the Book of Mormon have been published in 112 languages. Book of Mormon translations are also widely available digitally. Current Book of Mormon translations include most of the 23 world languages spoken by 50 million people or more, collectively the native tongues of some 4.1 billion people.
-
-By small and simple means—in which we are each invited to participate—great things are brought to pass.
-
-For example, at a stake conference in Monroe, Utah, population 2,200, I asked how many had served missions. Nearly every hand went up. In recent years, from that one stake, 564 missionaries have served in all 50 U.S. states and 53 countries—on every continent except Antarctica.
-
-Speaking of Antarctica, even in Ushuaia, at the southern tip of Argentina, I saw prophecy being fulfilled as our missionaries shared the restored gospel of Jesus Christ in a place called “the end of the earth.”
-
-The mural formed by the covers of our four volumes of Saints depicts a global tapestry of the fruits of gospel living coming to faithful Saints everywhere. Our Church history is anchored in the lived testimony and gospel journey of each member, including Mary Whitmer, the faithful sister to whom Moroni showed the Book of Mormon plates.
-
-Coming in January 2021, our three new global Church magazines—the Friend, For the Strength of Youth, and the Liahona—invite all to belong and share experiences and testimony in our worldwide community of faith.
-
-Brothers and sisters, as we increase our faith in Heavenly Father and Jesus Christ, receive the blessings found in living restored gospel truths and sacred covenants, and study, ponder, and share about the ongoing Restoration, we participate in fulfilling prophecy.
-
-We are changing ourselves and the world in a gospel pattern that blesses lives everywhere.
-
-An African sister says, “My husband’s priesthood service makes him more patient and kind. And I am becoming a better wife and mother.”
-
-A now-respected international business consultant in Central America says before he discovered God’s restored gospel, he lived aimlessly on the street. Now he and his family have found identity, purpose, and strength.
-
-A young boy in South America raises chickens and sells their eggs to help buy windows for the house his family is building. He pays his tithing first. He will literally see the windows of heaven open.
-
-In Four Corners, a community in the southwestern United States, a Native American family grows a beautiful rose bush to blossom in the desert, symbolic of gospel faith and self-reliance.
-
-A survivor of bitter civil war, a brother in Southeast Asia despaired that life had no meaning. He found hope in a dream in which a former classmate held a sacrament tray and testified of saving ordinances and the Atonement of Jesus Christ.
-
-Heavenly Father invites us everywhere to feel His love, to learn and grow through education, honorable work, self-reliant service, and patterns of goodness and happiness we find in His restored Church.
-
-As we come to trust God, sometimes through pleading in our darkest, loneliest, most uncertain moments, we learn He knows us better and loves us more than we know or love ourselves.
-
-This is why we need God’s help to create lasting justice, equality, fairness, and peace in our homes and communities. Our truest, deepest, most authentic narrative, place, and belonging come when we feel God’s redeeming love, seek grace and miracles through His Son’s Atonement, and establish lasting relationships by sacred covenants.
-
-Religious goodness and wisdom are needed in today’s cluttered, noisy, polluted world. How else can we refresh, inspire, and edify the human spirit?
-
-Planting trees in Haiti is only one among hundreds of examples of people coming together to do good. The local community, including 1,800 members of our Church, which donated the trees, gathered to plant nearly 25,000 trees. This multiyear reforestation project has already planted over 121,000 trees. It anticipates planting tens of thousands more.
-
-This united effort provides shade, conserves soil, abates future floods. It beautifies neighborhoods, builds community, satisfies taste, and nourishes the soul. If you ask Haitians who will harvest the fruit from these trees, they say, “Whoever is hungry.”
-
-Some 80 percent of the world’s population are religiously affiliated. Religious communities readily respond to immediate needs after natural disasters as well as to chronic needs for food, shelter, education, literacy, and employment training. Across the world, our members, friends, and Church help communities support refugees and provide water, sanitation, handicap mobility, and vision care—one person, one village, one tree at a time. Everywhere, we seek to be good parents and good citizens, to contribute in our neighborhoods and societies, including through Latter-day Saint Charities.
-
-God gives us moral agency—and moral accountability. Declares the Lord, “I, the Lord God, make you free, therefore [you] are free indeed.” In proclaiming “liberty to the captives,” the Lord promises His Atonement and gospel path can break temporal and spiritual bonds. Mercifully, this redemptive freedom extends to those who have passed from mortality.
-
-Some years ago, a priest in Central America told me he was studying Latter-day Saint “baptism for deceased persons.” “It does seem just,” the priest said, “that God would offer every person opportunity to receive baptism, no matter when or where they lived, except little children, who ‘are alive in Christ.’ The Apostle Paul,” the priest noted, “speaks of the dead awaiting baptism and resurrection.” Vicarious temple ordinances promise all nations, kindreds, and tongues that no one need “remain a slave of death, of hell, or of the grave.”
-
-As we discover God, sometimes unexpected answers to prayers take us from the street, bring us to community, chase darkness from our souls, and guide us to find spiritual refuge and belonging in the goodness of His covenants and abiding love.
-
-Great things often begin small, but God’s miracles are manifest daily. How grateful we are for the supernal gift of the Holy Ghost, the Atonement of Jesus Christ, and His revealed doctrine, ordinances, and covenants found in His restored Church, called in His name.
-
-May we joyfully accept God’s invitation to receive and help fulfill His promised and prophesied blessings in all nations, kindreds, and tongues, I pray in the sacred and holy name of Jesus Christ, amen.
-
-
----
-
-
-## Waiting on the Lord
-
-**Speaker:** By Elder Jeffrey R. Holland
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/10/57holland?lang=eng
-
-My beloved brothers and sisters, we are all eager—no one more than I—to hear concluding remarks from our beloved prophet, President Russell M. Nelson. This has been a marvelous conference, but it is the second time that COVID-19 has altered our traditional proceedings. We are so tired of this contagion, we feel like tearing our hair out. And apparently, some of my Brethren have already taken that course of action. Please know that we do pray constantly for those who have been affected in any way, especially for any who have lost loved ones. Everyone agrees that this has gone on much, much too long.
-
-How long do we wait for relief from hardships that come upon us? What about enduring personal trials while we wait and wait, and help seems so slow in coming? Why the delay when burdens seem more than we can bear?
-
-While asking such questions, we can, if we try, hear another’s cry echoing from a dank, dark prison cell during one of the coldest winters then on record in that locale.
-
-“O God, where art thou?” we hear from the depths of Liberty Jail. “And where is the pavilion that covereth thy hiding place? How long shall thy hand be stayed?” How long, O Lord, how long?
-
-So, we are not the first nor will we be the last to ask such questions when sorrows bear down on us or an ache in our heart goes on and on. I am not now speaking of pandemics or prisons but of you, your family, and your neighbors who face any number of such challenges. I speak of the yearning of many who would like to be married and aren’t or who are married and wish the relationship were a little more celestial. I speak of those who have to deal with the unwanted appearance of a serious medical condition—perhaps an incurable one—or who face a lifelong battle with a genetic defect that has no remedy. I speak of the continuing struggle with emotional and mental health challenges that weigh heavily on the souls of so many who suffer with them, and on the hearts of those who love and suffer with them. I speak of the poor, whom the Savior told us never to forget, and I speak of you waiting for the return of a child, no matter what the age, who has chosen a path different from the one you prayed he or she would take.
-
-Furthermore, I acknowledge that even this long list of things for which we might wait personally does not attempt to address the large economic, political, and social concerns that confront us collectively. Our Father in Heaven clearly expects us to address these wrenching public issues as well as the personal ones, but there will be times in our lives when even our best spiritual effort and earnest, pleading prayers do not yield the victories for which we have yearned, whether that be regarding the large global matters or the small personal ones. So while we work and wait together for the answers to some of our prayers, I offer you my apostolic promise that they are heard and they are answered, though perhaps not at the time or in the way we wanted. But they are always answered at the time and in the way an omniscient and eternally compassionate parent should answer them. My beloved brothers and sisters, please understand that He who never sleeps nor slumbers cares for the happiness and ultimate exaltation of His children above all else that a divine being has to do. He is pure love, gloriously personified, and Merciful Father is His name.
-
-“Well, if this is the case,” you might say, “shouldn’t His love and mercy simply part our personal Red Seas and allow us to walk through our troubles on dry ground? Shouldn’t He send 21st-century seagulls winging in from somewhere to gobble up all of our pesky 21st-century crickets?”
-
-The answer to such questions is “Yes, God can provide miracles instantaneously, but sooner or later we learn that the times and seasons of our mortal journey are His and His alone to direct.” He administers that calendar to every one of us individually. For every infirm man healed instantly as he waits to enter the Pool of Bethesda, someone else will spend 40 years in the desert waiting to enter the promised land. For every Nephi and Lehi divinely protected by an encircling flame of fire for their faith, we have an Abinadi burned at a stake of flaming fire for his. And we remember that the same Elijah who in an instant called down fire from heaven to bear witness against the priests of Baal is the same Elijah who endured a period when there was no rain for years and who, for a time, was fed only by the skimpy sustenance that could be carried in a raven’s claw. By my estimation, that can’t have been anything we would call a “happy meal.”
-
-The point? The point is that faith means trusting God in good times and bad, even if that includes some suffering until we see His arm revealed in our behalf. That can be difficult in our modern world when many have come to believe that the highest good in life is to avoid all suffering, that no one should ever anguish over anything. But that belief will never lead us to “the measure of the stature of the fulness of Christ.”
-
-With apologies to Elder Neal A. Maxwell for daring to modify and enlarge something he once said, I too suggest that “one’s life … cannot be both faith-filled and stress-free.” It simply will not work “to glide naively through life,” saying as we sip another glass of lemonade, “Lord, give me all thy choicest virtues, but be certain not to give me grief, nor sorrow, nor pain, nor opposition. Please do not let anyone dislike me or betray me, and above all, do not ever let me feel forsaken by Thee or those I love. In fact, Lord, be careful to keep me from all the experiences that made Thee divine. And then, when the rough sledding by everyone else is over, please let me come and dwell with Thee, where I can boast about how similar our strengths and our characters are as I float along on my cloud of comfortable Christianity.”
-
-My beloved brothers and sisters, Christianity is comforting, but it is often not comfortable. The path to holiness and happiness here and hereafter is a long and sometimes rocky one. It takes time and tenacity to walk it. But, of course, the reward for doing so is monumental. This truth is taught clearly and persuasively in the 32nd chapter of Alma in the Book of Mormon. There this great high priest teaches that if the word of God is planted in our hearts as a mere seed, and if we care enough to water, weed, nourish, and encourage it, it will in the future bear fruit “which is most precious, … sweet above all that is sweet,” the consuming of which leads to a condition of no more thirst and no more hunger.
-
-Many lessons are taught in this remarkable chapter, but central to them all is the axiom that the seed has to be nourished and we must wait for it to mature; we “[look] forward with an eye of faith to the fruit thereof.” Our harvest, Alma says, comes “by and by.” Little wonder that he concludes his remarkable instruction by repeating three times a call for diligence and patience in nurturing the word of God in our hearts, “waiting,” as he says, with “long-suffering … for the tree to bring forth fruit unto you.”
-
-COVID and cancer, doubt and dismay, financial trouble and family trials. When will these burdens be lifted? The answer is “by and by.” And whether that be a short period or a long one is not always ours to say, but by the grace of God, the blessings will come to those who hold fast to the gospel of Jesus Christ. That issue was settled in a very private garden and on a very public hill in Jerusalem long ago.
-
-As we now hear our beloved prophet close this conference, may we remember, as Russell Nelson has demonstrated all of his life, that those who “wait upon the Lord shall renew their strength [and] shall mount up with wings as eagles; they shall run, and not be weary; … they shall walk, and not faint.” I pray that “by and by”—soon or late—those blessings will come to every one of you who seeks relief from your sorrow and freedom from your grief. I bear witness of God’s love and of the Restoration of His glorious gospel, which is, in one way or another, the answer to every issue we face in life. In the redeeming name of the Lord Jesus Christ, amen.
-
-
----
-
-
-## Sustainable Societies
-
-**Speaker:** By Elder D. Todd Christofferson
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/10/22christofferson?lang=eng
-
-What a beautiful choir singing of the beautiful Savior.
-
-In 2015 the United Nations adopted what was called “The 2030 Agenda for Sustainable Development.” It was described as “a shared blueprint for peace and prosperity for people and the planet, now and into the future.” The Agenda for Sustainable Development includes 17 goals to be achieved by the year 2030, such as no poverty, zero hunger, quality education, gender equality, clean water and sanitation, and decent work.
-
-The concept of sustainable development is an interesting and important one. Even more urgent, however, is the broader question of sustainable societies. What are the fundamentals that sustain a flourishing society, one that promotes happiness, progress, peace, and well-being among its members? We have scriptural record of at least two such thriving societies. What can we learn from them?
-
-Anciently, the great patriarch and prophet Enoch preached righteousness and “built a city that was called the City of Holiness, even Zion.” It is reported that “the Lord called his people Zion, because they were of one heart and one mind, and dwelt in righteousness; and there was no poor among them.”
-
-“And the Lord blessed the land, and they were blessed upon the mountains, and upon the high places, and did flourish.”
-
-The first- and second-century peoples in the Western Hemisphere known as Nephites and Lamanites provide another outstanding example of a flourishing society. Following the resurrected Savior’s remarkable ministry among them, “they did walk after the commandments which they had received from their Lord and their God, continuing in fasting and prayer, and in meeting together oft both to pray and to hear the word of the Lord. …
-
-“And there were no envyings, nor strifes, nor tumults, nor whoredoms, nor lyings, nor murders, nor any manner of lasciviousness; and surely there could not be a happier people among all the people who had been created by the hand of God.”
-
-The societies in these two examples were sustained by the blessings of heaven growing out of their exemplary devotion to the two great commandments: “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind” and “Thou shalt love thy neighbour as thyself.” They were obedient to God in their personal lives, and they looked after one another’s physical and spiritual welfare. In the words of the Doctrine and Covenants, these were societies with “every man seeking the interest of his neighbor, and doing all things with an eye single to the glory of God.”
-
-Unfortunately, as Elder Quentin L. Cook noted this morning, the ideal society described in 4 Nephi of the Book of Mormon did not endure beyond its second century. Sustainability is not guaranteed, and a thriving society can fail in time if it abandons the cardinal virtues that uphold its peace and prosperity. In this case, yielding to the temptations of the devil, the people “began to be divided into classes; and they began to build up churches unto themselves to get gain, and began to deny the true church of Christ.”
-
-“And it came to pass that when three hundred years had passed away, both the people of Nephi and the Lamanites had become exceedingly wicked one like unto another.”
-
-By the end of another century, millions had died in internecine warfare, and their once harmonious nation had been reduced to warring tribes.
-
-Reflecting on this and other examples of once flourishing societies that later foundered, I think it safe to say that when people turn from a sense of accountability to God and begin to trust instead in the “arm of flesh,” disaster lurks. Trusting in the arm of flesh is to ignore the divine Author of human rights and human dignity and to give highest priority to riches, power, and the praise of the world (while often mocking and persecuting those who follow a different standard). Meanwhile, those in sustainable societies are seeking, as King Benjamin said, to “grow in the knowledge of the glory of him that created [them], or in the knowledge of that which is just and true.”
-
-The institutions of family and religion have been crucial for endowing both individuals and communities with the virtues that sustain an enduring society. These virtues, rooted in scripture, include integrity, responsibility and accountability, compassion, marriage and fidelity in marriage, respect for others and the property of others, service, and the necessity and dignity of work, among others.
-
-Editor-at-large Gerard Baker wrote a column earlier this year in the Wall Street Journal honoring his father, Frederick Baker, on the occasion of his father’s 100th birthday. Baker speculated about the reasons for his father’s longevity but then added these thoughts:
-
-“While we may all want to know the secret to a long life, I often feel we’d be better off devoting more time to figuring out what makes a good life, whatever span we’re allotted. Here, I’m confident I know my father’s secret.
-
-“He is from an era when life was defined primarily by duty, not by entitlement; by social responsibilities, not personal privileges. The primary animating principle throughout his century has been a sense of obligation—to family, God, country.
-
-“In an era dominated by the detritus of broken families, my father was a devoted husband to his wife of 46 years, a dutiful father to six children. He was never more present and vital than when my parents suffered the unthinkable tragedy of losing a child. …
-
-“And in an era when religion is increasingly a curiosity, my father has lived as a true, faithful Catholic, with an unshakable belief in the promises of Christ. Indeed, I sometimes think he has lived so long because he is better prepared than anyone I have ever met to die.
-
-“I have been a fortunate man—blessed by a good education, my own wonderful family, some worldly success I didn’t deserve. But however proud and grateful I feel, it’s eclipsed by the pride and gratitude I have for the man who, without fuss or drama, without expectation of reward or even acknowledgment, has got on—for a century now—with the simple duties, obligations and, ultimately, joys of living a virtuous life.”
-
-The perceived importance of religion and religious faith has declined in many nations in recent years. A growing number of people consider that belief in and allegiance to God are not needed for moral uprightness in either individuals or societies in today’s world. I think we would all agree that those who profess no religious belief can be, and often are, good, moral people. We would not agree, however, that this happens without divine influence. I am referring to the Light of Christ. The Savior declared, “I am the true light that lighteth every man that cometh into the world.” Whether aware of it or not, every man, woman, and child of every belief, place, and time is imbued with the Light of Christ and therefore possesses the sense of right and wrong we often call conscience.
-
-Nevertheless, when secularization separates personal and civic virtue from a sense of accountability to God, it cuts the plant from its roots. Reliance on culture and tradition alone will not be sufficient to sustain virtue in society. When one has no higher god than himself and seeks no greater good than satisfying his own appetites and preferences, the effects will be manifest in due course.
-
-A society, for example, in which individual consent is the only constraint on sexual activity is a society in decay. Adultery, promiscuity, out-of-wedlock births, and elective abortions are but some of the bitter fruits that grow out of the ongoing sexual revolution. Follow-on consequences that work against sustainability of a healthy society include growing numbers of children raised in poverty and without the positive influence of fathers, sometimes through multiple generations; women bearing alone what should be shared responsibilities; and seriously deficient education as schools, like other institutions, are tasked to compensate for failure in the home. Added to these social pathologies are the incalculable instances of individual heartbreak and despair—mental and emotional destruction visited upon both the guilty and the innocent.
-
-Nephi proclaims:
-
-“Wo be unto him that hearkeneth unto the precepts of men, and denieth the power of God, and the gift of the Holy Ghost! …
-
-“… Wo unto all those who tremble, and are angry because of the truth of God!”
-
-In contrast, our joyous message to our children and to all humanity is that “the truth of God” points a better way, or as Paul said, “a more excellent way,” a way to personal happiness and community well-being now and to everlasting peace and joy hereafter.
-
-The truth of God refers to the core truths that underlie His plan of happiness for His children. These truths are that God lives; that He is the Heavenly Father of our spirits; that as a manifestation of His love, He has given us commandments that lead to a fulness of joy with Him; that Jesus Christ is the Son of God and our Redeemer; that He suffered and died to atone for sins on condition of our repentance; that He rose from the dead, bringing to pass the Resurrection of all humankind; and that we will all stand before Him to be judged, that is, to account for our lives.
-
-Nine years into what was called “the reign of the judges” in the Book of Mormon, the prophet Alma resigned his position as chief judge to give full time to his leadership of the Church. His purpose was to address the pride, persecution, and greed that were growing among the people and particularly among members of the Church. As Elder Stephen D. Nadauld once observed, “[Alma’s] inspired decision was not to spend more time trying to make and enforce more rules to correct the behavior of his people, but to speak to them of the word of God, to teach the doctrine and have their understanding of the plan of redemption lead them to change their behavior.”
-
-There is much we can do as neighbors and fellow citizens to contribute to the sustainability and success of the societies we live in, and surely our most fundamental and enduring service will be to teach and live by the truths inherent in God’s great plan of redemption. As expressed in the words of the hymn:
-
-Faith of our fathers, we will love
-
-Both friend and foe in all our strife,
-
-And preach thee, too, as love knows how,
-
-By kindly words and virtuous life.
-
-If enough of us and enough of our neighbors strive to make our decisions and guide our lives by the truth of God, the moral virtues needed in every society will abound.
-
-In His love, our Heavenly Father gave His Only Begotten Son, Jesus Christ, that we might have everlasting life.
-
-“[Jesus Christ] doeth not anything save it be for the benefit of the world; for he loveth the world, even that he layeth down his own life that he may draw all men unto him. Wherefore, he commandeth none that they shall not partake of his salvation.
-
-“Behold, doth he cry unto any, saying: Depart from me? Behold, I say unto you, Nay; but he saith: Come unto me all ye ends of the earth, buy milk and honey, without money and without price.”
-
-This we declare “in solemnity of heart, in the spirit of meekness,” and in the name of Jesus Christ, amen.
-
-
----
-
-
-## God Will Do Something Unimaginable
-
-**Speaker:** By Elder Dieter F. Uchtdorf
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/10/28uchtdorf?lang=eng
-
-Not long after arriving in the Salt Lake Valley, the Latter-day Saints began building their holy temple. They felt they had finally found a place where they could worship God in peace and be free from persecution.
-
-However, just as the temple foundation was nearing completion, an army of United States soldiers approached to forcibly install a new governor.
-
-Because Church leaders did not know how hostile the army would be, Brigham Young ordered the Saints to evacuate and bury the temple foundation.
-
-I’m sure some members of the Church wondered why their efforts to build God’s kingdom were constantly being frustrated.
-
-Eventually, the danger passed, and the temple foundations were excavated and inspected. It was then that the pioneer builders discovered that some of the original sandstones had cracked, making them unsuitable as a foundation.
-
-Consequently, Brigham had them repair the foundation so that it could adequately support the granite walls of the majestic Salt Lake Temple. Finally, the Saints could sing the hymn “How Firm a Foundation” and know their holy temple was built on a solid foundation that would last for generations.
-
-This story can teach us how God uses adversity to bring about His purposes.
-
-If this sounds familiar given the circumstances in which we find ourselves today, it’s because it is.
-
-I doubt there is a person who hears my voice or reads my words who has not been affected by the worldwide pandemic.
-
-To those who mourn the loss of family and friends, we mourn with you. We plead with Heavenly Father to comfort and console you.
-
-The long-term consequences of this virus go beyond physical health. Many families have lost incomes and are threatened with hunger, uncertainty, and apprehension. We admire the selfless efforts of so many to prevent the spread of this disease. We are humbled by the quiet sacrifice and noble efforts of those who have risked their own safety to assist, heal, and support people in need. Our hearts are full of gratitude for your goodness and compassion.
-
-We pray mightily that God will open the windows of heaven and fill your lives with God’s eternal blessings.
-
-There are still a lot of unknowns about this virus. But if there is one thing I do know, it is that this virus did not catch Heavenly Father by surprise. He did not have to muster additional battalions of angels, call emergency meetings, or divert resources from the world-creation division to handle an unexpected need.
-
-My message today is that even though this pandemic is not what we wanted or expected, God has prepared His children and His Church for this time.
-
-We will endure this, yes. But we will do more than simply grit our teeth, hold on, and wait for things to return to the old normal. We will move forward, and we will be better as a result.
-
-In a way, we are seeds. And for seeds to reach their potential, they must be buried before they can sprout. It is my witness that though at times we may feel buried by the trials of life or surrounded by emotional darkness, the love of God and the blessings of the restored gospel of Jesus Christ will bring something unimaginable to spring forth.
-
-Every dispensation has faced its times of trial and hardship.
-
-Enoch and his people lived in a time of wickedness, wars, and bloodshed. “But the Lord came and dwelt with his people.” He had something unimaginable in mind for them. He helped them establish Zion—a people “of one heart and one mind” who “dwelt in righteousness.”
-
-Young Joseph, the son of Jacob, was thrown into a pit, sold into slavery, betrayed, and abandoned. Joseph must have wondered if God had forgotten him. God had something unimaginable in mind for Joseph. He used this period of trial to strengthen Joseph’s character and put him in a position to save his family.
-
-Think of Joseph Smith the Prophet while imprisoned in Liberty Jail, how he pled for relief for the suffering Saints. He must have wondered how Zion could be established in those circumstances. But the Lord spoke peace to him, and the glorious revelation that followed brought peace to the Saints—and it continues to bring peace to you and me.
-
-How many times in the early years of The Church of Jesus Christ of Latter-day Saints did the Saints despair and wonder if God had forgotten them? But through persecutions, perils, and threats of extermination, the Lord God of Israel had something else in mind for His little flock. Something unimaginable.
-
-What do we learn from these examples—and the hundreds of others in the scriptures?
-
-First, the righteous are not given a free pass that allows them to avoid the valleys of shadow. We all must walk through difficult times, for it is in these times of adversity that we learn principles that fortify our characters and cause us to draw closer to God.
-
-Second, our Heavenly Father knows that we suffer, and because we are His children, He will not abandon us.
-
-Think of the compassionate one, the Savior, who spent so much of His life ministering to the sick, the lonely, the doubting, the despairing. Do you think He is any less concerned about you today?
-
-My dear friends, my beloved brothers and sisters, God will watch over and shepherd you during these times of uncertainty and fear. He knows you. He hears your pleas. He is faithful and dependable. He will fulfill His promises.
-
-God has something unimaginable in mind for you personally and the Church collectively—a marvelous work and a wonder.
-
-Our best days are ahead of us, not behind us. This is why God gives us modern revelation! Without it, life might feel like flying in a holding pattern, waiting for the fog to lift so we can land safely. The Lord’s purposes for us are much higher than that. Because this is the Church of the living Christ, and because He directs His prophets, we are moving forward and upward to places we’ve never been, to heights we can hardly imagine!
-
-Now, this does not mean we won’t experience turbulence in our flight through mortality. It doesn’t mean there won’t be unexpected instrument failures, mechanical malfunctions, or serious weather challenges. In fact, things might get worse before they get better.
-
-As a fighter pilot and airline captain, I learned that while I could not choose the adversity I would encounter during a flight, I could choose how I prepared and how I reacted. What is needed during times of crisis is calm and clear-headed trust.
-
-How do we do this?
-
-We face the facts and return to the fundamentals, to the basic gospel principles, to what matters most. You strengthen your private religious behavior—like prayer and scripture study and keeping God’s commandments. You make the decisions based on best proven practices.
-
-Focus on the things you can do and not on the things you cannot do.
-
-You muster your faith. And you listen for the guiding word of the Lord and His prophet to lead you to safety.
-
-Remember, this is the Church of Jesus Christ—He is at the helm.
-
-Think of the many inspired advancements that happened in the past decade alone. To mention just a few:
-
-The sacrament was reemphasized as center of our Sabbath worship.
-
-Come, Follow Me was provided as a home-centered, Church-supported tool to strengthen individuals and families.
-
-We began a higher and holier way of ministering to all.
-
-The use of technology in sharing the gospel and doing the Lord’s work has spread throughout the Church.
-
-Even these general conference sessions would not be possible without the wonderful tools of technology.
-
-Brothers and sisters, with Christ at the helm, things will not only be all right; they will be unimaginable.
-
-At first it may have seemed that a worldwide pandemic would be a roadblock to the Lord’s work. For example, traditional methods of sharing the gospel have not been possible. However, the pandemic is revealing new and more creative ways of reaching out to the honest in heart. The work of gathering Israel is increasing in power and enthusiasm. Hundreds and thousands of stories attest to this.
-
-A good friend living in beautiful Norway wrote to Harriet and me about a recent increase in baptisms. “In locations where the Church is small,” she wrote, “twigs will become branches, and branches will become wards!!”
-
-In Latvia, a woman who had discovered the Church by clicking on an internet ad was so excited to learn about the gospel of Jesus Christ that she showed up to her appointment an hour early, and before the missionaries ended the first lesson, she asked for a date to be baptized.
-
-In Eastern Europe, one woman who received a call from the missionaries exclaimed, “Sisters, why haven’t you called earlier? I’ve been waiting!”
-
-Many of our missionaries are busier than ever. Many are teaching more people than ever. There is an increased connection between members and missionaries.
-
-In the past, we might have been so tied to traditional approaches that it took a pandemic to open our eyes. Perhaps we were still building with sandstone when granite was already available. Of necessity, we are now learning how to use a variety of methods, including technology, to invite people—in normal and natural ways—to come and see, come and help, and come and belong.
-
-This is the Lord’s work. He invites us to find His ways of doing it, and they may differ from our past experiences.
-
-This happened to Simon Peter and other disciples who went fishing on the Sea of Tiberias.
-
-“That night they caught nothing.
-
-“But when the morning [came], Jesus stood on the shore. …
-
-“And he said unto them, Cast the net on the [other] side of the ship, and ye shall find.”
-
-They did cast their nets on the other side and “were not able to draw it for the multitude of fishes.”
-
-God has revealed and will continue to reveal His almighty hand. The day will come when we will look back and know that during this time of adversity, God was helping us to find better ways—His ways—to build His kingdom on a firm foundation.
-
-I bear my witness that this is God’s work and He will continue to do many unimaginable things among His children, His people. God holds us in the palm of His caring and compassionate hands.
-
-I testify that President Russell M. Nelson is God’s prophet for our day.
-
-As an Apostle of the Lord, I invite and bless you to “cheerfully do all things that lie in [your] power; and then may [you] stand still, with the utmost assurance, to see the salvation of God, and for his arm to be revealed.” And I promise that the Lord will cause unimaginable things to come from your righteous labors. In the name of Jesus Christ, amen.
-
-
----
-
-
-## Let God Prevail
-
-**Speaker:** By President Russell M. Nelson
-
-**Calling:** President of The Church of Jesus Christ of Latter-day Saints
-
-**Year:** 2020
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/10/46nelson?lang=eng
-
-My dear brothers and sisters, how grateful I am for the marvelous messages of this conference and for my privilege to speak with you now.
-
-For the more than 36 years I’ve been an Apostle, the doctrine of the gathering of Israel has captured my attention. Everything about it has intrigued me, including the ministries and names of Abraham, Isaac, and Jacob; their lives and their wives; the covenant God made with them and extended through their lineage; the dispersion of the twelve tribes; and the numerous prophecies about the gathering in our day.
-
-I have studied the gathering, prayed about it, feasted upon every related scripture, and asked the Lord to increase my understanding.
-
-So imagine my delight when I was led recently to a new insight. With the help of two Hebrew scholars, I learned that one of the Hebraic meanings of the word Israel is “let God prevail.” Thus the very name of Israel refers to a person who is willing to let God prevail in his or her life. That concept stirs my soul!
-
-The word willing is crucial to this interpretation of Israel. We all have our agency. We can choose to be of Israel, or not. We can choose to let God prevail in our lives, or not. We can choose to let God be the most powerful influence in our lives, or not.
-
-For a moment, let us recall a crucial turning point in the life of Jacob, the grandson of Abraham. At the place Jacob named Peniel (which means “the face of God”), Jacob wrestled with a serious challenge. His agency was tested. Through this wrestle, Jacob proved what was most important to him. He demonstrated that he was willing to let God prevail in his life. In response, God changed Jacob’s name to Israel, meaning “let God prevail.” God then promised Israel that all the blessings that had been pronounced upon Abraham’s head would also be his.
-
-Sadly, Israel’s posterity broke their covenants with God. They stoned the prophets and were not willing to let God prevail in their lives. Subsequently, God scattered them to the four corners of the earth. Mercifully, He later promised to gather them, as reported by Isaiah: “For a small moment have I forsaken thee [Israel]; but with great mercies will I gather thee.”
-
-With the Hebraic definition of Israel in mind, we find that the gathering of Israel takes on added meaning. The Lord is gathering those who are willing to let God prevail in their lives. The Lord is gathering those who will choose to let God be the most important influence in their lives.
-
-For centuries, prophets have foretold this gathering, and it is happening right now! As an essential prelude to the Second Coming of the Lord, it is the most important work in the world!
-
-This premillennial gathering is an individual saga of expanding faith and spiritual courage for millions of people. And as members of The Church of Jesus Christ of Latter-day Saints, or “latter-day covenant Israel,” we have been charged to assist the Lord with this pivotal work.
-
-When we speak of gathering Israel on both sides of the veil, we are referring, of course, to missionary, temple, and family history work. We are also referring to building faith and testimony in the hearts of those with whom we live, work, and serve. Anytime we do anything that helps anyone—on either side of the veil—to make and keep their covenants with God, we are helping to gather Israel.
-
-Not long ago, the wife of one of our grandsons was struggling spiritually. I will call her “Jill.” Despite fasting, prayer, and priesthood blessings, Jill’s father was dying. She was gripped with fear that she would lose both her dad and her testimony.
-
-Late one evening, my wife, Sister Wendy Nelson, told me of Jill’s situation. The next morning Wendy felt impressed to share with Jill that my response to her spiritual wrestle was one word! The word was myopic.
-
-Jill later admitted to Wendy that initially she was devastated by my response. She said, “I was hoping for Grandfather to promise me a miracle for my dad. I kept wondering why the word myopic was the one he felt compelled to say.”
-
-After Jill’s father passed on, the word myopic kept coming to her mind. She opened her heart to understand even more deeply that myopic meant “nearsighted.” And her thinking began to shift. Jill then said, “Myopic caused me to stop, think, and heal. That word now fills me with peace. It reminds me to expand my perspective and seek the eternal. It reminds me that there is a divine plan and that my dad still lives and loves and looks out for me. Myopic has led me to God.”
-
-I am very proud of our precious granddaughter-in-law. During this heart-wrenching time in her life, dear Jill is learning to embrace God’s will for her dad, with an eternal perspective for her own life. By choosing to let God prevail, she is finding peace.
-
-If we will allow it, there are many ways this Hebraic interpretation of Israel can help us. Imagine how our prayers for our missionaries—and for our own efforts to gather Israel—could change with this concept in mind. We often pray that we and the missionaries will be led to those who are prepared to receive the truths of the restored gospel of Jesus Christ. I wonder, to whom will we be led when we plead to find those who are willing to let God prevail in their lives?
-
-We may be led to some who have never believed in God or Jesus Christ but who are now yearning to learn about Them and Their plan of happiness. Others may have been “born in the covenant” but have since wandered away from the covenant path. They may now be ready to repent, return, and let God prevail. We can assist them by welcoming them with open arms and hearts. And some to whom we may be led may have always felt there was something missing in their lives. They too are longing for the wholeness and joy that come to those who are willing to let God prevail in their lives.
-
-The gospel net to gather scattered Israel is expansive. There is room for each person who will fully embrace the gospel of Jesus Christ. Each convert becomes one of God’s covenant children, whether by birth or by adoption. Each becomes a full heir to all that God has promised the faithful children of Israel!
-
-Each of us has a divine potential because each is a child of God. Each is equal in His eyes. The implications of this truth are profound. Brothers and sisters, please listen carefully to what I am about to say. God does not love one race more than another. His doctrine on this matter is clear. He invites all to come unto Him, “black and white, bond and free, male and female.”
-
-I assure you that your standing before God is not determined by the color of your skin. Favor or disfavor with God is dependent upon your devotion to God and His commandments and not the color of your skin.
-
-I grieve that our Black brothers and sisters the world over are enduring the pains of racism and prejudice. Today I call upon our members everywhere to lead out in abandoning attitudes and actions of prejudice. I plead with you to promote respect for all of God’s children.
-
-The question for each of us, regardless of race, is the same. Are you willing to let God prevail in your life? Are you willing to let God be the most important influence in your life? Will you allow His words, His commandments, and His covenants to influence what you do each day? Will you allow His voice to take priority over any other? Are you willing to let whatever He needs you to do take precedence over every other ambition? Are you willing to have your will swallowed up in His?
-
-Consider how such willingness could bless you. If you are unmarried and seeking an eternal companion, your desire to be “of Israel” will help you decide whom to date and how.
-
-If you are married to a companion who has broken his or her covenants, your willingness to let God prevail in your life will allow your covenants with God to remain intact. The Savior will heal your broken heart. The heavens will open as you seek to know how to move forward. You do not need to wander or wonder.
-
-If you have sincere questions about the gospel or the Church, as you choose to let God prevail, you will be led to find and understand the absolute, eternal truths that will guide your life and help you stay firmly on the covenant path.
-
-When you are faced with temptation—even if the temptation comes when you are exhausted or feeling alone or misunderstood—imagine the courage you can muster as you choose to let God prevail in your life and as you plead with Him to strengthen you.
-
-When your greatest desire is to let God prevail, to be part of Israel, so many decisions become easier. So many issues become nonissues! You know how best to groom yourself. You know what to watch and read, where to spend your time, and with whom to associate. You know what you want to accomplish. You know the kind of person you really want to become.
-
-Now, my dear brothers and sisters, it takes both faith and courage to let God prevail. It takes persistent, rigorous spiritual work to repent and to put off the natural man through the Atonement of Jesus Christ. It takes consistent, daily effort to develop personal habits to study the gospel, to learn more about Heavenly Father and Jesus Christ, and to seek and respond to personal revelation.
-
-During these perilous times of which the Apostle Paul prophesied, Satan is no longer even trying to hide his attacks on God’s plan. Emboldened evil abounds. Therefore, the only way to survive spiritually is to be determined to let God prevail in our lives, to learn to hear His voice, and to use our energy to help gather Israel.
-
-Now, how does the Lord feel about people who will let God prevail? Nephi summed it up well: “[The Lord] loveth those who will have him to be their God. Behold, he loved our fathers, and he covenanted with them, yea, even Abraham, Isaac, and Jacob; and he remember[s] the covenants which he [has] made.”
-
-And what is the Lord willing to do for Israel? The Lord has pledged that He will “fight [our] battles, and [our] children’s battles, and our children’s children’s [battles] … to the third and fourth generation”!
-
-As you study your scriptures during the next six months, I encourage you to make a list of all that the Lord has promised He will do for covenant Israel. I think you will be astounded! Ponder these promises. Talk about them with your family and friends. Then live and watch for these promises to be fulfilled in your own life.
-
-My dear brothers and sisters, as you choose to let God prevail in your lives, you will experience for yourselves that our God is “a God of miracles.” As a people, we are His covenant children, and we will be called by His name. Of this I testify in the sacred name of Jesus Christ, amen.
-
-
----
-
-
-## Be of Good Cheer
-
-**Speaker:** By President Dallin H. Oaks
-
-**Calling:** First Counselor in the First Presidency
-
-**Year:** 2020
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/10/36oaks?lang=eng
-
-In the final days of His mortal life, Jesus Christ told His Apostles of the persecutions and hardships they would suffer. He concluded with this great assurance: “In the world ye shall have tribulation: but be of good cheer; I have overcome the world” (John 16:33). That is the Savior’s message to all of our Heavenly Father’s children. That is the ultimate good news for each of us in our mortal lives.
-
-“Be of good cheer” was also a needed assurance in the world into which the resurrected Christ sent His Apostles. “We are troubled on every side,” the Apostle Paul later told the Corinthians, “yet not distressed; we are perplexed, but not in despair; persecuted, but not forsaken; cast down, but not destroyed” (2 Corinthians 4:8–9).
-
-Two thousand years later we are also “troubled on every side,” and we also need that same message not to despair but to be of good cheer. The Lord has special love and concern for His precious daughters. He knows of your wants, your needs, and your fears. The Lord is all powerful. Trust Him.
-
-The Prophet Joseph Smith was taught that “the works, and the designs, and the purposes of God cannot be frustrated, neither can they come to naught” (Doctrine and Covenants 3:1). To His struggling children, the Lord gave these great assurances:
-
-“Behold, this is the promise of the Lord unto you, O ye my servants.
-
-“Wherefore, be of good cheer, and do not fear, for I the Lord am with you, and will stand by you; and ye shall bear record of me, even Jesus Christ, that I am the Son of the living God” (Doctrine and Covenants 68:5–6).
-
-The Lord stands near us, and He has said:
-
-“What I say unto one I say unto all, be of good cheer, little children; for I am in your midst, and I have not forsaken you” (Doctrine and Covenants 61:36).
-
-“For after much tribulation come the blessings” (Doctrine and Covenants 58:4).
-
-Sisters, I testify that these promises, given in the midst of persecutions and personal tragedies, apply to each of you in your troubling circumstances today. They are precious and remind each of us to be of good cheer and to have joy in the fulness of the gospel as we press forward through the challenges of mortality.
-
-Tribulation and challenges are the common experiences of mortality. Opposition is an essential part of the divine plan for helping us grow, and in the midst of that process, we have God’s assurance that, in the long view of eternity, opposition will not be allowed to overcome us. With His help and our faithfulness and endurance, we will prevail. Like the mortal life of which they are a part, all tribulations are temporary. In the controversies that preceded a disastrous war, United States president Abraham Lincoln wisely reminded his audience of the ancient wisdom that “this, too, shall pass away.”
-
-As you know, the mortal adversities of which I speak—which make it difficult to be of good cheer—sometimes come to us in common with many others, like the millions now struggling through some of the many devastating effects of the COVID-19 pandemic. Similarly, in the United States millions are suffering through a season of enmity and contention that always seems to accompany presidential elections but this time is the most severe many of the oldest of us can ever remember.
-
-On a personal basis, each of us struggles individually with some of the many adversities of mortality, such as poverty, racism, ill health, job losses or disappointments, wayward children, bad marriages or no marriages, and the effects of sin—our own or others’.
-
-Yet, in the midst of all of this, we have that heavenly counsel to be of good cheer and to find joy in the principles and promises of the gospel and the fruits of our labors. That counsel has always been so, for prophets and for all of us. We know this from the experiences of our predecessors and what the Lord said to them.
-
-Remember the circumstances of the Prophet Joseph Smith. Looked at through the lens of adversities, his life was one of poverty, persecution, frustration, family sorrows, and ultimate martyrdom. As he suffered imprisonment, his wife and children and the other Saints suffered incredible hardships as they were driven out of Missouri.
-
-When Joseph pleaded for relief, the Lord answered:
-
-“My son, peace be unto thy soul; thine adversity and thine afflictions shall be but a small moment;
-
-“And then, if thou endure it well, God shall exalt thee on high; thou shalt triumph over all thy foes” (Doctrine and Covenants 121:7–8).
-
-This was the personal, eternal counsel that helped the Prophet Joseph to maintain his native cheery temperament and the love and loyalty of his people. These same qualities strengthened the leaders and pioneers who followed and can strengthen you as well.
-
-Think of those early members! Again and again, they were driven from place to place. Finally they faced the challenges of establishing their homes and the Church in a wilderness. Two years after the initial band of pioneers arrived in the valley of the Great Salt Lake, the pioneers’ grip on survival in that hostile area was still precarious. Most members were still on the trail across the plains or struggling to get resources to do so. Yet leaders and members were still of hope and good cheer.
-
-Even though the Saints were not settled in their new homes, at October 1849 general conference a new wave of missionaries was sent out to Scandinavia, France, Germany, Italy, and the South Pacific. At what could have been thought their lowest level, the pioneers rose to new heights. And just three years later, another 98 were also called to begin to gather scattered Israel. One of the Church leaders explained that these missions “are generally, not to be very long ones; probably from 3 to 7 years will be as long as any man will be absent from his family.”
-
-Sisters, the First Presidency is concerned about your challenges. We love you and pray for you. At the same time, we often give thanks that our physical challenges—apart from earthquakes, fires, floods, and hurricanes—are usually less than our predecessors faced.
-
-In the midst of hardships, the divine assurance is always “be of good cheer, for I will lead you along. The kingdom is yours and the blessings thereof are yours, and the riches of eternity are yours” (Doctrine and Covenants 78:18). How does this happen? How did it happen for the pioneers? How will it happen to women of God today? By our following prophetic guidance, “the gates of hell shall not prevail against [us],” the Lord said by revelation in April 1830. “Yea,” He said, “… the Lord God will disperse the powers of darkness from before you, and cause the heavens to shake for your good, and his name’s glory” (Doctrine and Covenants 21:6). “Fear not, little flock; do good; let earth and hell combine against you, for if ye are built upon my rock, they cannot prevail” (Doctrine and Covenants 6:34).
-
-With the Lord’s promises, we “lift up [our] heart[s] and rejoice” (Doctrine and Covenants 25:13), and “with a glad heart and a cheerful countenance” (Doctrine and Covenants 59:15), we go forward on the covenant path. Most of us do not face decisions of giant proportions, like leaving our homes to pioneer an unknown land. Our decisions are mostly in the daily routines of life, but as the Lord has told us, “Be not weary in well-doing, for ye are laying the foundation of a great work. And out of small things proceedeth that which is great” (Doctrine and Covenants 64:33).
-
-There is boundless power in the doctrine of the restored gospel of Jesus Christ. Our unshakable faith in that doctrine guides our steps and gives us joy. It enlightens our minds and gives strength and confidence to our actions. This guidance and enlightenment and power are promised gifts we have received from our Heavenly Father. By understanding and conforming our lives to that doctrine, including the divine gift of repentance, we can be of good cheer as we keep ourselves on the path toward our eternal destiny—reunion and exaltation with our loving heavenly parents.
-
-“You may be facing overwhelming challenges,” Elder Richard G. Scott taught. “Sometimes they are so concentrated, so unrelenting, that you may feel they are beyond your capacity to control. Don’t face the world alone. ‘Trust in the Lord with all thine heart; and lean not unto thine own understanding’ [Proverbs 3:5]. … It was intended that life be a challenge, not so that you would fail, but that you might succeed through overcoming.”
-
-It is all part of the plan of God the Father and His Son, Jesus Christ, of which I testify, as I pray that we will all persist to our heavenly destination, in the name of Jesus Christ, amen.
-
-
----
-
-
-## He Goes before Us
-
-**Speaker:** By President Henry B. Eyring
-
-**Calling:** Second Counselor in the First Presidency
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/35eyring?lang=eng
-
-My beloved brothers and sisters, I am grateful to be with you in this general conference of The Church of Jesus Christ of Latter-day Saints. In his invitation to reflect on the way the Lord’s Restoration of His Church in this last dispensation has blessed us and our loved ones, President Russell M. Nelson promised that our experience would be not only memorable but unforgettable.
-
-My experience has been memorable, as I am sure yours has been. Whether it will be unforgettable depends on each one of us. That matters to me because the experience of preparing for this conference has changed me in a way that I want to last. Let me explain.
-
-My preparation took me to the record of an event in the Restoration. I had read about that event many times, but it had always been to me a report of an important meeting that involved Joseph Smith, the prophet of the Restoration. But this time I saw in the account how the Lord leads us, His disciples, in His Church. I saw what it means for us mortals to be led by the Savior of the world, the Creator—who knows all things, past, present, and future. He teaches us step by step and guides us, never forcing.
-
-The meeting I’m describing was a pivotal moment in the Restoration. It was a Sabbath-day meeting held on April 3, 1836, in the Kirtland Temple in Ohio, seven days after it was dedicated. Joseph Smith described this great moment in the history of the world in a simple way. Much of his account is recorded in Doctrine and Covenants section 110:
-
-“In the afternoon, I assisted the other Presidents in distributing the Lord’s Supper to the Church, receiving it from the Twelve, whose privilege it was to officiate at the sacred desk this day. After having performed this service to my brethren, I retired to the pulpit, the veils being dropped, and bowed myself, with Oliver Cowdery, in solemn and silent prayer. After rising from prayer, the following vision was opened to both of us.”
-
-“The veil was taken from our minds, and the eyes of our understanding were opened.
-
-“We saw the Lord standing upon the breastwork of the pulpit, before us; and under his feet was a paved work of pure gold, in color like amber.
-
-“His eyes were as a flame of fire; the hair of his head was white like the pure snow; his countenance shone above the brightness of the sun; and his voice was as the sound of the rushing of great waters, even the voice of Jehovah, saying:
-
-“I am the first and the last; I am he who liveth, I am he who was slain; I am your advocate with the Father.
-
-“Behold, your sins are forgiven you; you are clean before me; therefore, lift up your heads and rejoice.
-
-“Let the hearts of your brethren rejoice, and let the hearts of all my people rejoice, who have, with their might, built this house to my name.
-
-“For behold, I have accepted this house, and my name shall be here; and I will manifest myself to my people in mercy in this house.
-
-“Yea, I will appear unto my servants, and speak unto them with mine own voice, if my people will keep my commandments, and do not pollute this holy house.
-
-“Yea the hearts of thousands and tens of thousands shall greatly rejoice in consequence of the blessings which shall be poured out, and the endowment with which my servants have been endowed in this house.
-
-“And the fame of this house shall spread to foreign lands; and this is the beginning of the blessing which shall be poured out upon the heads of my people. Even so. Amen.
-
-“After this vision closed, the heavens were again opened unto us; and Moses appeared before us, and committed unto us the keys of the gathering of Israel from the four parts of the earth, and the leading of the ten tribes from the land of the north.
-
-“After this, Elias appeared, and committed the dispensation of the gospel of Abraham, saying that in us and our seed all generations after us should be blessed.
-
-“After this vision had closed, another great and glorious vision burst upon us; for Elijah the prophet, who was taken to heaven without tasting death, stood before us, and said:
-
-“Behold, the time has fully come, which was spoken of by the mouth of Malachi—testifying that he [Elijah] should be sent, before the great and dreadful day of the Lord come—
-
-“To turn the hearts of the fathers to the children, and the children to the fathers, lest the whole earth be smitten with a curse—
-
-“Therefore, the keys of this dispensation are committed into your hands; and by this ye may know that the great and dreadful day of the Lord is near, even at the doors.”
-
-Now, I had read that account many times. The Holy Ghost had confirmed to me that the account was true. But as I studied and prepared for this conference, I came to see more clearly the power of the Lord to lead in detail His disciples in His work.
-
-Seven years before Moses committed to Joseph the keys of the gathering of Israel in the Kirtland Temple, “Joseph learned from the title page of the Book of Mormon that its purpose was to ‘show unto the remnant of the house of Israel … that they may know the covenants of the Lord, that they are not cast off forever.’ In 1831, the Lord told Joseph that the gathering of Israel would commence in Kirtland, ‘And from thence [Kirtland], whosoever I will shall go forth among all nations … for Israel shall be saved, and I will lead them.’”
-
-Although missionary work was needed to gather Israel, the Lord inspired His leaders to teach the Twelve, who became some of our early missionaries, “Remember you are not to go to other nations, till you receive your endowment.”
-
-It seems that the Kirtland Temple was important to the Lord’s step-by-step plan for at least two reasons: First, Moses waited until the temple was completed to restore the keys of the gathering of Israel. And second, President Joseph Fielding Smith taught that “the Lord commanded the Saints to build a temple [the Kirtland Temple] in which he could reveal the keys of authority and where the apostles could be endowed and prepared to prune his vineyard for the last time.” Although the temple endowment as we know it today wasn’t administered in the Kirtland Temple, in fulfillment of prophecy, preparatory temple ordinances began to be introduced there, along with an outpouring of spiritual manifestations which armed those called on missions with the promised endowment of “power from on high” that led to a great gathering through missionary service.
-
-After the keys of the gathering of Israel were committed to Joseph, the Lord inspired the Prophet to send out members of the Twelve on missions. As I studied, it became clear to me that the Lord had prepared in detail the way for the Twelve to go on missions abroad where people had been prepared to believe and sustain them. In time, thousands would, through them, be brought into the Lord’s restored Church.
-
-According to our records, it is estimated that between 7,500 and 8,000 were baptized during the two missions of the Twelve to the British Isles. This laid the foundation for missionary work in Europe. By the end of the 19th century, some 90,000 had gathered to America, with the most of these coming from the British Isles and Scandinavia. The Lord had inspired Joseph and those faithful missionaries who went to work to achieve a harvest that must have, at the time, seemed beyond them. But the Lord, with His perfect foresight and preparation, made it possible.
-
-You remember the apparently simple and almost poetic language from section 110 of the Doctrine and Covenants:
-
-“Behold, the time has fully come, which was spoken of by the mouth of Malachi—testifying that he [Elijah] should be sent, before the great and dreadful day of the Lord come—
-
-“To turn the hearts of the fathers to the children, and the children to the fathers, lest the whole earth be smitten with a curse—
-
-“Therefore, the keys of this dispensation are committed into your hands; and by this ye may know that the great and dreadful day of the Lord is near, even at the doors.”
-
-I testify that the Lord saw far into the future and how He would lead us to help Him accomplish His purposes in the last days.
-
-While I was serving in the Presiding Bishopric many years ago, I was charged with overseeing the design and development group that created what we named FamilySearch. I am careful to say that I “oversaw” its creation rather than saying I “directed” it. Many brilliant people left careers and came to build what the Lord wanted.
-
-The First Presidency had set a goal of reducing the duplication of ordinances. Their major concern was our being unable to know whether a person’s ordinances had already been performed. For years—or what seemed like years—the First Presidency asked me, “When will you have it done?”
-
-With prayer, diligence, and the personal sacrifice of people of great ability, the task was accomplished. It came step by step. The first task was to make FamilySearch user-friendly for those who were not comfortable with computers. More changes came, and I know they will continue to come, for whenever we proceed to resolve one inspired problem, we open the door for further revelation for advancements at least equally important but not yet seen. Even today, FamilySearch is becoming what the Lord needs for part of His Restoration—and not just for avoiding duplication of ordinances.
-
-The Lord let us make improvements to help people gain feelings of familiarity and even love for their ancestors and complete their temple ordinances. Now, as the Lord surely knew would happen, young people are becoming computer mentors to their parents and ward members. All have found great joy in this service.
-
-The spirit of Elijah is changing the hearts of young and old, children and parents, grandchildren and grandparents. Temples will soon again be happily scheduling baptismal opportunities and other sacred ordinances. The desire to serve our ancestors and the bonding of parents and children are growing.
-
-The Lord saw it all coming. He planned for it, step by step, as He has done with other changes in His Church. He has raised up and prepared faithful people who choose to do hard things well. He has always been lovingly patient in helping us learn “line upon line, precept upon precept, here a little and there a little.” He is firm in the timing and the sequence of His intentions, yet He ensures that sacrifice often brings continuing blessings that we did not foresee.
-
-I close by expressing my gratitude to the Lord—He who inspired President Nelson to invite me to make a sacrifice to prepare for this conference. Every hour and every prayer during my preparation brought a blessing.
-
-I invite all who hear this message or read these words to have faith that the Lord is leading the Restoration of His gospel and His Church. He goes before us. He knows the future perfectly. He invites you to the work. He joins you in it. He has in place a plan for your service. And even as you sacrifice, you will feel joy as you help others rise to be ready for His coming.
-
-I testify to you that God the Father lives. Jesus is the Christ. This is His Church. He knows and loves you. He guides you. He has prepared the way for you. In the sacred name of Jesus Christ, amen.
-
-
----
-
-
-## Shall We Not Go On in So Great a Cause?
-
-**Speaker:** By President M. Russell Ballard
-
-**Calling:** Acting President of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/12ballard?lang=eng
-
-Thank you very much, President, for such a wonderful opening. Brothers and sisters, 215 years ago, a little boy was born to Joseph and Lucy Mack Smith in Vermont in a region known as New England in the northeastern United States.
-
-Joseph and Lucy Mack believed in Jesus Christ, studied the holy scriptures, sincerely prayed, and walked with faith in God.
-
-They named their new baby son Joseph Smith Jr.
-
-Of the Smith family, Brigham Young said: “The Lord had his eye upon [Joseph Smith], and upon his father, and upon his father’s father, and upon their progenitors clear back to Abraham, and from Abraham to the flood, from the flood to Enoch and from Enoch to Adam. He has watched that family and that blood as it has circulated from its fountain to the birth of that man. [Joseph Smith] was foreordained in eternity.”
-
-Beloved by his family, Joseph Jr. was particularly close to his older brother Hyrum, who was nearly six years of age when Joseph was born.
-
-Last October, I sat by the hearthstone that was in the small Smith home in Sharon, Vermont, where Joseph was born. I felt Hyrum’s love for Joseph and thought of him holding his baby brother in his arms and teaching him how to walk.
-
-Father and Mother Smith experienced personal setbacks, forcing them to move their family numerous times before finally giving up on New England and making the courageous decision to move farther west, to New York State.
-
-Because the family was united, they survived these challenges and together faced the daunting task of starting over again on a hundred-acre (0.4 km2) wooded tract of land in Manchester, near Palmyra, New York.
-
-I am not sure that many of us realize the physical and emotional challenges that starting over presented the Smith family—clearing land, planting orchards and fields, building a small log home and other farm structures, hiring out as day laborers, and making home goods to sell in town.
-
-By the time the family arrived in western New York, the area was ablaze with religious fervor—known as the Second Great Awakening.
-
-During this time of debate and strife among religious parties, Joseph experienced a wondrous vision, known today as the First Vision. We are blessed to have four primary accounts from which I will draw.
-
-Joseph recorded: “During this time of great [religious] excitement my mind was called up to serious reflection and great uneasiness; but though my feelings were deep and often poignant, still I kept myself aloof from all these parties, though I attended their several meetings as often as occasion would permit. … [Yet] so great were the confusion and strife among the different denominations, that it was impossible for a person young as I was, and so unacquainted with men and things, to come to any certain conclusion who was right and who was wrong.”
-
-Joseph turned to the Bible to find answers to his questions and read James 1:5: “If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him.”
-
-He noted: “Never did any passage of scripture come with more power to the heart of man than this did at this time to mine. It seemed to enter with great force into every feeling of my heart. I reflected on it again and again.”
-
-Joseph came to realize that the Bible did not contain all the answers to life’s questions; rather, it taught men and women how they could find answers to their questions by communicating directly with God through prayer.
-
-He added: “So, in accordance with this, my determination to ask of God, I retired to the woods to make the attempt. It was on the morning of a beautiful, clear day, early in the spring of eighteen hundred and twenty.”
-
-Soon thereafter, Joseph said that “[a pillar of] light rested upon me [and] I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—[Joseph,] This is My Beloved Son. Hear Him!”
-
-The Savior then spoke: “Joseph, my son, thy sins are forgiven thee. Go thy way, walk in my statutes, and keep my commandments. Behold, I am the Lord of glory. I was crucified for the world, that all those who believe on my name may have eternal life.”
-
-Joseph added, “No sooner, therefore, did I get possession of myself, so as to be able to speak, than I asked the Personages who stood above me in the light, which of all the sects was right.”
-
-He recalled: “They told me that all religious denominations were believing in incorrect doctrines, and that none of them was acknowledged of God as his church and kingdom. And … at the same time [I] receive[d] a promise that the fulness of the gospel should at some future time be made known unto me.”
-
-Joseph also noted, “I saw many angels in this vision.”
-
-Following this glorious vision, Joseph wrote: “My soul was ﬁlled with love, and for many days I could rejoice with great joy. … The Lord was with me.”
-
-He emerged from the Sacred Grove to begin his preparation to become a prophet of God.
-
-Joseph also began to learn what ancient prophets experienced—rejection, opposition, and persecution. Joseph recalled sharing what he had seen and heard with one of the ministers who had been active in the religious revival:
-
-“I was greatly surprised at his behavior; he treated my communication not only lightly, but with great contempt, saying it was all of the devil, that there were no such things as visions or revelations in these days; that all such things had ceased with the apostles, and that there would never be any more of them.
-
-“I soon found, however, that my telling the story had excited a great deal of prejudice against me among professors of religion, and was the cause of great persecution, which continued to increase; … and this was common among all the sects—all united to persecute me.”
-
-Three years later, in 1823, the heavens opened again as part of the continuing Restoration of the gospel of Jesus Christ in the last days. Joseph noted that an angel named Moroni appeared to him and said “that God had a work for me to do … [and that] there was a book deposited, written upon gold plates” that contained “the fulness of the everlasting Gospel … as delivered by the Savior to the ancient inhabitants [of the Americas].”
-
-Eventually, Joseph obtained, translated, and published the ancient record, known today as the Book of Mormon.
-
-His brother Hyrum, who had been his constant supporter, especially following his painful, life-threatening leg operation in 1813, was one of the witnesses of the gold plates. He was also one of the six members of the Church of Jesus Christ when it was organized in 1830.
-
-During their lives, Joseph and Hyrum faced mobs and persecution together. For example, they languished in the most wretched conditions in the Liberty Jail in Missouri for five months during the cold winter of 1838–39.
-
-In April 1839, Joseph wrote his wife Emma describing their situation in Liberty Jail: “I believe it is now about five months and six days since I have been under the grimace of a guard, night and day, and within the walls, grates, and screeching iron doors of a lonesome, dark, dirty prison. … We shall be moved from this [place] at any rate, and we are glad of it. Let what will become of us, we cannot get into a worse hole than this is. … We shall never cast a lingering wish after Liberty in Clay County, Missouri. We have enough of it to last forever.”
-
-In the face of persecution, Hyrum exhibited faith in the Lord’s promises, including a guarantee to escape his enemies if he so chose. In a blessing Hyrum received in 1835 under the hands of Joseph Smith, the Lord promised him: “Thou shalt have power to escape the hand of thine enemies. Thy life shall be sought with untiring zeal, but thou shalt escape. If it please thee, and thou desirest, thou shalt have the power voluntarily to lay down thy life to glorify God.”
-
-In June 1844, Hyrum was presented the choice to live or to lay down his life to glorify God and to “seal his testimony with his blood”—side by side together with his beloved brother Joseph.
-
-A week before the fateful trip to Carthage, where they were murdered in cold blood by an armed mob of cowards who had painted their faces to avoid detection, Joseph recorded that “I advised my brother Hyrum to take his family on the next steamboat and go to Cincinnati.”
-
-I still feel great emotion as I remember Hyrum’s reply: “Joseph, I can’t leave you.’’
-
-So Joseph and Hyrum went to Carthage, where they became martyrs for Christ’s cause and name.
-
-The official announcement of the martyrdom stated the following: “Joseph Smith, the Prophet and Seer of the Lord, … has brought forth the Book of Mormon, which he translated by the gift and power of God, and has been the means of publishing it on two continents; has sent the fulness of the everlasting gospel, which it contained, to the four quarters of the earth; has brought forth the revelations and commandments which compose this book of Doctrine and Covenants, and many other wise documents and instructions for the benefit of the children of men; gathered many thousands of the Latter-day Saints, founded a great city, and left a fame and name that cannot be slain. … And like most of the Lord’s anointed in ancient times, [Joseph] has sealed his mission and his works with his own blood; and so has his brother Hyrum. In life they were not divided, and in death they were not separated!”
-
-Following the martyrdom, Joseph’s and Hyrum’s bodies were returned to Nauvoo, washed, and dressed so the Smith family could see their loved ones. Their precious mother recalled: “I had for a long time braced every nerve, roused every energy of my soul, and called upon God to strengthen me; but when I entered the room, and saw my murdered sons extended both at once before my eyes, and heard the sobs and groans of my family [and] the cries … from the lips of their wives, children, brothers, and sisters, it was too much. I sank back crying to the Lord in the agony of my soul, ‘My God! My God! Why hast thou forsaken this family?’”
-
-At that moment of sorrow and distress, she recalled them saying, “Mother, weep not for us; we have overcome the world by love.”
-
-They had indeed overcome the world. Joseph and Hyrum Smith, like those faithful Saints described in the book of Revelation, “came out of great tribulation, and have washed their robes, and made them white in the blood of the Lamb [and] are … before the throne of God, and serve him day and night in his temple: and he that sitteth on the throne shall dwell among them.
-
-“They shall hunger no more, neither thirst any more; neither shall the sun light on them, nor any heat.
-
-“For the Lamb which is in the midst of the throne shall feed them, and shall lead them unto living fountains of waters: and God shall wipe away all tears from their eyes.”
-
-As we celebrate this joyous occasion, the 200th anniversary of the First Vision, we should always remember the price Joseph and Hyrum Smith paid, along with so many other faithful men, women, and children, to establish the Church so you and I could enjoy the many blessings and all of these revealed truths we have today. Their faithfulness should never be forgotten!
-
-I have often wondered why Joseph and Hyrum and their families had to suffer so much. It may be that they came to know God through their suffering in ways that could not have happened without it. Through it, they reflected on Gethsemane and the cross of the Savior. As Paul said, “For unto you it is given in the behalf of Christ, not only to believe on him, but also to suffer for his sake.”
-
-Before his death in 1844, Joseph wrote a spirited letter to the Saints. It was a call to action, which continues in the Church today:
-
-“Brethren [and sisters], shall we not go on in so great a cause? Go forward and not backward. Courage, brethren [and sisters]; and on, on to the victory! …
-
-“… Let us, therefore, as a church and a people, and as Latter-day Saints, offer unto the Lord an offering in righteousness.”
-
-As we listen to the Spirit during this 200th anniversary celebration this weekend, consider what offering you will present to the Lord in righteousness in the coming days. Be courageous—share it with someone you trust, and most important, please take the time to do it!
-
-I know that the Savior is pleased when we present Him an offering from our hearts in righteousness, just as He was pleased with the faithful offering of those remarkable brothers, Joseph and Hyrum Smith, and all other faithful Saints. Of this I solemnly testify in the sacred and holy name of our Lord Jesus Christ, amen.
-
-
----
-
-
-## Go Forward in Faith
-
-**Speaker:** By President Russell M. Nelson
-
-**Calling:** President of The Church of Jesus Christ of Latter-day Saints
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/57nelson?lang=eng
-
-My beloved brothers and sisters, as we come to the end of this historic conference, we express our gratitude to the Lord. The music has been sublime and the messages inspiring.
-
-During this conference, we have experienced many highlights. On this bicentennial anniversary, we have introduced a proclamation to the world declaring the reality of the Restoration of the gospel of Jesus Christ in its fulness.
-
-We commemorated the Restoration with the Hosanna Shout.
-
-We unveiled a new symbol signifying our faith in the Lord Jesus Christ and for visual recognition of official Church information and materials.
-
-We have called for a global day of fasting and prayer, that the present pandemic may be controlled, caregivers protected, the economy strengthened, and life normalized. This fast will be held on Good Friday, April 10. What a great Friday that will be!
-
-Next Sunday is Easter Sunday, when we will again commemorate the Atonement and Resurrection of our Lord Jesus Christ. Because of His Atonement, His gift of resurrection will come to all who have ever lived. And His gift of eternal life will come to all who qualify by fidelity to ordinances and covenants made in His holy temples.
-
-The many inspiring components of this April 2020 general conference—and the sacred week that we now begin—can be summarized by two divinely decreed words: “Hear Him.” We pray that your focus on Heavenly Father, who spoke those words, and on His Beloved Son, Jesus Christ, will loom largest in your memories of all that has transpired. We pray that you will begin anew truly to hear, hearken to, and heed the words of the Savior. I promise that decreased fear and increased faith will follow.
-
-Thank you for your desire to make your homes true sanctuaries of faith, where the Spirit of the Lord may dwell. Our gospel study curriculum, Come, Follow Me, will continue to bless your lives. Your consistent efforts in this endeavor—even during those moments when you feel that you are not being particularly successful—will change your life, that of your family, and the world. We will be strengthened as we become even more valiant disciples of the Lord, standing up and speaking up for Him, wherever we are.
-
-Now, let’s talk about temples. We have 168 dedicated temples across the world. Others are at various stages of planning and construction. When plans are announced to erect a new temple, it becomes part of our sacred history.
-
-It may seem odd to announce new temples when all our temples are closed for a while.
-
-More than a century ago, President Wilford Woodruff foresaw conditions such as ours today, as recorded in his dedicatory prayer of the Salt Lake Temple, given in 1893. Some of you may have recently seen excerpts from this remarkable prayer on social media.
-
-Hear these pleadings from a mighty prophet of God: “When Thy people shall not have the opportunity of entering this holy house … and they are oppressed and in trouble, surrounded by difficulties … and shall turn their faces towards this Thy holy house and ask Thee for deliverance, for help, for Thy power to be extended in their behalf, we beseech Thee, to look down from Thy holy habitation in mercy … and listen to their cries. Or when the children of Thy people, in years to come, shall be separated, through any cause, from this place, … and they shall cry unto Thee from the depths of their affliction and sorrow to extend relief and deliverance to them, we humbly entreat Thee to … hearken to their cries, and grant unto them the blessings for which they ask.”
-
-Brothers and sisters, during times of our distress when temples are closed, you can still draw upon the power of your temple covenants and endowment as you honor your covenants. Please use this time when temples are closed to continue to live a temple-worthy life or to become temple worthy.
-
-Talk about the temple with your family and friends. Because Jesus Christ is at the center of everything we do in the temple, as you think more about the temple you will be thinking more about Him. Study and pray to learn more about the power and knowledge with which you have been endowed—or with which you will yet be endowed.
-
-Today we are pleased to announce plans to construct eight new temples in the following locations: Bahía Blanca, Argentina; Tallahassee, Florida; Lubumbashi, Democratic Republic of the Congo; Pittsburgh, Pennsylvania; Benin City, Nigeria; Syracuse, Utah; Dubai, United Arab Emirates; and Shanghai, People’s Republic of China.
-
-In all eight locations, Church architects will work with local officials so that the temple will harmonize with and be a beautiful addition to each community.
-
-The plan for a temple in Dubai comes in response to their gracious invitation, which we gratefully acknowledge.
-
-Context for the plan for Shanghai is very important. For more than two decades, temple-worthy members in the People’s Republic of China have attended the Hong Kong China Temple. But in July 2019, that temple was closed for long-planned and much-needed renovation.
-
-In Shanghai, a modest multipurpose meeting place will provide a way for Chinese members to continue to participate in ordinances of the temple—in the People’s Republic of China—for them and their ancestors.
-
-In every country, this Church teaches its members to honor, obey, and sustain the law. We teach the importance of the family, of being good parents and exemplary citizens. Because we respect the laws and regulations of the People’s Republic of China, the Church does not send proselyting missionaries there; nor will we do so now.
-
-Expatriate and Chinese congregations will continue to meet separately. The Church’s legal status there remains unchanged. In an initial phase of facility use, entry will be by appointment only. The house of the Lord in Shanghai will not be a destination place for tourists from other countries.
-
-These eight new temples will bless the lives of many people on both sides of the veil of death. Temples are a crowning part of the Restoration of the fulness of the gospel of Jesus Christ. In God’s goodness and generosity, He is bringing the blessings of the temple closer to His children everywhere.
-
-As the Restoration continues, I know that God will continue to reveal many great and important things pertaining to His kingdom here on earth. That kingdom is The Church of Jesus Christ of Latter-day Saints.
-
-Dear brothers and sisters, I express my love for you. During this time of tension and uncertainty, and invoking the authority vested in me, I would like to confer upon you an apostolic blessing.
-
-I bless you with peace and increasing faith in the Lord.
-
-I bless you with a desire to repent and become a little more like Him each day.
-
-I bless you to know that the Prophet Joseph Smith is the prophet of the Restoration of the gospel of Jesus Christ in its fulness.
-
-Should there be illness among you or your loved ones, I leave a blessing of healing, consistent with the will of the Lord.
-
-I so bless you, adding once more my expression of love for each of you, in the sacred name of Jesus Christ, amen.
-
-
----
-
-
-## Fulfillment of Prophecy
-
-**Speaker:** By Elder Ronald A. Rasband
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/41rasband?lang=eng
-
-My dear brothers and sisters, I am honored to speak at this historic general conference commemorating Joseph Smith’s First Vision of God the Father and His Son, Jesus Christ, in what is, without question, a Sacred Grove. That vision was a magnificent beginning to the Restoration of the gospel and all that unfolded, from the Book of Mormon to the return of priesthood authority and keys, the organization of the Lord’s true Church, temples of God, and prophets and apostles who lead the work in these latter days.
-
-By divine design, ancient prophets of God, when moved upon by the Holy Ghost, prophesied of the Restoration and what was to come in our day, the last dispensation and the fulness of times. The very work “fired the souls” of the early seers. Through generations of time, they foretold, dreamed, envisioned, and prophesied of the future of God’s kingdom on earth, what Isaiah called “a marvellous work and a wonder.”
-
-The prophecies that have been fulfilled by the Restoration of the fulness of the gospel of Jesus Christ, including The Church of Jesus Christ of Latter-day Saints, are many. Today, however, I will highlight only a few of my favorites. These were taught to me by my dear Primary teachers and at the knee of my angel mother.
-
-Daniel, who staved off lions by his faith in the Lord Jesus Christ and the intercession of God’s ministering angels, was one who saw our day in vision. Interpreting a dream for Babylonian King Nebuchadnezzar, Daniel prophesied the Lord’s Church would rise in the last days as a small stone “cut out of the mountain without hands.” “Without hands,” meaning by divine intervention, the Lord’s Church would increase in magnitude until it fills the whole earth, “never [to] be destroyed … [but to] stand for ever.”
-
-It is a profound witness that Daniel’s words are being fulfilled as members of the Church, from all over the world, are watching and listening to the conference today.
-
-The devoted Apostle Peter described “times of restitution of all things … since the world began.” The Apostle Paul wrote that in the fulness of times, God would “gather … in one all things in Christ,” “Jesus Christ himself being the chief corner stone.” I felt those prophecies so strongly when I participated in the dedication of the Rome Italy Temple. All of the prophets and apostles were there bearing testimony of Jesus Christ, the Redeemer of the world, as had Peter and Paul. The Church is a living example of that restitution, brothers and sisters, and our members are witnesses of those divine prophecies long ago.
-
-Joseph of Egypt prophesied that in the latter days “a seer shall the Lord my God raise up, who shall be a choice seer unto the fruit of my loins.” “For he shall do [the Lord’s] work.” Joseph Smith, the prophet of the Restoration, was that seer.
-
-John the Revelator prophesied of an angel of the Almighty bringing together important elements of the Restoration with these words: “And I saw another angel fly in the midst of heaven, having the everlasting gospel to preach unto them that dwell on the earth, and to every nation, and kindred, and tongue, and people.” Moroni was that angel. He saw our day as recorded in the Book of Mormon. In repeated appearances, he prepared Joseph Smith for his ministry, including the translation of the Book of Mormon: Another Testament of Jesus Christ.
-
-Other prophets foretold of our day. Malachi spoke of Elijah turning “the heart of the fathers to the children, and the heart of the children to their fathers.” Elijah has come, and as a result, today we have 168 temples dotting the earth. Each temple serves worthy members making sacred covenants and receiving blessed ordinances on behalf of themselves and their deceased ancestors. This sacred work described by Malachi is “central to the Creator’s plan for the eternal destiny of His children.”
-
-We live in that time prophesied; we are the people charged with ushering in the Second Coming of Jesus Christ; we are to gather God’s children, those who will hear and embrace the truths, covenants, and promises of the everlasting gospel. President Nelson calls it “the greatest challenge, the greatest cause, and the greatest work on [the] earth today.” Of that miracle I bear my witness.
-
-By assignment from President Russell M. Nelson, in February of this year I dedicated the Durban South Africa Temple. It was a day I will remember all my life. I was with members who have come to the gospel as Jeremiah prophesied long ago—“one of a city, and two of a family.” The doctrine of Jesus Christ unites all of us—around the world—as sons and daughters of God, as brothers and sisters in the gospel. Regardless of how we look or dress, we are one people with a Father in Heaven whose plan from the beginning was and is for His family to be reunited by making and keeping sacred temple covenants.
-
-To a small gathering of priesthood holders in a schoolhouse in Kirtland, Ohio, in 1834, the Prophet Joseph prophesied, “It is only a little handfull of Priesthood you see here tonight, but this Church will fill North and South America—it will fill the world.”
-
-In recent years I have traveled throughout the world to meet the members of the Church. My Brethren of the Quorum of the Twelve have had similar assignments. Still, who can keep up with the schedule of our dear prophet, President Nelson, whose travel in his first two years as President of the Church has taken him to meet with the Saints in 32 countries and U.S. territories to witness of the living Christ.
-
-I remember when I received my mission call as a young man. I wanted to serve in Germany, like my father, brother, and brother-in-law. Not waiting for anyone to get home, I rushed to the mailbox and opened the call. I read that I had been called to the Eastern States Mission, headquartered in New York City. I was disappointed, so I went inside and opened my scriptures for comfort. I began to read in the Doctrine and Covenants: “Behold, and lo, I have much people in this place, in the regions round about; and an effectual door shall be opened in the regions round about in this eastern land.” That prophecy, given to the Prophet Joseph Smith in 1833, was a revelation to me. I knew then I had been called to the exact mission the Lord wanted me to serve in. I taught the Restoration and its dramatic beginning when our Father in Heaven spoke to Joseph Smith and said, “This is My Beloved Son. Hear Him!”
-
-Of great significance for the whole Church is the prophecy of Isaiah, given more than 700 years before the birth of Jesus Christ: “And it shall come to pass in the last days, that the mountain of the Lord’s house shall be established in the top of the mountains, … and all nations shall flow unto it.”
-
-In my mind today, I picture millions of our members and friends connected to these proceedings electronically by television, internet, or other means. We are sitting down as if together “in the top of the mountains.” It was Brigham Young who spoke the prophetic words “This is the right place.” The Saints, some of them my own pioneer ancestors, worked to establish Zion in the Rocky Mountains “through the will and pleasure of him who dictates the nations of the earth.”
-
-I stand today on the sacred ground that has drawn millions of visitors. In 2002, Salt Lake City hosted the Winter Olympic Games. The Tabernacle Choir sang at the opening ceremonies, and the Church offered concerts and programs for guests and participants from many, many nations. I will always remember seeing the temple in the background of the nightly news broadcasts worldwide.
-
-Over the years, presidents of the United States, kings, judges, prime ministers, ambassadors, and officials from many lands have come to Salt Lake City and met with our leaders. President Nelson hosted leaders of the National Association for the Advancement of Colored People, a United States organization committed to equal rights without discrimination based on race. I remember standing shoulder to shoulder with these friends and leaders as President Nelson joined them in calling for greater civility and racial harmony in the world.
-
-Many more have come to Temple Square and met in council with Church leaders. For example, this past year, to name just a few, we welcomed the United Nations 68th Civil Society Conference, a global gathering and the first of its kind outside of New York City. We have met with Vietnam’s Committee for Religious Affairs and ambassadors from Cuba, the Philippines, Argentina, Romania, Sudan, Qatar, and Saudi Arabia. We also welcomed the secretary general of the Muslim World League.
-
-What I am describing is a fulfillment of Isaiah’s prophecy that in the last days, nations shall flow unto “the mountain of the Lord’s house.” The great Salt Lake Temple stands in the center of that majesty and glory.
-
-It is not the landscape that has drawn people, though our setting is magnificent; it is the essence of pure religion exhibited in the spirit, growth, goodness, and generosity of The Church of Jesus Christ of Latter-day Saints and its people; our love as God loves; our commitment to a higher cause, what Joseph Smith called “the cause of Christ.”
-
-We do not know when the Savior will return, but this we do know. We must be prepared in heart and mind, worthy to receive Him, and honored to be part of all that was prophesied so long ago.
-
-I testify that President Russell M. Nelson is the Lord’s prophet on the earth, and at his side are Apostles called of God, sustained as prophets, seers, and revelators. And, my dear brothers and sisters, the Restoration continues.
-
-I close with the prophecy of Joseph Smith, words that I testify are true: “No unhallowed hand can stop the work from progressing; persecutions may rage, mobs may combine, armies may assemble, calumny may defame, but the truth of God will go forth boldly, nobly, and independent, till it has penetrated every continent, visited every clime, swept every country, and sounded in every ear, till the purposes of God shall be accomplished, and the Great Jehovah shall say the work is done.” I so testify that these prophecies of Joseph Smith are being fulfilled.
-
-I promise as you follow the inspired counsel of our dear prophet, President Russell M. Nelson, his counselors, the Apostles, and other Church leaders, and as you pay heed to the ancient prophets who foretold of our day, you will be filled, deep in your heart and soul, with the spirit and the work of the Restoration. I promise you will see the hand of God in your lives, hear His promptings, and feel His love. In the name of Jesus Christ, with gratitude for the Restoration of His gospel and His Church, in evidence of His matchless love, amen.
-
-
----
-
-
-## The Blessing of Continuing Revelation to Prophets and Personal Revelation to Guide Our Lives
-
-**Speaker:** By Elder Quentin L. Cook
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/52cook?lang=eng
-
-Today I will speak on continuing revelation to prophets and continuing personal revelation to guide our lives.
-
-Sometimes we receive revelation even when we do not know the Lord’s purposes. Shortly before Elder Jeffrey R. Holland was called to be an Apostle in June of 1994, I had a beautiful revelatory experience that he would be called. I was a regional representative and could see no reason I would be given that knowledge. But we were companions as young missionaries in England in the early 1960s, and I had a great love for him. I considered the experience a tender mercy for me. In recent years, I have wondered if the Lord was preparing me to be junior in the Twelve to an incredible missionary companion who was my junior companion when we were young missionaries. I sometimes warn young missionaries to be kind to their junior companions because they never know when they might be their senior companion.
-
-I have a firm testimony that this restored Church is led by our Savior, Jesus Christ. He knows whom to call as His Apostles and in what order to call them. He also knows how to prepare His senior Apostle to be the prophet and President of the Church.
-
-We were blessed this morning to hear our beloved prophet, President Russell M. Nelson, deliver a profound bicentennial proclamation to the world with respect to the Restoration of the fulness of the gospel of Jesus Christ. This seminal declaration by President Nelson has made it clear that the Church of Jesus Christ owes its origin, existence, and direction for the future to the principle of continuous revelation. The new proclamation represents a loving Father’s communication to His children.
-
-In an earlier day, President Spencer W. Kimball expressed the feelings I have today. He stated: “Of all things, that … we should be most grateful [for] is that the heavens are indeed open and that the restored church of Jesus Christ is founded upon the rock of revelation. Continuous revelation is indeed the very lifeblood of the gospel of the living Lord and Savior, Jesus Christ.”
-
-The prophet Enoch foresaw the days in which we live. The Lord acknowledged to Enoch the great wickedness that would prevail and prophesied of the “great tribulations” that would occur. Nevertheless, the Lord promised, “But my people will I preserve.” “And righteousness will I send down out of heaven; and truth will I send forth out of the earth, to bear testimony of mine Only Begotten.”
-
-President Ezra Taft Benson taught with great power that the Book of Mormon, the keystone of our religion, came forth out of the earth in fulfillment of the Lord’s pronouncement to Enoch. The Father and the Son and angels and prophets appearing to the Prophet Joseph Smith were “directed by heaven to restore the necessary powers to the kingdom.”
-
-The Prophet Joseph Smith received revelation after revelation. Some have been addressed during this conference. Many revelations received by the Prophet Joseph have been preserved for us in the Doctrine and Covenants. All the standard works of the Church contain the mind and will of the Lord for us in this last dispensation.
-
-In addition to these great foundational scriptures, we are blessed with continuing revelation to living prophets. Prophets are “commissioned agents of the Lord, authorized to speak for Him.”
-
-Some revelations are of monumental importance, and others enhance our understanding of essential divine truths and provide guidance for our day.
-
-We are incredibly grateful for the revelation to President Spencer W. Kimball extending priesthood and temple blessings to all worthy male members of the Church in June 1978.
-
-I have served with many of the Twelve who were present and participated when that precious revelation was received. Each of them, in personal conversations, confirmed the powerful and uniting spiritual guidance President Kimball and they had experienced. Many said it was the most powerful revelation they had received before or after that time.
-
-Those of us currently serving in the Quorum of the Twelve Apostles have been blessed in our day as significant revelations have come through recent prophets. President Russell M. Nelson has been a commissioned agent of the Lord especially with respect to revelations to help families build sanctuaries of faith in their homes, gather scattered Israel on both sides of the veil, and bless endowed members in sacred temple ordinance matters.
-
-When important changes to bless our homes were announced at the October 2018 general conference, I testified “that in the deliberations of the Council of the First Presidency and Quorum of the Twelve Apostles in the temple, … after our beloved prophet petitioned the Lord for revelation … , a powerful confirmation was received by all.”
-
-At that time, other revelations relating to sacred temple ordinances had been received but not announced or implemented. This guidance commenced with individual prophetic revelation to President Russell M. Nelson and tender and powerful confirmation to those participating in the process. President Nelson specifically involved the sisters who preside over the Relief Society, Young Women, and Primary organizations. The final guidance, in the temple, to the First Presidency and Quorum of the Twelve Apostles was profoundly spiritual and powerful. We each knew we had received the mind, will, and voice of the Lord.
-
-I declare with all solemnity that continuous revelation has been received and is being received through channels the Lord has established. I testify the new proclamation President Nelson delivered this morning is a revelation to bless all people.
-
-We also declare our heartfelt desire to be reunited with those who have been struggling with their testimonies, been less active, or had their names removed from Church records. We desire to feast with you “upon the words of Christ” at the Lord’s table, to learn the things we all should do. We need you! The Church needs you! The Lord needs you! Our heartfelt prayer is that you will join with us in worshipping the Savior of the world. We know that some of you may have received offense, unkindness, or other conduct that is not Christlike. We also know that some have had challenges to their faith that may not be fully appreciated, understood, or resolved.
-
-Some of our most stalwart and faithful members have suffered a challenge to their faith for a season. I love the true account of W. W. Phelps, who had forsaken the Church and testified against the Prophet Joseph Smith in a Missouri court. After repenting, he wrote to Joseph, “I know my situation, you know it, and God knows it, and I want to be saved if my friends will help me.” Joseph did forgive him, put him back to work, and lovingly wrote, “Friends at first are friends again at last.”
-
-Brothers and sisters, regardless of your situation, please know that the Church and its members will welcome you back!
-
-Personal revelation is available to all those who humbly seek guidance from the Lord. It is as important as prophetic revelation. Personal, spiritual revelation from the Holy Ghost has resulted in millions receiving the testimony necessary to be baptized and confirmed members of The Church of Jesus Christ of Latter-day Saints.
-
-Personal revelation is the profound blessing received following baptism when we are “sanctified by the reception of the Holy Ghost.” I can remember a special spiritual revelation when I was 15 years old. My precious brother was seeking guidance from the Lord as to how to respond to our dear father, who did not want my brother to serve a mission. I prayed with sincere intent too and received personal revelation of the truthfulness of the gospel.
-
-Personal revelation is based on spiritual truths received from the Holy Ghost. The Holy Ghost is the revealer and testifier of all truth, especially that of the Savior. Without the Holy Ghost, we could not really know that Jesus is the Christ. His seminal role is to bear witness of the Father and the Son and Their titles and Their glory.
-
-The Holy Ghost can influence everyone in a powerful way. This influence will not be constant unless one is baptized and receives the gift of the Holy Ghost. The Holy Ghost serves also as a cleansing agent in the process of repentance and forgiveness.
-
-The Spirit communicates in marvelous ways. The Lord used this beautiful description:
-
-“I will tell you in your mind and in your heart, by the Holy Ghost, which shall come upon you and which shall dwell in your heart.
-
-“Now, behold, this is the spirit of revelation.”
-
-Although its impact can be incredibly powerful, it most often comes quietly as a still, small voice. The scriptures include many examples of how the Spirit influences our minds, including speaking peace to our minds, occupying our minds, enlightening our minds, and even sending a voice to our minds.
-
-Some principles that prepare us to receive revelation include:
-
-Praying for spiritual guidance. Reverently and humbly we need to seek and ask and be patient and submissive.
-
-Preparing for inspiration. This requires that we be in harmony with the Lord’s teachings and in compliance with His commandments.
-
-Partaking of the sacrament worthily. When we do this, we witness and covenant with God that we take upon ourselves the name of His holy Son and that we remember Him and keep His commandments.
-
-These principles prepare us to receive, recognize, and follow the prompting and guidance of the Holy Ghost. This includes the “peaceable things … which bringeth joy [and] … life eternal.”
-
-Our spiritual preparation is greatly enhanced when we regularly study the scriptures and truths of the gospel and ponder in our minds the guidance we seek. But remember to be patient and trust in the Lord’s timing. Guidance is given by an omniscient Lord when He “deliberately chooses to school us.”
-
-The Holy Ghost will also provide revelation in our callings and assignments. In my experience, significant spiritual guidance most often comes when we are trying to bless others in fulfilling our responsibilities.
-
-I can remember as a young bishop receiving a desperate call from a married couple a short time before I was to catch an airplane for a business engagement. I pled with the Lord before their arrival to know how I could bless them. It was revealed to me the nature of the problem and the response I should give. That revelatory guidance allowed me to fulfill the sacred responsibilities of my calling as bishop despite very limited availability of time. Bishops all over the world also share these same kinds of experiences with me. As a stake president, I not only received important revelation but also received personal correction that was necessary to accomplish the Lord’s purposes.
-
-I assure you that revelatory guidance can be received by each of us as we humbly labor in the Lord’s vineyard. Most of our guidance comes from the Holy Ghost. Sometimes and for some purposes, it comes directly from the Lord. I personally testify that this is true. Guidance for the Church, as a whole, comes to the President and prophet of the Church.
-
-We, as modern Apostles, have had the privilege of working and traveling with our current prophet, President Nelson. I paraphrase what Wilford Woodruff said about the Prophet Joseph Smith; it is equally true of President Nelson. I have seen “the workings of the Spirit of God with him, and the revelations of Jesus Christ unto him and the fulfillment of those revelations.”
-
-My humble plea today is that each of us will seek continuing revelation to guide our lives and follow the Spirit as we worship God the Father in the name of our Savior, Jesus Christ, of whom I bear witness in the name of Jesus Christ, amen.
-
-
----
-
-
-## Hear Him
-
-**Speaker:** By President Russell M. Nelson
-
-**Calling:** President of The Church of Jesus Christ of Latter-day Saints
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/45nelson?lang=eng
-
-My dear brothers and sisters, how thankful I am that through the use of technology we have been able to meet together and worship on this Sunday morning. How blessed we are to know that the gospel of Jesus Christ has been restored to the earth!
-
-In the past several weeks, most of us have experienced disruptions in our personal lives. Earthquakes, fires, floods, plagues, and their aftermaths have disrupted routines and caused shortages of food, staples, and savings.
-
-Amidst all of this, we commend you and thank you for choosing to hear the word of the Lord during this time of turmoil by joining with us for general conference. The increasing darkness that accompanies tribulation makes the light of Jesus Christ shine ever brighter. Just think of the good each of us can do during this time of global upheaval. Your love of and faith in the Savior may very well be the catalyst for someone to discover the Restoration of the fulness of the gospel of Jesus Christ.
-
-In the past two years, Sister Nelson and I have met with thousands of you around the world. We have convened with you in outdoor arenas and in hotel ballrooms. In each location, I have felt that I was in the presence of the Lord’s elect and that I was seeing the gathering of Israel occur before my eyes.
-
-We live in the day that “our forefathers have awaited with anxious expectation.” We have front-row seats to witness live what the prophet Nephi saw only in vision, that “the power of the Lamb of God” would descend “upon the covenant people of the Lord, who were scattered upon all the face of the earth; and they were armed with righteousness and with the power of God in great glory.”
-
-You, my brothers and sisters, are among those men, women, and children whom Nephi saw. Think of that!
-
-Regardless of where you live or what your circumstances are, the Lord Jesus Christ is your Savior, and God’s prophet Joseph Smith is your prophet. He was foreordained before the foundation of the earth to be the prophet of this last dispensation, when “nothing shall be withheld” from the Saints. Revelation continues to flow from the Lord during this ongoing process of restoration.
-
-What does it mean for you that the gospel of Jesus Christ has been restored to the earth?
-
-It means that you and your family can be sealed together forever! It means that because you have been baptized by one who has authority from Jesus Christ and have been confirmed a member of His Church, you can enjoy the constant companionship of the Holy Ghost. He will guide and protect you. It means you will never be left comfortless or without access to the power of God to help you. It means that priesthood power can bless you as you receive essential ordinances and make covenants with God and keep them. What an anchor to our souls are these truths, especially during these times when the tempest is raging.
-
-The Book of Mormon chronicles the classic rise and fall of two major civilizations. Their history demonstrates how easy it is for a majority of the people to forget God, reject warnings of the Lord’s prophets, and seek power, popularity, and pleasures of the flesh. Repeatedly, past prophets have declared “great and marvelous things unto the people, which they did not believe.”
-
-It is no different in our day. Through the years, great and marvelous things have been heard from dedicated pulpits across the earth. Yet most people do not embrace these truths—either because they do not know where to look for them or because they are listening to those who do not have the whole truth or because they have rejected truth in favor of worldly pursuits.
-
-The adversary is clever. For millennia he has been making good look evil and evil look good. His messages tend to be loud, bold, and boastful.
-
-However, messages from our Heavenly Father are strikingly different. He communicates simply, quietly, and with such stunning plainness that we cannot misunderstand Him.
-
-For example, whenever He has introduced His Only Begotten Son to mortals upon the earth, He has done so with remarkably few words. On the Mount of Transfiguration to Peter, James, and John, God said, “This is my beloved Son: hear him.” His words to the Nephites in ancient Bountiful were “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.” And to Joseph Smith, in that profound declaration that opened this dispensation, God simply said, “This is My Beloved Son. Hear Him!”
-
-Now, my dear brothers and sisters, consider the fact that in these three instances just mentioned, just before the Father introduced the Son, the people involved were in a state of fear and, to some degree, desperation.
-
-The Apostles were afraid when they saw Jesus Christ encircled by a cloud on the Mount of Transfiguration.
-
-The Nephites were afraid because they had been through destruction and darkness for several days.
-
-Joseph Smith was in the grips of a force of darkness just before the heavens opened.
-
-Our Father knows that when we are surrounded by uncertainty and fear, what will help us the very most is to hear His Son.
-
-Because when we seek to hear—truly hear—His Son, we will be guided to know what to do in any circumstance.
-
-The very first word in the Doctrine and Covenants is hearken. It means “to listen with the intent to obey.” To hearken means to “hear Him”—to hear what the Savior says and then to heed His counsel. In those two words—“Hear Him”—God gives us the pattern for success, happiness, and joy in this life. We are to hear the words of the Lord, hearken to them, and heed what He has told us!
-
-As we seek to be disciples of Jesus Christ, our efforts to hear Him need to be ever more intentional. It takes conscious and consistent effort to fill our daily lives with His words, His teachings, His truths.
-
-We simply cannot rely upon information we bump into on social media. With billions of words online and in a marketing-saturated world constantly infiltrated by noisy, nefarious efforts of the adversary, where can we go to hear Him?
-
-We can go to the scriptures. They teach us about Jesus Christ and His gospel, the magnitude of His Atonement, and our Father’s great plan of happiness and redemption. Daily immersion in the word of God is crucial for spiritual survival, especially in these days of increasing upheaval. As we feast on the words of Christ daily, the words of Christ will tell us how to respond to difficulties we never thought we would face.
-
-We can also hear Him in the temple. The house of the Lord is a house of learning. There the Lord teaches in His own way. There each ordinance teaches about the Savior. There we learn how to part the veil and communicate more clearly with heaven. There we learn how to rebuke the adversary and draw upon the Lord’s priesthood power to strengthen us and those we love. How eager each of us should be to seek refuge there.
-
-When these temporary COVID-19 restrictions are lifted, please schedule regular time to worship and serve in the temple. Every minute of that time will bless you and your family in ways nothing else can. Take time to ponder what you hear and feel when you are there. Ask the Lord to teach you how to open the heavens to bless your life and the lives of those you love and serve.
-
-While worshipping in the temple is presently not possible, I invite you to increase your participation in family history, including family history research and indexing. I promise that as you increase your time in temple and family history work, you will increase and improve your ability to hear Him.
-
-We also hear Him more clearly as we refine our ability to recognize the whisperings of the Holy Ghost. It has never been more imperative to know how the Spirit speaks to you than right now. In the Godhead, the Holy Ghost is the messenger. He will bring thoughts to your mind which the Father and Son want you to receive. He is the Comforter. He will bring a feeling of peace to your heart. He testifies of truth and will confirm what is true as you hear and read the word of the Lord.
-
-I renew my plea for you to do whatever it takes to increase your spiritual capacity to receive personal revelation.
-
-Doing so will help you know how to move ahead with your life, what to do during times of crisis, and how to discern and avoid the temptations and the deceptions of the adversary.
-
-And, finally, we hear Him as we heed the words of prophets, seers, and revelators. Ordained Apostles of Jesus Christ always testify of Him. They point the way as we make our way through the heart-wrenching maze of our mortal experiences.
-
-What will happen as you more intentionally hear, hearken, and heed what the Savior has said and what He is saying now through His prophets? I promise that you will be blessed with additional power to deal with temptation, struggles, and weakness. I promise miracles in your marriage, family relationships, and daily work. And I promise that your capacity to feel joy will increase even if turbulence increases in your life.
-
-This April 2020 general conference is our time to commemorate an event that changed the world. As we anticipated this 200th anniversary of Joseph Smith’s First Vision, the First Presidency and Council of the Twelve Apostles wondered what we might do to commemorate appropriately this singular event.
-
-That theophany initiated the Restoration of the fulness of the gospel of Jesus Christ and ushered in the dispensation of the fulness of times.
-
-We wondered if a monument should be erected. But as we considered the unique historic and international impact of that First Vision, we felt impressed to create a monument not of granite or stone but of words—words of solemn and sacred proclamation—written, not to be carved in “tables of stone” but rather to be etched in the “fleshy tables” of our hearts.
-
-Since the Church was organized, only five proclamations have been issued, with the last being “The Family: A Proclamation to the World,” presented by President Gordon B. Hinckley in 1995.
-
-Now as we contemplate this significant time in the history of the world and the Lord’s charge to gather scattered Israel in preparation for the Second Coming of Jesus Christ, we, the First Presidency and Council of the Twelve Apostles, issue the following proclamation. Its title is “The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World.” It is authored by the First Presidency and the Council of the Twelve Apostles of The Church of Jesus Christ of Latter-day Saints. It is dated April 2020. To prepare for today, I previously recorded this proclamation in the Sacred Grove, where Joseph Smith first saw the Father and the Son.
-
-“We solemnly proclaim that God loves His children in every nation of the world. God the Father has given us the divine birth, the incomparable life, and the infinite atoning sacrifice of His Beloved Son, Jesus Christ. By the power of the Father, Jesus rose again and gained the victory over death. He is our Savior, our Exemplar, and our Redeemer.
-
-“Two hundred years ago, on a beautiful spring morning in 1820, young Joseph Smith, seeking to know which church to join, went into the woods to pray near his home in upstate New York, USA. He had questions regarding the salvation of his soul and trusted that God would direct him.
-
-“In humility, we declare that in answer to his prayer, God the Father and His Son, Jesus Christ, appeared to Joseph and inaugurated the ‘restitution of all things’ (Acts 3:21) as foretold in the Bible. In this vision, he learned that following the death of the original Apostles, Christ’s New Testament Church was lost from the earth. Joseph would be instrumental in its return.
-
-“We affirm that under the direction of the Father and the Son, heavenly messengers came to instruct Joseph and reestablish the Church of Jesus Christ. The resurrected John the Baptist restored the authority to baptize by immersion for the remission of sins. Three of the original twelve Apostles—Peter, James, and John—restored the apostleship and keys of priesthood authority. Others came as well, including Elijah, who restored the authority to join families together forever in eternal relationships that transcend death.
-
-“We further witness that Joseph Smith was given the gift and power of God to translate an ancient record: the Book of Mormon—Another Testament of Jesus Christ. Pages of this sacred text include an account of the personal ministry of Jesus Christ among people in the Western Hemisphere soon after His Resurrection. It teaches of life’s purpose and explains the doctrine of Christ, which is central to that purpose. As a companion scripture to the Bible, the Book of Mormon testifies that all human beings are sons and daughters of a loving Father in Heaven, that He has a divine plan for our lives, and that His Son, Jesus Christ, speaks today as well as in days of old.
-
-“We declare that The Church of Jesus Christ of Latter-day Saints, organized on April 6, 1830, is Christ’s New Testament Church restored. This Church is anchored in the perfect life of its chief cornerstone, Jesus Christ, and in His infinite Atonement and literal Resurrection. Jesus Christ has once again called Apostles and has given them priesthood authority. He invites all of us to come unto Him and His Church, to receive the Holy Ghost, the ordinances of salvation, and to gain enduring joy.
-
-“Two hundred years have now elapsed since this Restoration was initiated by God the Father and His Beloved Son, Jesus Christ. Millions throughout the world have embraced a knowledge of these prophesied events.
-
-“We gladly declare that the promised Restoration goes forward through continuing revelation. The earth will never again be the same, as God will ‘gather together in one all things in Christ’ (Ephesians 1:10).
-
-“With reverence and gratitude, we as His Apostles invite all to know—as we do—that the heavens are open. We affirm that God is making known His will for His beloved sons and daughters. We testify that those who prayerfully study the message of the Restoration and act in faith will be blessed to gain their own witness of its divinity and of its purpose to prepare the world for the promised Second Coming of our Lord and Savior, Jesus Christ.”
-
-Beloved brothers and sisters, that is our bicentennial proclamation to the world regarding the Restoration of the gospel of Jesus Christ in its fulness. It has been translated into 12 languages. Other languages will soon follow. It will be available immediately on the Church website, from which you may obtain a copy. Study it privately and with your family members and friends. Ponder the truths and think of the impact those truths will have on your life if you will hear them, hearken to them, and heed the commandments and covenants that accompany them.
-
-I know that Joseph Smith is the foreordained prophet whom the Lord chose to open this last dispensation. Through him the Lord’s Church was restored to the earth. Joseph sealed his testimony with his blood. How I love and honor him!
-
-God lives! Jesus is the Christ! His Church has been restored! He and His Father, our Heavenly Father, are watching over us. I so testify in the sacred name of Jesus Christ, amen.
-
-
----
-
-
-## Hosanna Shout
-
-**Speaker:** Presented by President Russell M. Nelson
-
-**Calling:** President of The Church of Jesus Christ of Latter-day Saints
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/46nelson?lang=eng
-
-Now, my dear brothers and sisters, as we commemorate Joseph Smith’s First Vision of the Father and the Son, we felt that it would be appropriate to rejoice together by participating in the Hosanna Shout.
-
-This sacred shout was first given in this dispensation at the dedication of the Kirtland Temple on March 27, 1836. It is now given at the dedication of each temple. It is a sacred tribute to the Father and the Son, symbolizing the reaction of the multitude when the Savior made His triumphal entry into Jerusalem. It also reaffirms what young Joseph experienced that day in the Sacred Grove﻿—namely, that the Father and the Son are two glorified Beings, whom we worship and praise.
-
-I will now demonstrate how the Hosanna Shout is given. As I do, I invite our colleagues in the media to treat this very sacred observance with dignity and respect.
-
-Each one participating takes a clean white handkerchief, holding it by one corner, and waves it while saying in unison, “Hosanna, Hosanna, Hosanna to God and the Lamb,” repeated three times, followed by “Amen, Amen, and Amen.” If you do not have a white handkerchief, you may simply wave your hand.
-
-Brothers and sisters, I now invite you to stand and participate in the Hosanna Shout, following which the “Hosanna Anthem” and “The Spirit of God” will be sung.
-
-Upon a signal from the conductor, please join in singing “The Spirit of God.”
-
-Hosanna, Hosanna, Hosanna to God and the Lamb.
-
-Hosanna, Hosanna, Hosanna to God and the Lamb.
-
-Hosanna, Hosanna, Hosanna to God and the Lamb.
-
-Amen, Amen, and Amen.
-
-
----
-
-
-## Spiritually Defining Memories
-
-**Speaker:** By Elder Neil L. Andersen
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/15andersen?lang=eng
-
-Eighteen years after the First Vision, the Prophet Joseph Smith wrote an extensive account of his experience. He had faced opposition, persecution, harassment, threats, and brutal attacks. Yet he continued to boldly testify of his First Vision: “I had actually seen a light, and in the midst of that light I saw two Personages, and they did in reality speak to me; and though I was hated and persecuted for saying that I had seen a vision, yet it was true. … I knew it, and I knew that God knew it, and I could not deny it.”
-
-In his difficult hours, Joseph’s memory reached back nearly two decades to the certainty of God’s love for him and the events that welcomed in the long-foretold Restoration. Reflecting on his spiritual journey, Joseph said: “I don’t blame any one for not believing my history. If I had not experienced what I have, I would not have believed it myself.”
-
-But the experiences were real, and he never forgot or denied them, quietly confirming his testimony as he moved to Carthage. “I am going like a lamb to the slaughter,” he said, “but I am calm as a summer’s morning; I have a conscience void of offense towards God, and towards all men.”
-
-There is a lesson for us in the Prophet Joseph’s example. Along with the peaceful direction we receive from the Holy Ghost, from time to time, God powerfully and very personally assures each of us that He knows us and loves us and that He is blessing us specifically and openly. Then, in our moments of difficulty, the Savior brings these experiences back into our mind.
-
-Think of your own life. Over the years, I have listened to thousands of profoundly spiritual experiences from Latter-day Saints all across the world, confirming to me beyond any question that God knows and loves each of us and that He eagerly desires to reveal Himself to us. These experiences may come at pivotal times in our lives or in what may at first seem as uneventful happenings, but they are always accompanied by an exceptionally strong spiritual confirmation of the love of God.
-
-Remembering these spiritually defining experiences takes us to our knees, declaring as did the Prophet Joseph: “What I received was from heaven. I know it, and I know that God knows that I know it.”
-
-Reflect on your own spiritually defining memories as I share a few examples from others.
-
-Years ago, an elderly stake patriarch with two failing heart valves pleaded for then-Dr. Russell M. Nelson to intervene, although at that time there was not a surgical solution for the damaged second valve. Dr. Nelson finally agreed to do the surgery. Here are President Nelson’s words:
-
-“After relieving the obstruction of the first valve, we exposed the second valve. We found it to be intact but so badly dilated that it could no longer function as it should. While examining this valve, a message was distinctly impressed upon my mind: Reduce the circumference of the ring. I announced that message to my assistant. ‘The valve tissue will be sufficient if we can effectively reduce the ring toward its normal size.’
-
-“But how? … A picture came vividly to my mind, showing how stitches could be placed—to make a pleat here and a tuck there. … I still remember that mental image—complete with dotted lines where sutures should be placed. The repair was completed as diagrammed in my mind. We tested the valve and found the leak to be reduced remarkably. My assistant said, ‘It’s a miracle.’” The patriarch lived for many years.
-
-Dr. Nelson had been directed. And he knew that God knew that he knew he had been directed.
-
-Kathy and I first met Beatrice Magré in France 30 years ago. Beatrice recently told me of an experience that impacted her spiritual life shortly after her baptism as a teenager. Here are her words:
-
-“The youth of our branch had traveled with their leaders to Lacanau Beach, an hour and a half from Bordeaux.
-
-“Before returning home, one of the leaders decided to take a last swim and dove into the waves with his glasses. When he resurfaced, his glasses had disappeared. … They were lost in the ocean.
-
-“The loss of his glasses would prevent him from driving his car. We would be stranded far from home.
-
-“A sister filled with faith suggested that we pray.
-
-“I murmured that praying would avail us absolutely nothing, and I uneasily joined the group to pray publicly as we stood waist-deep in the murky water.
-
-“Once the prayer was over, I stretched my arms to splash everyone. As I was sweeping the ocean’s surface, his pair of glasses rested in my hand. A powerful feeling pierced my soul that God does actually hear and answer our prayers.”
-
-Forty-five years later, she recalled it as if it had happened yesterday. Beatrice had been blessed, and she knew that God knew that she knew that she had been blessed.
-
-The experiences of President Nelson and Sister Magré were very different, yet for both, an unforgettable spiritually defining memory of God’s love was embedded in their hearts.
-
-These defining events often come in learning about the restored gospel or in sharing the gospel with others.
-
-This picture was taken in São Paulo, Brazil, in 2004. Floripes Luzia Damasio of the Ipatinga Brazil Stake was 114 years old. Speaking of her conversion, Sister Damasio told me that missionaries in her village had given a priesthood blessing to a critically ill baby who miraculously recovered. She wanted to know more. As she prayed about their message, an undeniable witness of the Spirit confirmed to her that Joseph Smith was a prophet of God. At 103, she was baptized, and at 104, she was endowed. Every year after, she made the 14-hour bus ride to spend a week in the temple. Sister Damasio had received a heavenly confirmation, and she knew that God knew that she knew that the witness was true.
-
-Here is a spiritual memory from my first mission to France 48 years ago.
-
-While tracting, my companion and I left a Book of Mormon with an elderly woman. When we returned to the woman’s apartment about a week later, she opened the door. Before any words were spoken, I felt a tangible spiritual power. The intense feelings continued as Madame Alice Audubert invited us in and told us she had read the Book of Mormon and knew that it was true. As we left her apartment that day, I prayed, “Heavenly Father, please help me to never forget what I have just felt.” I never have.
-
-In a seemingly ordinary moment, at a door much like hundreds of other doors, I had felt the power of heaven. And I knew that God knew that I knew that a window of heaven had been opened.
-
-These spiritually defining moments come at different times and in different ways, individualized for each of us.
-
-Think of your favorite examples in the scriptures. Those listening to the Apostle Peter “were pricked in their heart[s].” The Lamanite woman Abish believed the “remarkable vision of her father.” And a voice came into the mind of Enos.
-
-My friend Clayton Christensen described an experience during a very prayerful reading of the Book of Mormon this way: “A beautiful, warm, loving Spirit … surrounded me and permeated my soul, enveloping me in a feeling of love that I had not imagined I could feel [and these feelings continued night after night].”
-
-There are times when spiritual feelings go down into our heart like fire, illuminating our soul. Joseph Smith explained that we sometimes receive “sudden strokes of ideas” and occasionally the pure flow of intelligence.
-
-President Dallin H. Oaks, in responding to a sincere man who claimed never to have had such an experience, counseled, “Perhaps your prayers have been answered again and again, but you have had your expectations fixed on a sign so grand or a voice so loud that you think you have had no answer.” The Savior Himself spoke of a people with great faith who “were [blessed] with fire and with the Holy Ghost, [but who] knew it not.”
-
-We have recently heard President Russell M. Nelson say: “I invite you to think deeply and often about this key question: How do you hear Him? I also invite you to take steps to hear Him better and more often.” He repeated that invitation this morning.
-
-We hear Him in our prayers, in our homes, in the scriptures, in our hymns, as we worthily partake of the sacrament, as we declare our faith, as we serve others, and as we attend the temple with fellow believers. Spiritually defining moments come as we prayerfully listen to general conference and as we better keep the commandments. And children, these experiences are for you as well. Remember, Jesus “did teach and minister unto the children … and [the children] did speak … great and marvelous things.” The Lord said:
-
-“[This knowledge is] given by my Spirit unto you, … and save it were by my power you could not have [it];
-
-“Wherefore, you can testify that you have heard my voice, and know my words.”
-
-We can “hear Him” because of the blessing of the Savior’s incomparable Atonement.
-
-While we cannot choose the timing of receiving these defining moments, President Henry B. Eyring gave this counsel in our preparation: “Tonight, and tomorrow night, you might pray and ponder, asking the questions: Did God send a message that was just for me? Did I see His hand in my life or the lives of my [family]?” Faith, obedience, humility, and real intent open the windows of heaven.
-
-You might think of your spiritual memories this way. With constant prayer, a determination to keep our covenants, and the gift of the Holy Ghost, we navigate our way through life. When personal difficulty, doubt, or discouragement darken our path, or when world conditions beyond our control lead us to wonder about the future, the spiritually defining memories from our book of life are like luminous stones that help brighten the road ahead, assuring us that God knows us, loves us, and has sent His Son, Jesus Christ, to help us return home. And when someone sets their defining memories aside and is lost or confused, we turn them toward the Savior as we share our faith and memories with them, helping them rediscover those precious spiritual moments they once treasured.
-
-Some experiences are so sacred that we guard them in our spiritual memory and do not share them.
-
-“Angels speak by the power of the Holy Ghost; wherefore, they speak the words of Christ.”
-
-“Angels [have not] ceased to minister unto the children of men.
-
-“For behold, they are subject unto [Christ], to minister according to … his command, showing themselves unto them of strong faith and a firm mind in every form of godliness.”
-
-And “the Comforter, which is the Holy Ghost, … shall teach you all things, and bring all things to your remembrance.”
-
-Embrace your sacred memories. Believe them. Write them down. Share them with your family. Trust that they come to you from your Heavenly Father and His Beloved Son. Let them bring patience to your doubts and understanding to your difficulties. I promise you that as you willingly acknowledge and carefully treasure the spiritually defining events in your life, more and more will come to you. Heavenly Father knows you and loves you!
-
-Jesus is the Christ, His gospel has been restored, and as we remain faithful, I witness we will be His forever, in the name of Jesus Christ, amen.
-
-
----
-
-
-## A Good Foundation against the Time to Come
-
-**Speaker:** By Elder Gary E. Stevenson
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/28stevenson?lang=eng
-
-Let’s travel back to a hot afternoon on July 24, 1847, around 2:00 p.m. Following an arduous 111-day journey with 148 members of the Church who comprised the first party to head west, Brigham Young, then President of the Quorum of the Twelve Apostles, sick and weak from mountain fever, entered the Salt Lake Valley.
-
-Two days later, while recovering from his illness, Brigham Young led several members of the Quorum of the Twelve Apostles and others on an exploring expedition. William Clayton recorded, “About three-quarters of a mile north of the camp, we arrived on a beautiful table of land, level and nicely sloping to the west.”
-
-While surveying the spot with the group, Brigham Young suddenly stopped and stuck his cane in the ground, exclaiming, “Here shall stand the Temple of our God.” One of his companions was Elder Wilford Woodruff, who said this statement “went through [him] like lightning,” and he drove a branch into the ground to mark the spot made by President Young’s cane. Forty acres (16 ha) were selected for the temple, and it was decided that the city should be laid out “perfectly square North & South, east & west” with the temple being the center spot.
-
-At general conference in April 1851, members of the Church voted unanimously to sustain a motion to build a temple “to the name of the Lord.” Two years later, on February 14, 1853, the site was dedicated by Heber C. Kimball in a public ceremony attended by several thousand Saints, and ground was broken for the foundation of the Salt Lake Temple. A few months later, on April 6, the massive cornerstones of the temple were laid and dedicated with elaborate ceremonies that included a color guard and bands and a procession led by Church leaders from the old tabernacle to the temple site, where remarks and prayers were offered at each of the four stones.
-
-At the groundbreaking ceremony, President Young recalled that he had seen a vision when he first set foot upon the ground as they surveyed the valley floor, stating, “I knew [then], just as well as I now know, that this was the ground on which to erect a temple—it was before me.”
-
-Ten years later, Brigham Young offered the following prophetic insight at general conference in October 1863: “I want to see [the] temple built in a manner that it will endure through the millennium. This is not the only temple we shall build; there will be hundreds of them built and dedicated to the Lord. This temple will be known as the first temple built in the mountains by the Latter Day Saints. … I want that temple … to stand as a proud monument of the faith, perseverance and industry of the saints of God in the mountains.”
-
-In reviewing this brief history, I am in awe of the seership of Brigham Young—first, his ensuring that, to the extent possible and, using construction methods available at that time and place, the Salt Lake Temple would be built in a manner to endure throughout the Millennium and, second, his prophesying of the growth of future temples worldwide, even to number them in the hundreds.
-
-Like Brigham Young, our prophet of today looks over the Salt Lake Temple and all others with great care. Through the years, the First Presidency has, from time to time, counseled the Presiding Bishopric to ensure that the foundation of the Salt Lake Temple is solid. When I served in the Presiding Bishopric, at the request of the First Presidency, we did an overall facility review of the Salt Lake Temple, including an evaluation of the most recent advancements in seismic design and construction techniques.
-
-Here are portions of the review provided to the First Presidency at that time: “In the design and construction of the Salt Lake Temple, the best engineering, skilled labor, construction materials, furnishings, and other period-available resources were used. Since its dedication in 1893, the temple has stood firm and served as a beacon of faith [and] hope and as a light unto the people. Great care has been taken to operate, clean, and maintain the temple in good condition. The granite exterior and interior floor joists and support beams are in good condition. Recent studies confirm that the location chosen by Brigham Young for the temple has very good soils and excellent compaction qualities.”
-
-The review concluded that normal repairs and improvements were needed to renew and update the temple, including the exterior deck and surface areas, obsolete utility systems, and baptistry areas. However, consideration of a separate, more comprehensive seismic upgrade beginning from the temple foundation on upward was also recommended.
-
-As you may recall, President Brigham Young himself was involved in great detail in the construction of the original temple foundation, which has served the temple well since its completion 127 years ago. The newly proposed seismic upgrade package for the temple would utilize base isolation technology, which was not even imagined at the time of its construction. This is considered the latest, most state-of-the-art engineering for earthquake protection.
-
-This technology, recent in its development, begins at the very foundation of the temple, providing a robust defense against damage from an earthquake. In essence, it structurally strengthens the temple to stand steadfast, even as the earth and environment around it undergo an earthshaking seismic event.
-
-The temple renovation that would employ this technology was announced by the First Presidency last year. Under the direction of the Presiding Bishopric, construction commenced a few months ago, in January 2020. It is estimated to be completed in approximately four years.
-
-As I contemplate the next four years of the life of this beautiful, noble, exalted, and awe-inspiring Salt Lake Temple, I envision it more as a time of renewal rather than a time of closure! In a similar way, we might ask ourselves, “How could this extensive renewal of the Salt Lake Temple inspire us to undergo our own spiritual renewal, reconstruction, rebirth, revitalization, or restoration?”
-
-An introspective look may reveal that we too and our families could benefit from our doing some needed maintenance and renovation work, even a seismic upgrade! We might start such a process by asking:
-
-“What does my foundation look like?”
-
-“What comprises the thick-walled, stable, strong cornerstones that are part of my personal foundation, upon which my testimony rests?”
-
-“What are the foundational elements of my spiritual and emotional character that will allow me and my family to remain steadfast and immovable, even to withstand the earthshaking and tumultuous seismic events that will surely take place in our lives?”
-
-These events, similar to an earthquake, are often difficult to predict and come in various levels of intensity—wrestling with questions or doubt, facing affliction or adversity, working through personal offenses with Church leaders, members, doctrine, or policy. The best defense against these lies in our spiritual foundation.
-
-What might spiritual cornerstones of our personal and family lives be? They may be the simple, plain, and precious principles of gospel living—family prayer; scripture study, including the Book of Mormon; temple attendance; and gospel learning through Come, Follow Me and home evening. Other helpful resources to strengthen your spiritual foundation may include the Articles of Faith, the family proclamation, and “The Living Christ.”
-
-For me, the principles included in the questions discussed as part of receiving a temple recommend serve as a strong basis for a spiritual foundation—particularly the first four questions. I see them as spiritual cornerstones.
-
-We, of course, are familiar with these questions, as President Russell M. Nelson read them to us one by one in the last general conference.
-
-Do you have faith in and a testimony of God, the Eternal Father; His Son, Jesus Christ; and the Holy Ghost?
-
-Do you have a testimony of the Atonement of Jesus Christ and of His role as your Savior and Redeemer?
-
-Do you have a testimony of the Restoration of the gospel of Jesus Christ?
-
-Do you sustain the President of The Church of Jesus Christ of Latter-day Saints as the prophet, seer, and revelator and as the only person on the earth authorized to exercise all priesthood keys?
-
-Can you see how you might consider these questions as valuable elements in your personal foundation to help you build and reinforce it? Paul taught the Ephesians of a church which was “built upon the foundation of the apostles and prophets, Jesus Christ himself being the chief corner stone; in whom all the building fitly framed together groweth unto an holy temple in the Lord.”
-
-One of the greatest joys of my life is becoming acquainted with and inspired by members of the Church all over the world who are living exemplars of faith in Jesus Christ and His gospel. They have strong personal foundations that allow them to withstand seismic events with steady understanding, despite their heartache and pain.
-
-To display this on a more personal level, I recently spoke at the funeral of a beautiful, vibrant young wife and mother (also a family friend of ours). She was a scrappy Division 1 soccer player when she met and married her dental student husband. They were blessed with a beautiful, precocious daughter. She valiantly battled with various forms of cancer for six challenging years. Despite the ever-present emotional and physical distress that she experienced, she trusted in her loving Heavenly Father and was often quoted widely by her social media followers for her famous saying: “God is in the details.”
-
-On one of her social media posts, she wrote that someone had asked her, “How do you still have faith with all the heartache that surrounds you?” She replied firmly with these words: “Because faith is what gets me through these dark times. Having faith doesn’t mean nothing bad is going to happen. Having faith allows me to believe that there will be light again. And that light will be even brighter because I have walked through the dark. As much darkness as I have witnessed over the years, I have witnessed far more light. I have seen miracles. I have felt angels. I have known that my Heavenly Father was carrying me. None of that would have been experienced if life was easy. The future of this life may be unknown, but my faith is not. If I choose to not have faith then I choose to only walk in darkness. Because without faith, darkness is all that is left.”
-
-Her unshakable testimony of faith in the Lord Jesus Christ—in her words and in her actions—was an inspiration for others. Even though her body was weak, she lifted others to be stronger.
-
-I think of countless other members of the Church, warriors like this sister, who walk each day in faith, striving to be true and undaunted disciples of our Savior, Jesus Christ. They learn of Christ. They preach of Christ. They strive to emulate Him. Whether the days of their lives face steady or unstable ground, their spiritual foundation is strong and immovable.
-
-These are the devoted souls who understand the profound meaning of the lyrics “How firm a foundation, ye Saints of the Lord” and “who unto the Savior for refuge have fled.” I am grateful beyond measure to walk among those who have prepared a spiritual foundation worthy of the name of Saints and who are strong and secure enough to withstand the many tumults of life.
-
-I don’t think we can overstate the importance of such a firm foundation in our personal lives. Even at an early age, our Primary children are taught as they sing of this very truth:
-
-The wise man built his house upon the rock,
-
-And the rains came tumbling down. …
-
-The rains came down, and the floods came up,
-
-And the house on the rock stood still.
-
-Scripture reinforces this foundational doctrine. The Savior taught the people of the Americas:
-
-“And if ye shall always do these things blessed are ye, for ye are built upon my rock.
-
-“But whoso among you shall do more or less than these are not built upon my rock, but are built upon a sandy foundation; and when the rain descends, and the floods come, and the winds blow, and beat upon them, they shall fall.”
-
-It is the sincere hope of Church leaders that the significant renovations to the Salt Lake Temple will contribute to the fulfillment of Brigham Young’s desire to see “the temple built in a manner that it will endure through the millennium.” During the coming years, may we allow these improvements made to the Salt Lake Temple to move and inspire us, as individuals and families, so that we too—metaphorically—will “be built in a manner that will endure through the millennium.”
-
-We will do so as we fulfill the charge of the Apostle Paul to “[lay] up in store for [ourselves] a good foundation against the time to come, that [we] may lay hold on eternal life.” It is my ardent prayer that our spiritual foundation will be sure and steadfast, that our testimony of the Atonement of Jesus Christ and of His role as our Savior and Redeemer will become for us our own chief cornerstone, of whom I testify in His name, even Jesus Christ, amen.
-
-
----
-
-
-## Opening Message
-
-**Speaker:** By President Russell M. Nelson
-
-**Calling:** President of The Church of Jesus Christ of Latter-day Saints
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/11nelson?lang=eng
-
-My beloved brothers and sisters, as we welcome you to this historic April 2020 general conference of The Church of Jesus Christ of Latter-day Saints, for reasons you know, I stand before you in an empty auditorium!
-
-Little did I know, when I promised you at the October 2019 general conference that this April conference would be “memorable” and “unforgettable,” that speaking to a visible congregation of fewer than 10 people would make this conference so memorable and unforgettable for me! Yet the knowledge that you are participating by electronic transmission, and the choir’s beautiful rendition of “It Is Well with My Soul,” bring great comfort to my soul.
-
-As you know, attendance at this general conference has been strictly limited as part of our efforts to be good global citizens and do all we can to limit the spread of COVID-19. This virus has had a major impact throughout the world. It has also altered our Church meetings, missionary service, and temple work for a while.
-
-Though today’s restrictions relate to a virulent virus, life’s personal trials stretch far beyond this pandemic. Future trials could result from an accident, a natural disaster, or an unexpected personal heartache.
-
-How can we endure such trials? The Lord has told us that “if ye are prepared ye shall not fear.” Of course, we can store our own reserves of food, water, and savings. But equally crucial is our need to fill our personal spiritual storehouses with faith, truth, and testimony.
-
-Our ultimate quest in life is to prepare to meet our Maker. We do this by striving daily to become more like our Savior, Jesus Christ. And we do that as we repent daily and receive His cleansing, healing, and strengthening power. Then we can feel enduring peace and joy, even during turbulent times. This is exactly why the Lord has implored us to stand in holy places and “be not moved.”
-
-This year, we commemorate the 200th anniversary of one of the most significant events in the history of the world—namely, the appearance of God the Father and His Beloved Son, Jesus Christ, to Joseph Smith. During that singular vision, God the Father pointed to Jesus Christ and said: “This is My Beloved Son. Hear Him!”
-
-That admonition given to Joseph is for each of us. We are to seek, in every way we can, to hear Jesus Christ, who speaks to us through the power and ministering of the Holy Ghost.
-
-The purpose of this and every general conference is to help us to hear Him. We have prayed, and invite you to pray, that the Spirit of the Lord will be with us in such rich abundance that you can hear the messages that the Savior has especially for you—messages that will bring peace to your soul. Messages that will heal your broken heart. Messages that will illuminate your mind. Messages that will help you know what to do as you move ahead through times of turmoil and trial.
-
-We pray that this conference will be memorable and unforgettable because of the messages you will hear, the unique announcements which will be made, and the experiences in which you will be invited to participate.
-
-For example, at the conclusion of the Sunday morning session, we will convene a worldwide solemn assembly when I will lead you in the sacred Hosanna Shout. We pray that this will be a spiritual highlight for you as we express in global unison our profound gratitude to God the Father and His Beloved Son by praising Them in this unique way.
-
-For this sacred experience, we use clean white handkerchiefs. But if you do not have one, you may simply wave your hand. At the conclusion of the Hosanna Shout, the congregation will join with the choir in singing “The Spirit of God.”
-
-My dear brothers and sisters, this conference will be magnificent. This year will be extraordinary as we focus intently on the Savior and His restored gospel. The most important lasting effects of this historic conference will be as our hearts change and we commence a lifelong quest to hear Him.
-
-Welcome to April 2020 general conference! I know that God, our Heavenly Father, and His Son, Jesus Christ, are mindful of us. They will be with us throughout the proceedings of these two glorious days as we seek to draw closer to Them and honor Them. In the sacred name of Jesus Christ, amen.
-
-
----
-
-
-## The Melchizedek Priesthood and the Keys
-
-**Speaker:** By President Dallin H. Oaks
-
-**Calling:** First Counselor in the First Presidency
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/36oaks?lang=eng
-
-I have chosen to speak further about the priesthood of God, the subject already addressed by three earlier speakers who taught us about how the priesthood blesses the lives of women, young women, and young men.
-
-The priesthood is a divine power and authority held in trust to be used for God’s work for the benefit of all of His children. Priesthood is not those who have been ordained to a priesthood office or those who exercise its authority. Men who hold the priesthood are not the priesthood. While we should not refer to ordained men as the priesthood, it is appropriate to refer to them as holders of the priesthood.
-
-The power of the priesthood exists both in the Church and in the family organization. But priesthood power and priesthood authority function differently in the Church than they do in the family. All of this is according to the principles the Lord has established. The purpose of God’s plan is to lead His children to eternal life. Mortal families are essential to that plan. The Church exists to provide the doctrine, the authority, and the ordinances necessary to perpetuate family relationships into the eternities. Thus, the family organization and the Church of Jesus Christ have a mutually reinforcing relationship. The blessings of the priesthood—such as the fulness of the gospel and ordinances like baptism, confirmation and receiving the gift of the Holy Ghost, the temple endowment, and eternal marriage—are available to men and women alike.
-
-The priesthood we speak of here is the Melchizedek Priesthood, restored at the beginning of the Restoration of the gospel. Joseph Smith and Oliver Cowdery were ordained by Peter, James, and John, who declared themselves “as possessing the keys of the kingdom, and of the dispensation of the fulness of times” (Doctrine and Covenants 128:20). These senior Apostles received that authority from the Savior Himself. All other authorities or offices in the priesthood are appendages to the Melchizedek Priesthood (see Doctrine and Covenants 107:5), for it “holds the right of presidency, and has power and authority over all the offices in the church in all ages of the world” (Doctrine and Covenants 107:8).
-
-In the Church the authority of the greater priesthood, the Melchizedek Priesthood, and the lesser or Aaronic Priesthood is exercised under the direction of a priesthood leader, like a bishop or president, who holds the keys of that priesthood. To understand the exercise of priesthood authority in the Church, we must understand the principle of priesthood keys.
-
-The Melchizedek Priesthood keys of the kingdom were conferred by Peter, James, and John, but that did not complete the restoration of priesthood keys. Some keys of the priesthood came later. Following the dedication of the first temple of this dispensation in Kirtland, Ohio, three prophets—Moses, Elias, and Elijah—restored “the keys of this dispensation,” including keys pertaining to the gathering of Israel and the work of the temples of the Lord (see Doctrine and Covenants 110), as President Eyring has just described so persuasively.
-
-The most familiar example of the function of keys is in the performance of priesthood ordinances. An ordinance is a solemn act signifying the making of covenants and the promising of blessings. In the Church all ordinances are performed under the authorization of the priesthood leader who holds the keys for that ordinance.
-
-An ordinance is most commonly officiated by persons who have been ordained to an office in the priesthood acting under the direction of one who holds priesthood keys. For example, the holders of the various offices of the Aaronic Priesthood officiate in the ordinance of the sacrament under the keys and direction of the bishop, who holds the keys of the Aaronic Priesthood. The same principle applies to the priesthood ordinances in which women officiate in the temple. Though women do not hold an office in the priesthood, they perform sacred temple ordinances under the authorization of the president of the temple, who holds the keys for the ordinances of the temple.
-
-Another example of priesthood authority under the direction of one who holds the keys are the teachings of men and women called to teach the gospel, whether in classes in their home wards or in the mission field. Other examples are those who hold leadership positions in the ward and exercise priesthood authority in their leadership by reason of their callings and under the setting apart and direction of the priesthood leader who holds the keys in the ward or the stake. This is how the authority and power of the priesthood is exercised and enjoyed in The Church of Jesus Christ of Latter-day Saints.
-
-Priesthood authority is also exercised and its blessings realized in the families of Latter-day Saints. By families I mean a priesthood-holding man and a woman who are married and their children. I also include the variations from the ideal relationships such as caused by death or divorce.
-
-The principle that priesthood authority can be exercised only under the direction of the one who holds the keys for that function is fundamental in the Church, but this does not apply in the family. For example, a father presides and exercises the priesthood in his family by the authority of the priesthood he holds. He has no need to have the direction or approval of one holding priesthood keys in order to perform his various family functions. These include counseling the members of his family, holding family meetings, giving priesthood blessings to his wife and children, or giving healing blessings to family members or others. Church authorities teach family members but do not direct the exercise of priesthood authority in the family.
-
-The same principle applies when a father is absent and a mother is the family leader. She presides in her home and is instrumental in bringing the power and blessings of the priesthood into her family through her endowment and sealing in the temple. While she is not authorized to give the priesthood blessings that can be given only by a person holding a certain office in the priesthood, she can perform all of the other functions of family leadership. In doing so, she exercises the power of the priesthood for the benefit of the children over whom she presides in her position of leadership in the family.
-
-If fathers would magnify their priesthood in their own family, it would further the mission of the Church as much as anything else they might do. Fathers who hold the Melchizedek Priesthood should exercise their authority “by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned” (Doctrine and Covenants 121:41). That high standard for the exercise of all priesthood authority is most important in the family. Holders of the priesthood should also keep the commandments so they will have the power of the priesthood to give blessings to their family members. They should cultivate loving family relationships so that family members will want to ask them for blessings. And parents should encourage more priesthood blessings in the family.
-
-In these conference meetings, as we seek brief shelter from our mortal concerns with a devastating pandemic, we have been taught great principles of eternity. I encourage each of us to have our eye “single” to receive these truths of eternity so that our bodies “shall be full of light” (3 Nephi 13:22).
-
-In His sermon to multitudes recorded in the Bible and in the Book of Mormon, the Savior taught that mortal bodies can be full of light or full of darkness. We, of course, want to be filled with light, and our Savior taught us how we can make this happen. We should listen to messages about the truths of eternity. He used the example of our eye, through which we take light into our bodies. If our “eye be single”—in other words, if we are concentrating on receiving eternal light and understanding—He explained, “thy whole body shall be full of light” (Matthew 6:22; 3 Nephi 13:22). But if our “eye be evil”—that is, if we look for evil and take that into our bodies—He warned, “thy whole body shall be full of darkness” (verse 23). In other words, the light or darkness in our bodies depends on how we see—or receive—the eternal truths we are taught.
-
-We should follow the Savior’s invitation to seek and ask to understand the truths of eternity. He promises that our Father in Heaven is willing to teach everyone the truths they seek (see 3 Nephi 14:8). If we desire this and have our eye single to receive them, the Savior promises that the truths of eternity “shall be opened” unto us (see 3 Nephi 14:7–8).
-
-In contrast, Satan is anxious to confuse our thinking or to lead us astray on important matters like the operations of the priesthood of God. The Savior warned of such “false prophets, who come to you in sheep’s clothing, but inwardly they are ravening wolves” (3 Nephi 14:15). He gave us this test to help us choose the truth from among different teachings that might confuse us: “Ye shall know them by their fruits,” He taught (3 Nephi 14:16). “A good tree cannot bring forth evil fruit, neither [can] a corrupt tree bring forth good fruit” (verse 18). Therefore, we should look to the results—“the fruits”—of principles that are taught and the persons who teach them. That is the best answer to many of the objections we hear against the Church and its doctrines and policies and leadership. Follow the test the Savior taught. Look to the fruits—the results.
-
-When we think of the fruits of the gospel and the restored Church of Jesus Christ, we rejoice in how the Church, in the lifetimes of its living members, has expanded from local congregations in the Intermountain West to where a majority of its more than 16 million members reside in nations other than the United States. With that growth, we have felt increases in the Church’s capacity to assist its members. We assist in keeping the commandments, in fulfilling responsibilities to preach the restored gospel, in gathering Israel, and in building temples throughout the world.
-
-We are led by a prophet, President Russell M. Nelson, whose leadership the Lord has used to achieve the progress we have felt during all of the more than two years of his leadership. Now we will be blessed to hear from President Nelson, who will teach us how to further our progress in this restored Church of Jesus Christ in these challenging times.
-
-I testify of the truth of these things and join you in praying for our prophet, from whom we will next hear, in the name of Jesus Christ, amen.
-
-
----
-
-
-## Come and Belong
-
-**Speaker:** By Elder Dieter F. Uchtdorf
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/54uchtdorf?lang=eng
-
-My dear brothers and sisters, my dear friends, each week members of The Church of Jesus Christ of Latter-day Saints all around the globe worship our beloved Heavenly Father, the God and King of the universe, and His Beloved Son, Jesus Christ. We ponder the life and teachings of Jesus Christ—the only sinless soul who ever lived, the spotless Lamb of God. As often as we can, we partake of the sacrament in remembrance of His sacrifice and recognize that He is the center in our lives.
-
-We love Him and we honor Him. Because of His profound and eternal love, Jesus Christ suffered and died for you and me. He broke open the gates of death, shattered the barriers that separated friends and loved ones, and brought hope to the hopeless, healing to the sick, and deliverance to the captive.
-
-To Him we dedicate our hearts, our lives, and our daily devotion. For this reason, “we talk of Christ, we rejoice in Christ, [and] we preach of Christ, … that our children may know to what source they may look for a remission of their sins.”
-
-However, being a disciple of Jesus Christ involves much more than talking and preaching of Christ. The Savior Himself restored His Church to help us on the path to become more like Him. The Church of Jesus Christ of Latter-day Saints is structured to provide opportunities to practice the fundamentals of discipleship. Through our participation in the Church, we learn to recognize and act on the promptings of the Holy Spirit. We develop the disposition of reaching out in compassion and kindness to others.
-
-This is an effort of a lifetime, and it requires practice.
-
-Accomplished athletes spend countless hours practicing the fundamentals of their sports. Nurses, networkers, nuclear engineers, and even I as a competitive hobby cook in Harriet’s kitchen become capable and skilled only as we diligently practice our craft.
-
-As an airline captain, I often trained pilots using a flight simulator—a sophisticated machine that replicates the flying experience. The simulator not only helps pilots learn the fundamentals of flying; it also allows them to experience and react to unexpected events they could encounter when they take command of the real aircraft.
-
-The same principles apply for disciples of Jesus Christ.
-
-Actively participating in the Church of Jesus Christ and its great variety of opportunities will help us to be better prepared for life’s changing circumstances, whatever and however serious they may be. As members of the Church, we are encouraged to immerse ourselves in the words of God through His prophets, ancient and modern. Through sincere and humble prayer to our Heavenly Father, we learn to recognize the voice of the Holy Spirit. We accept calls to serve, teach, plan, minister, and administer. These opportunities allow us to grow in spirit, mind, and character.
-
-They will help us prepare to make and keep sacred covenants that will bless us in this life and in the life to come.
-
-We invite all of God’s children throughout the world to join us in this great endeavor. Come and see! Even during this challenging time of COVID-19, meet with us online. Meet with our missionaries online. Find out for yourself what this Church is all about! When this difficult time has passed, meet with us in our homes and in our worship places!
-
-We invite you to come and help! Come and serve with us, ministering to God’s children, following in the footsteps of the Savior, and making this world a better place.
-
-Come and belong! You will make us stronger. And you will become better, kinder, and happier as well. Your faith will deepen and grow more resilient—more capable of withstanding the turbulences and unexpected trials of life.
-
-And how do we start? There are many possible ways.
-
-We invite you to read the Book of Mormon. If you don’t have a copy, you can read it on ChurchofJesusChrist.org or download the Book of Mormon app. The Book of Mormon is another testament of Jesus Christ and a companion to the Old and New Testaments. We love all of these holy scriptures and learn from them.
-
-We invite you to spend some time at ComeuntoChrist.org to find out what members of the Church teach and believe.
-
-Invite the missionaries to visit with you online or in the privacy of your home where this is possible—they have a message of hope and healing. These missionaries are our precious sons and daughters who serve in many places around the world on their own time and money.
-
-In the Church of Jesus Christ, you will find a family of people who are not so different from you. You will find people who need your help and who want to help you as you strive to become the best version of yourself—the person God created you to become.
-
-You might be thinking, “I have made mistakes in my life. I’m not sure I could ever feel like I belong in the Church of Jesus Christ. God couldn’t be interested in someone like me.”
-
-Jesus the Christ, though He is “the King of kings,” the Messiah, “the Son of the living God,” does care deeply about each and every one of God’s children. He cares regardless of a person’s position—how poor or rich, how imperfect or proven someone is. During His mortal life, the Savior ministered to all: to the happy and accomplished, to the broken and lost, and to those without hope. Often, the people He served and ministered to were not individuals of prominence, beauty, or wealth. Often, the people He lifted up had little to offer in return but gratitude, a humble heart, and the desire to have faith.
-
-If Jesus spent His mortal life ministering to “the least of these,” would He not love them today? Is there not a place in His Church for all of God’s children? Even for those who feel unworthy, forgotten, or alone?
-
-There is no threshold of perfection you must attain in order to qualify for God’s grace. Your prayers do not have to be loud or eloquent or grammatically correct in order to reach heaven.
-
-In truth, God does not show favoritism—the things the world values mean nothing to Him. He knows your heart, and He loves you regardless of your title, financial net worth, or number of Instagram followers.
-
-As we incline our hearts to our Heavenly Father and draw near to Him, we will feel Him draw near to us.
-
-We are His beloved children.
-
-Even those who reject Him.
-
-Even those who, like a headstrong, unruly child, become angry with God and His Church, pack their bags, and storm out the door proclaiming that they’re running away and never coming back.
-
-When a child runs away from home, he or she may not notice the concerned parents looking out the window. With tender hearts, they watch their son or daughter go—hoping their precious child will learn something from this heartrending experience and perhaps see life with new eyes—and eventually return home.
-
-So it is with our loving Heavenly Father. He is waiting for our return.
-
-Your Savior, tears of love and compassion in His eyes, awaits your return. Even when you feel far away from God, He will see you; He will have compassion for you and run to embrace you.
-
-Come and belong.
-
-We are pilgrims walking the road of mortality in a grand search for meaning and ultimate truth. Often, all we see is the path directly ahead—we cannot see where the bends in the road will lead. Our loving Heavenly Father has not given us every answer. He expects us to figure out many things for ourselves. He expects us to believe—even when it’s difficult to do so.
-
-He expects us to straighten our shoulders and develop a little resolve—a little backbone—and take another step forward.
-
-That is the way we learn and grow.
-
-Would you honestly want everything spelled out in every detail? Would you honestly want every question answered? Every destination mapped out?
-
-I believe most of us would tire very quickly of this sort of heavenly micromanagement. We learn the important lessons of life through experience. Through learning from our mistakes. Through repenting and realizing for ourselves that “wickedness never was happiness.”
-
-Jesus Christ, the Son of God, died so that our mistakes might not condemn us and forever halt our progress. Because of Him, we can repent, and our mistakes can become stepping-stones to greater glory.
-
-You don’t have to walk this road alone. Our Heavenly Father has not left us to wander in darkness.
-
-This is why, in the spring of 1820, He appeared with His Son, Jesus Christ, to a young man, Joseph Smith.
-
-Think of that for a moment! The God of the universe appeared to man!
-
-This was the first of many encounters Joseph had with God and other heavenly beings. Many of the words these divine beings spoke to him are recorded in the scriptures of The Church of Jesus Christ of Latter-day Saints. They are easily accessible. Anyone can read them and learn for themselves the message God has for us in our day.
-
-We invite you to study them for yourself.
-
-Joseph Smith was quite young when he received these revelations. Most of them came before he was 30 years old. He lacked experience, and to some people, he probably seemed underqualified to be the Lord’s prophet.
-
-And yet the Lord called him anyway—following a pattern we find throughout the holy scriptures.
-
-God didn’t wait to find a perfect person to restore His gospel.
-
-If He had, He would still be waiting.
-
-Joseph was a lot like you and me. Though Joseph made mistakes, God used him to accomplish His great purposes.
-
-President Thomas S. Monson often repeated these words of advice: “Whom the Lord calls, the Lord qualifies.”
-
-The Apostle Paul reasoned with the Saints in Corinth: “Consider your own call, brothers and sisters: not many of you were wise by human standards, not many were powerful, not many were of noble birth.”
-
-God uses the weak and the plain to bring about His purposes. This truth stands as a testimony that it is God’s power, not man’s, that accomplishes His work on the earth.
-
-When God appeared to Joseph Smith, He introduced His Son, Jesus Christ, and said, “Hear Him!”
-
-Joseph spent the rest of his life hearing Him and following Him.
-
-As with Joseph, our discipleship begins with our decision to hear and follow the Savior Jesus Christ.
-
-If you desire to follow Him, gather your faith and take upon yourself His cross.
-
-You will find that you do belong in His Church—a place of warmth and welcoming where you can join in the grand pursuit of discipleship and happiness.
-
-It is my hope that, in this bicentennial year of the First Vision, as we contemplate and learn of the Restoration of the Church of Jesus Christ, we will realize that it is not just a historical event. You and I play a crucial part in this great, continuing story.
-
-What, then, is your and my part?
-
-It is to learn of Jesus Christ. To study His words. To hear Him and to follow Him by actively participating in this great work. I invite you to come and belong!
-
-You don’t have to be perfect. You only have to have a desire to develop your faith and draw nearer to Him each day.
-
-Our part is to love and serve God and to love and serve God’s children.
-
-As you do so, God will encircle you with His love, joy, and certain guidance through this life, even under the most serious circumstances, and even beyond.
-
-Of this I testify and leave you my blessing in deep gratitude and love for each one of you, in the sacred name of our Savior, our Master—in the name of Jesus Christ, amen.
-
-
----
-
-
-## Sharing the Message of the Restoration and the Resurrection
-
-**Speaker:** By Elder D. Todd Christofferson
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/56christofferson?lang=eng
-
-Throughout this general conference we have spoken and sung with joy about the fulfillment of the long-ago prophesied “restitution of all things,” about bringing “together in one all things in Christ,” about the return of the fulness of the gospel, priesthood, and Church of Jesus Christ to the earth, all of which we capture in the title “the Restoration.”
-
-But the Restoration is not only for those of us who rejoice in it today. The revelations of the First Vision were not for Joseph Smith alone but are offered as light and truth for any who “lack wisdom.” The Book of Mormon is the possession of mankind. The priesthood ordinances of salvation and exaltation were prepared for every individual, including those who no longer dwell in mortality. The Church of Jesus Christ of Latter-day Saints and its blessings are intended for all who want them. The gift of the Holy Ghost is meant for everyone. The Restoration belongs to the world, and its message is especially urgent today.
-
-“Wherefore, how great the importance to make these things known unto the inhabitants of the earth, that they may know that there is no flesh that can dwell in the presence of God, save it be through the merits, and mercy, and grace of the Holy Messiah, who layeth down his life according to the flesh, and taketh it again by the power of the Spirit, that he may bring to pass the resurrection of the dead.”
-
-From the day that the Prophet’s brother Samuel Smith filled his satchel with freshly printed copies of the Book of Mormon and set out on foot to share the new scripture, the Saints have labored without ceasing “to make these things known unto the inhabitants of the earth.”
-
-In 1920, then-Elder David O. McKay of the Quorum of the Twelve Apostles began a yearlong tour of the missions of the Church. By May 1921, he was standing in a small cemetery in Fagali‘i, Samoa, before the well-tended graves of three small children, the daughter and two sons of Thomas and Sarah Hilton. These little ones—the oldest was two—died during the time Thomas and Sarah served as a young missionary couple in the late 1800s.
-
-Before he left Utah, Elder McKay promised Sarah, now a widow, that he would visit her children’s graves in Samoa as she had never been able to return there. Elder McKay wrote back to her, “Your three little ones, Sister Hilton, in silence most eloquent … carry on your noble missionary work begun nearly thirty years ago.” Then he added a verse of his own composition:
-
-By loving hands their dying eyes were closed,
-
-By loving hands their little limbs composed,
-
-By foreign hands their humble graves adorned,
-
-By strangers honor’d, and by strangers mourned.
-
-This story is but one of thousands, hundreds of thousands, that speak of the time, treasure, and lives sacrificed over the last 200 years to share the message of the Restoration. Our aspiration to reach every nation, kindred, tongue, and people is undiminished today, as witnessed by the tens of thousands of young men, women, and couples currently serving under full-time mission calls; by Church members generally, who echo Philip’s invitation to come and see; and by the millions of dollars spent annually to sustain this effort across the world.
-
-While our invitations are without compulsion, we hope people will find them compelling. For that to be so, I believe at least three things are required: first, your love; second, your example; and third, your use of the Book of Mormon.
-
-Our invitations cannot be a matter of self-interest; rather, they must be an expression of selfless love. This love, known as charity, the pure love of Christ, is ours for the asking. We are invited, even commanded, to “pray unto the Father with all the energy of heart, that [we] may be filled with this love.”
-
-As an example, I share an experience related by Sister Lanett Ho Ching, currently serving with her husband, President Francis Ho Ching, who presides over the Samoa Apia Mission. Sister Ho Ching relates:
-
-“Years ago, our young family moved to a tiny home in Laie, Hawaii. The carport of our home had been converted into a studio apartment, where a man named Jonathan lived. Jonathan had been our neighbor in another place. Feeling it wasn’t a coincidence that the Lord had put us together, we decided to be more open about our activities and membership in the Church. Jonathan enjoyed our friendship and loved spending time with our family. He liked learning about the gospel, but he was not interested in committing to the Church.
-
-“In time, Jonathan earned the nickname ‘Uncle Jonathan’ with our children. As our family continued to grow, so did Jonathan’s interest in our happenings. Our invitations to holiday parties, birthdays, school events, and Church activities extended to family home evenings and the children’s baptisms.
-
-“One day I received a phone call from Jonathan. He needed help. He suffered from diabetes and had developed a severe foot infection that required an amputation. Our family and neighboring ward members walked him through that time of trial. We took turns at the hospital, and priesthood blessings were offered. While Jonathan was in rehab, with the help of Relief Society sisters, we cleaned his apartment. The priesthood brethren built a ramp to his doorway and hand railings in the bathroom. When Jonathan returned home, he was overcome with emotion.
-
-“Jonathan began taking the missionary lessons again. The week before New Year’s, he called me and asked, ‘What are you doing on New Year’s Eve?’ I reminded him about our annual party. But instead, he replied, ‘I want you to come to my baptism! I want to start this new year right.’ After 20 years of ‘come and see,’ ‘come and help,’ and ‘come and stay,’ this precious soul was ready to be baptized.
-
-“In 2018, when we were called to be mission president and companion, Jonathan’s health was declining. We begged him to stay strong awaiting our return. He carried on for almost a year, but the Lord was preparing him to come home. He passed away peacefully in April 2019. My daughters attended their ‘Uncle Jonathan’s’ funeral and sang the same song we sang at his baptism.”
-
-I introduce the second requirement for successfully sharing the message of the Restoration with this question: what is it that will make your invitation appealing to someone? Isn’t it you, the example of your life? Many who have heard and received the message of the Restoration were initially attracted by what they perceived in a member or members of the Church of Jesus Christ. It may have been the way they treated others, the things they said or didn’t say, the steadiness they displayed in difficult situations, or simply their countenance.
-
-Whatever it may be, we cannot escape the fact that we need to understand and live the principles of the restored gospel as best we can for our invitations to be inviting. It is something often referred to today as authenticity. If the love of Christ dwells in us, others will know that our love for them is genuine. If the light of the Holy Spirit burns within us, it will rekindle the Light of Christ within them. What you are lends authenticity to your invitation to come experience the joy of the fulness of the gospel of Jesus Christ.
-
-The third requisite is liberal use of the instrument of conversion that God designed for this last gospel dispensation, the Book of Mormon. It is palpable evidence of Joseph Smith’s prophetic calling and convincing evidence of the divinity and Resurrection of Jesus Christ. Its exposition of our Heavenly Father’s plan of redemption is unequalled. When you share the Book of Mormon, you share the Restoration.
-
-When Jason Olson was a teenager, he was warned repeatedly by family members and others against becoming a Christian. He had two good friends, however, who were members of The Church of Jesus Christ of Latter-day Saints, and they often discussed religion. His friends, Shea and Dave, respectfully countered arguments that others had given Jason against faith in Jesus Christ. Finally, they gave him a copy of the Book of Mormon, saying, “This book will answer your questions. Please read it.” He reluctantly accepted the book and put it in his backpack, where it stayed for several months. He didn’t want to leave it at home where his family might see it, and he didn’t want to disappoint Shea and Dave by returning it. Finally, he settled on the solution of burning the book.
-
-One night, with a lighter in one hand and the Book of Mormon in the other, he was about to set fire to the book when he heard a voice in his mind that said, “Do not burn my book.” Startled, he paused. Then, thinking he had imagined the voice, he attempted again to ignite the lighter. Again, the voice came to his mind: “Go to your room and read my book.” Jason put the lighter away, walked back to his bedroom, opened the Book of Mormon, and began to read. He continued day after day, often into the early hours of the morning. As Jason came to the end and prayed, he recorded, “I was filled from the crown of my head to the soles of my feet with the Spirit. … I felt full of light. … It was the most joyous experience I had ever had in my life.” He sought baptism and later became a missionary himself.
-
-Perhaps it goes without saying that despite genuine love and sincerity, many, if not most, of our invitations to share the message of the Restoration will be declined. But remember this: everyone is worthy of such an invitation—“all are alike unto God”; the Lord is pleased with every effort we make, no matter the outcome; a declined invitation is no reason for our association to end; and a lack of interest today may well turn to interest tomorrow. Regardless, our love remains constant.
-
-Let us never forget that the Restoration has come out of intense ordeal and sacrifice. That is a subject for another day. Today we rejoice in the fruits of the Restoration, one of the most surpassing being the power once again to bind on earth and in heaven. As expressed years ago by President Gordon B. Hinckley, “If nothing else came out of all of the sorrow and travail and pain of the restoration than the sealing power of the holy priesthood to bind together families forever, it would have been worth all that it has cost.”
-
-The ultimate promise of the Restoration is redemption through Jesus Christ. The Resurrection of Jesus Christ is the proof that He, in fact, possesses power to redeem all who will come unto Him—redeem them from sorrow, injustice, regret, sin, and even death. Today is Palm Sunday; a week from today is Easter. We remember, we always remember, Christ’s suffering and death to atone for our sins, and we celebrate that most wonderful of Sundays, the Lord’s day, on which He rose from the dead. Because of the Resurrection of Jesus Christ, the Restoration has meaning, our mortal lives have meaning, and ultimately our very existence has meaning.
-
-Joseph Smith, the great prophet of the Restoration, offers the overarching testimony for our time of the resurrected Christ: “That he lives! For we saw him, even on the right hand of God.” I humbly add my witness to Joseph’s and to that of the apostles and prophets before him and the apostles and prophets who have succeeded him, that Jesus of Nazareth is the promised Messiah, the Only Begotten Son of God, and the resurrected Redeemer of all mankind.
-
-“We testify that those who prayerfully study the message of the Restoration and act in faith will be blessed to gain their own witness of its divinity and of its purpose to prepare the world for the promised Second Coming of our Lord and Savior, Jesus Christ.” Christ’s Resurrection makes His promises sure. In the name of Jesus Christ, amen.
-
-
----
-
-
-## Sustaining of General Authorities, Area Seventies, and General Officers
-
-**Speaker:** Presented by President Dallin H. Oaks
-
-**Calling:** First Counselor in the First Presidency
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/21oaks?lang=eng
-
-Brothers and sisters, I will now present to you the General Authorities, Area Seventies, and General Officers of the Church for your sustaining vote.
-
-Please express your vote in the usual way wherever you may be. If there are those who oppose any of the proposals as set forth, we ask that you contact your stake president.
-
-It is proposed that we sustain Russell Marion Nelson as prophet, seer, and revelator and President of The Church of Jesus Christ of Latter-day Saints; Dallin Harris Oaks as First Counselor in the First Presidency; and Henry Bennion Eyring as Second Counselor in the First Presidency.
-
-Those in favor may manifest it.
-
-Those opposed, if any, may manifest it.
-
-It is proposed that we sustain Dallin H. Oaks as President of the Quorum of the Twelve Apostles and M. Russell Ballard as Acting President of the Quorum of the Twelve Apostles.
-
-Those in favor, please signify.
-
-Any opposed may manifest it.
-
-It is proposed that we sustain the following as members of the Quorum of the Twelve Apostles: M. Russell Ballard, Jeffrey R. Holland, Dieter F. Uchtdorf, David A. Bednar, Quentin L. Cook, D. Todd Christofferson, Neil L. Andersen, Ronald A. Rasband, Gary E. Stevenson, Dale G. Renlund, Gerrit W. Gong, and Ulisses Soares.
-
-Those in favor, please manifest it.
-
-Any opposed may so indicate.
-
-It is proposed that we sustain the counselors in the First Presidency and the Quorum of the Twelve Apostles as prophets, seers, and revelators.
-
-All in favor, please manifest it.
-
-Contrary, if there be any, by the same sign.
-
-It is proposed that we release the following as Area Seventies: Elders Jorge T. Becerra, Mark S. Bryce, Jeremy R. Jaggi, Kelly R. Johnson, Adeyinka A. Ojediran, and Moisés Villanueva.
-
-Those who wish to join us in expressing appreciation for their excellent service, please manifest it.
-
-It is proposed that we release with heartfelt gratitude the Young Men General Presidency as follows: Stephen W. Owen as President, Douglas D. Holmes as First Counselor, and M. Joseph Brough as Second Counselor.
-
-All who wish to join us in expressing appreciation to these brethren for their remarkable service, please manifest it.
-
-It is proposed that we sustain the following as General Authority Seventies: Jorge T. Becerra, Matthew S. Holland, William K. Jackson, Jeremy R. Jaggi, Kelly R. Johnson, Thierry K. Mutombo, Adeyinka A. Ojediran, Ciro Schmeil, and Moisés Villanueva.
-
-All in favor, please manifest it.
-
-Those opposed, by the same sign.
-
-It is proposed that we sustain the following as Area Seventies: Jay D. Andersen, Faapito Auapaau, Frederick K. Balli Jr., Kevin W. Birch, John W. Boswell III, J. Francisco Bührer, Suchat Chaichana, Matthew R. Clarke, L. Guido Cristobal, Edmarc R. Dumas, Carlos A. Gabaldón, M. Andrew Galt IV, Clark G. Gilbert, Leonard D. Greer, Vladislav Y. Gornostaev, D. Martin Goury, Richard I. Heaton, Broc C. Hiatt, David H. Huntsman, Norman C. Insong, Daniel Kabason, Federico M. Kähnlein, Jeffrey J. Kerr, Youngjoon Kwon, David G. LaFrance, Ricardo C. Leite, Marcelo Louza, Jose G. Manarin, Jeremiah J. Morgan, Mark A. Mortensen, Eduardo F. Ortega, Nathan D. Pace, Michael M. Packer, Omar I. Palacios, Jorge W. Pérez, Kyrylo Pokhylko, Sergio A. Poncio, Arthur Rascon, Miguel A. Reynoso, Gustavo G. Rezende, Robert G. Rivarola, Tonga J. Sai, Luciano Sankari, Rosendo Santos, Henry Savstrom, J. Matthew Scott, James E. Slaughter, Robert T. Smith, Ricardo A. Spencer, Colin C. Stauffer, David C. Stewart, Jared W. Stone, Arlen M. Tumaliuan, Martin J. Turvey, Yan C. Vega, Paul B. Whippy, Chad R. Wilkinson, and Dow R. Wilson.
-
-All in favor, please manifest it.
-
-Those opposed, if any.
-
-It is proposed that we sustain as the new Young Men General Presidency Steven J. Lund as President, Ahmad Saleem Corbitt as First Counselor, and Bradley Ray Wilcox as Second Counselor.
-
-Those in favor may manifest it.
-
-Any opposed may so signify.
-
-It is proposed that we sustain the other General Authorities, Area Seventies, and General Officers as presently constituted.
-
-All in favor, please manifest it.
-
-Those opposed, if any.
-
-Again, we invite those who may have opposed any of the proposals to contact their stake presidents.
-
-We thank you for your continued faith and prayers in behalf of the leaders of the Church.
-
-
----
-
-
-## Opening the Heavens for Help
-
-**Speaker:** By President Russell M. Nelson
-
-**Calling:** President of The Church of Jesus Christ of Latter-day Saints
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/37nelson?lang=eng
-
-What a unique and wonderful session this has been! Thank you, dear Laudy and Enzo. You represented the magnificent young women and young men of the Church so very well.
-
-My dear brothers and sisters, we have heard much today about the Restoration of the Church—the very Church that our Savior, Jesus Christ, established during His earthly ministry. That Restoration began 200 years ago this spring when God the Father and His Son, Jesus Christ, appeared to the young Joseph Smith.
-
-Ten years after this transcendent vision, the Prophet Joseph Smith and five others were called as founding members of the Lord’s restored Church.
-
-From that small group assembled on April 6, 1830, has come a global organization of more than 16 million members. The good this Church accomplishes around the world to alleviate human suffering and provide uplift for humankind is widely known. But its prime purpose is to help men, women, and children follow the Lord Jesus Christ, keep His commandments, and qualify for the greatest of all blessings—that of eternal life with God and their loved ones.
-
-As we commemorate the event that was launched in 1820, it is important to remember that while we revere Joseph Smith as a prophet of God, this is not the church of Joseph Smith, nor is it the church of Mormon. This is the Church of Jesus Christ. He decreed exactly what His Church should be called: “For thus shall my church be called in the last days, even The Church of Jesus Christ of Latter-day Saints.”
-
-I have spoken previously about a needed course correction in the way we refer to the name of the Church. Since that time, much has been done to accomplish this correction. I am very grateful to President M. Russell Ballard and the entire Quorum of the Twelve Apostles, who have done so much to lead these efforts as well as those related to another initiative that I will announce this evening.
-
-Church leaders and departments, related entities, and millions of members—and others—now use the correct name of the Church. The Church’s official style guide has been adjusted. The Church’s principal website is now ChurchofJesusChrist.org. Addresses for email, domain names, and social media channels have been updated. Our beloved choir is now the Tabernacle Choir at Temple Square.
-
-We have gone to these extraordinary efforts because when we remove the Lord’s name from the name of His Church, we inadvertently remove Him as the central focus of our worship and our lives. When we take the Savior’s name upon us at baptism, we commit to witness, by our words, thoughts, and actions, that Jesus is the Christ.
-
-Previously, I promised that if we would “do our best to restore the correct name of the Lord’s Church,” He would “pour down His power and blessings upon the heads of the Latter-day Saints, the likes of which we have never seen.” I renew that promise today.
-
-To help us remember Him and to identify The Church of Jesus Christ of Latter-day Saints as the Lord’s Church, we are pleased to introduce a symbol that will signify the central place of Jesus Christ in His Church.
-
-This symbol includes the name of the Church contained within a cornerstone. Jesus Christ is the chief cornerstone.
-
-At the center of the symbol is a representation of Thorvaldsen’s marble statue the Christus. It portrays the resurrected, living Lord reaching out to embrace all who will come unto Him.
-
-Symbolically, Jesus Christ is standing under an arch. The arch reminds us of the resurrected Savior emerging from the tomb on the third day following His Crucifixion.
-
-This symbol should feel familiar to many, as we have long identified the restored gospel with the living, resurrected Christ.
-
-The symbol will now be used as a visual identifier for official literature, news, and events of the Church. It will remind all that this is the Savior’s Church and that all we do as members of His Church centers on Jesus Christ and His gospel.
-
-Now, my dear brothers and sisters, tomorrow is Palm Sunday, as Elder Gong has so eloquently taught. Then we enter the special week that culminates with Easter. As followers of Jesus Christ, living in a day when the COVID-19 pandemic has put the whole world in commotion, let us not just talk of Christ or preach of Christ or employ a symbol representing Christ.
-
-Let us put our faith in the Lord Jesus Christ into action!
-
-As you know, members of the Church observe the law of the fast one day each month.
-
-The doctrine of fasting is ancient. It has been practiced by biblical heroes from the earliest days. Moses, David, Ezra, Nehemiah, Esther, Isaiah, Daniel, Joel, and many others fasted and preached of fasting. Through Isaiah’s writings, the Lord said: “Is not this the fast that I have chosen? to loose the bands of wickedness, to undo the heavy burdens, and to let the oppressed go free?”
-
-The Apostle Paul admonished Saints in Corinth to “give yourselves to fasting and prayer.” The Savior Himself declared that certain things go “not out but by prayer and fasting.”
-
-I said recently in a social media video that “as a physician and surgeon, I have great admiration for medical professionals, scientists, and all who are working around the clock to curb the spread of COVID-19.”
-
-Now, as President of The Church of Jesus Christ of Latter-day Saints and an Apostle of Jesus Christ, I know that God “has all power, all wisdom, and all understanding; he comprehendeth all things, and he is a merciful Being, even unto salvation, to those who will repent and believe on his name.”
-
-So, during times of deep distress, as when illness reaches pandemic proportions, the most natural thing for us to do is to call upon our Heavenly Father and His Son—the Master Healer—to show forth Their marvelous power to bless the people of the earth.
-
-In my video message, I invited all to join in fasting on Sunday, March 29, 2020. Many of you may have seen the video and joined in the fast. Some may have not. Now we still need help from heaven.
-
-So tonight, my dear brothers and sisters, in the spirit of the sons of Mosiah, who gave themselves to much fasting and prayer, and as part of our April 2020 general conference, I am calling for another worldwide fast. For all whose health may permit, let us fast, pray, and unite our faith once again. Let us prayerfully plead for relief from this global pandemic.
-
-I invite all, including those not of our faith, to fast and pray on Good Friday, April 10, that the present pandemic may be controlled, caregivers protected, the economy strengthened, and life normalized.
-
-How do we fast? Two meals or a period of 24 hours is customary. But you decide what would constitute a sacrifice for you, as you remember the supreme sacrifice the Savior made for you. Let us unite in pleading for healing throughout the world.
-
-Good Friday would be the perfect day to have our Heavenly Father and His Son hear us!
-
-Dear brothers and sisters, I express my deep love for you, along with my testimony of the divinity of the work in which we are engaged. This is The Church of Jesus Christ of Latter-day Saints. He stands at its head and directs all that we do. I know that He will respond to the pleadings of His people. I so testify in the sacred name of Jesus Christ, amen.
-
-
----
-
-
-## The Great Plan
-
-**Speaker:** By President Dallin H. Oaks
-
-**Calling:** First Counselor in the First Presidency
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/51oaks?lang=eng
-
-Even in the midst of unique trials and challenges, we are truly blessed! This general conference has given us an outpouring of the riches and joy of the Restoration of the gospel of Jesus Christ. We have rejoiced in the vision of the Father and the Son that commenced the Restoration. We have been reminded of the miraculous coming forth of the Book of Mormon, whose central purpose is to testify of Jesus Christ and His doctrine. We have been renewed with the joyful reality of revelation—to prophets and to us personally. We have heard precious testimonies of the infinite Atonement of Jesus Christ and of His literal Resurrection. And we have been taught other truths of the fulness of His gospel revealed to Joseph Smith after God the Father declared to that newly called prophet: “This is My Beloved Son. Hear Him!” (Joseph Smith—History 1:17).
-
-We have been affirmed in our knowledge of the restoration of the priesthood and its keys. We have been renewed in our determination to have the Lord’s restored Church known by its proper name, The Church of Jesus Christ of Latter-day Saints. And we have been invited to join in fasting and prayer to minimize the present and future effects of a devastating worldwide pandemic. This morning we were inspired by the Lord’s living prophet presenting an historic proclamation of the Restoration. We affirm its declaration that “those who prayerfully study the message of the Restoration and act in faith will be blessed to gain their own witness of its divinity and of its purpose to prepare the world for the promised Second Coming of our Lord and Savior, Jesus Christ.”
-
-All of this is part of a divine plan whose purpose is to enable the children of God to be exalted and become like Him. Referred to in the scriptures as the “great plan of happiness,” “the plan of redemption,” and the “plan of salvation” (Alma 42:8, 11, 5), that plan—revealed in the Restoration—began with a Council in Heaven. As spirits, we desired to achieve the eternal life enjoyed by our heavenly parents. At that point we had progressed as far as we could without a mortal experience in a physical body. To provide that experience, God the Father planned to create this earth. In the planned mortal life, we would be soiled by sin as we faced the opposition necessary for our spiritual growth. We would also become subject to physical death. To reclaim us from death and sin, our Heavenly Father’s plan would provide a Savior. His Resurrection would redeem all from death, and His atoning sacrifice would pay the price necessary for all to be cleansed from sin on the conditions prescribed to promote our growth. This Atonement of Jesus Christ is central to the Father’s plan.
-
-In the Council in Heaven, all the spirit children of God were introduced to the Father’s plan, including its mortal consequences and trials, its heavenly helps, and its glorious destiny. We saw the end from the beginning. All of the myriads of mortals who have been born on this earth chose the Father’s plan and fought for it in the heavenly contest that followed. Many also made covenants with the Father concerning what they would do in mortality. In ways that have not been revealed, our actions in the spirit world have influenced our circumstances in mortality.
-
-I will now summarize some of the principal elements of the Father’s plan as they affect us during our mortal journeys and in the spirit world that follows.
-
-The purpose of mortal life and the postmortal growth that can follow it is for the offspring of God to become like He is. This is Heavenly Father’s desire for all His children. To achieve this joyful destiny, eternal laws require that we must become purified beings through the Atonement of Jesus Christ so we can dwell in the presence of the Father and the Son and enjoy the blessings of exaltation. As the Book of Mormon teaches, He invites “all to come unto him and partake of his goodness; and he denieth none that come unto him, black and white, bond and free, male and female; and he remembereth the heathen; and all are alike unto God” (2 Nephi 26:33; see also Alma 5:49).
-
-The divine plan for us to become what we are destined to become requires us to make choices to reject the evil opposition that tempts mortals to act contrary to God’s commandments and His plan. It also requires that we be subject to other mortal opposition, such as from the sins of others or from some defects of birth. Sometimes our needed growth is achieved better by suffering and adversity than by comfort and tranquility. And none of this mortal opposition could achieve its eternal purpose if divine intervention relieved us from all the adverse consequences of mortality.
-
-The plan reveals our destiny in eternity, the purpose and conditions of our journey in mortality, and the heavenly helps we will receive. The commandments of God warn us against straying into dangerous circumstances. The teachings of inspired leaders guide our path and give assurances that promote our eternal journey.
-
-God’s plan gives us four great assurances to assist our journey through mortality. All are given to us through the Atonement of Jesus Christ, the centerpiece of the plan. The first assures us that through His suffering for the sins of which we repent, we can be cleansed of those sins. Then the merciful final judge will “remember them no more” (Doctrine and Covenants 58:42).
-
-Second, as part of our Savior’s Atonement, He took upon Him all other mortal infirmities. This allows us to receive divine help and strength to bear the inevitable burdens of mortality, personal and general, such as war and pestilence. The Book of Mormon provides our clearest scriptural description of this essential power of the Atonement. The Savior took upon Him “the pains and the sicknesses [and infirmities] of his people. … He will take upon him their infirmities, that his bowels may be filled with mercy, according to the flesh, that he may know according to the flesh how to succor his people according to their infirmities” (Alma 7:11–12).
-
-Third, the Savior, through His infinite Atonement, revokes the finality of death and gives us the joyful assurance that all of us will be resurrected. The Book of Mormon teaches, “This restoration shall come to all, both old and young, both bond and free, both male and female, both the wicked and the righteous; and even there shall not so much as a hair of their heads be lost; but every thing shall be restored to its perfect frame” (Alma 11:44).
-
-We celebrate the reality of the Resurrection in this Easter season. This gives us the perspective and strength to endure the mortal challenges faced by each of us and those we love, such things as the physical, mental, or emotional deficiencies we acquire at birth or experience during our mortal lives. Because of the Resurrection, we know that these mortal deficiencies are only temporary!
-
-The restored gospel assures us that the Resurrection can include the opportunity to be with our family members—husband, wife, children, and parents. This is a powerful encouragement for us to fulfill our family responsibilities in mortality. It helps us live together in love in this life in anticipation of joyful reunions and associations in the next.
-
-Fourth and finally, modern revelation teaches us that our progress need not conclude with the end of mortality. Little has been revealed about this important assurance. We are told that this life is the time to prepare to meet God and that we should not procrastinate our repentance (see Alma 34:32–33). Still, we are taught that in the spirit world the gospel is preached even to “the wicked and the disobedient who had rejected the truth” (Doctrine and Covenants 138:29) and that those taught there are capable of repentance in advance of the Final Judgment (see verses 31–34, 57–59).
-
-Here are some other fundamentals of our Heavenly Father’s plan:
-
-The restored gospel of Jesus Christ gives us a unique perspective on the subjects of chastity, marriage, and the bearing of children. It teaches that marriage according to God’s plan is necessary for accomplishing the purpose of God’s plan, to provide the divinely appointed setting for mortal birth, and to prepare family members for eternal life. “Marriage is ordained of God unto man,” the Lord said, “… that the earth might answer the end of its creation” (Doctrine and Covenants 49:15–16). In this, His plan, of course, runs counter to some strong worldly forces in law and custom.
-
-The power to create mortal life is the most exalted power God has given His children. Its use was mandated in the first commandment to Adam and Eve, but another important commandment was given to forbid its misuse. Outside the bonds of marriage, all uses of the procreative power are to one degree or another a sinful degrading and perversion of the most divine attribute of men and women. The emphasis the restored gospel places on this law of chastity is because of the purpose of our procreative powers in the accomplishment of God’s plan.
-
-During this 200th anniversary of the First Vision, which initiated the Restoration, we know the Lord’s plan and we are encouraged by two centuries of its blessings through His restored Church. In this year of 2020, we have what is popularly called 20/20 vision for the events of the past.
-
-As we look to the future, however, our vision is far less sure. We know that two centuries after the Restoration, the spirit world now includes many mortally experienced workers to accomplish the preaching that occurs there. We also know that we now have many more temples to perform the ordinances of eternity for those who repent and embrace the Lord’s gospel on either side of the veil of death. All of this furthers our Heavenly Father’s plan. God’s love is so great that, except for the few who deliberately become sons of perdition, He has provided a destiny of glory for all of His children (see Doctrine and Covenants 76:43).
-
-We know that the Savior will return and that there will be a millennium of peaceful reign to wrap up the mortal part of God’s plan. We also know that there will be different resurrections, of the just and the unjust, with the final judgment of each person always following his or her resurrection.
-
-We will be judged according to our actions, the desires of our hearts, and the kind of person we have become. This judgment will cause all of the children of God to proceed to a kingdom of glory for which their obedience has qualified them and where they will be comfortable. The judge of all this is our Savior, Jesus Christ (see John 5:22; 2 Nephi 9:41). His omniscience gives Him a perfect knowledge of all of our acts and desires, both those unrepented or unchanged and those repented or righteous. Therefore, after His judgment we will all confess “that his judgments are just” (Mosiah 16:1).
-
-In conclusion, I share the conviction that has come to me from many letters and by reviewing many requests to return to the Church after name removal or apostasy. Many of our members do not fully understand this plan of salvation, which answers most questions about the doctrine and inspired policies of the restored Church. We who know God’s plan and who have covenanted to participate have a clear responsibility to teach these truths and do all that we can to further them for others and in our own circumstances in mortality. I testify of Jesus Christ, our Savior and Redeemer, who makes it all possible, in the name of Jesus Christ, amen.
-
-
----
-
-
-## Consider the Goodness and Greatness of God
-
-**Speaker:** By Elder Dale G. Renlund
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/26renlund?lang=eng
-
-Throughout time, even and especially during difficult times, prophets have encouraged us to remember the greatness of God and to consider what He has done for us as individuals, as families, and as a people. This direction is found throughout the scriptures but is notably prominent in the Book of Mormon. The title page explains that one of the Book of Mormon’s purposes is “to show unto the remnant of the house of Israel what great things the Lord hath done for their fathers.” The Book of Mormon’s conclusion includes Moroni’s appeal: “Behold, I would exhort you that when ye shall read these things … that ye would remember how merciful the Lord hath been unto the children of men … and ponder it in your hearts.”
-
-The consistency of pleas from prophets to reflect on the goodness of God is striking. Our Heavenly Father wants us to recall His and His Beloved Son’s goodness, not for Their own gratification but for the influence such remembrance has on us. By considering Their kindness, our perspective and understanding are enlarged. By reflecting on Their compassion, we become more humble, prayerful, and steadfast.
-
-A poignant experience with a former patient shows how gratitude for generosity and compassion can transform us. In 1987, I became acquainted with Thomas Nielson, a remarkable man who needed a heart transplant. He was 63 years old and lived in Logan, Utah, in the United States. Following military service during World War II, he married Donna Wilkes in the Logan Utah Temple. He became an energetic and successful brick mason. In later years he especially enjoyed working with his oldest grandchild, Jonathan, during school vacations. The two developed a special bond, in part because Tom saw much of himself in Jonathan.
-
-Tom found waiting for a donor heart frustrating. He was not a particularly patient man. He had always been able to set and achieve goals through hard work and sheer determination. Struggling with heart failure, with his life on hold, Tom sometimes asked me what I was doing to speed up the process. Jokingly, he suggested avenues I could pursue that would make a donor heart available to him sooner.
-
-One joyous yet dreadful day, an ideal donor heart became available for Tom. The size and blood type were a match, and the donor was young, just 16 years old. The donor heart belonged to Jonathan, Tom’s beloved grandson. Earlier that day, Jonathan had been fatally injured when the car in which he was riding was struck by a passing train.
-
-When I visited Tom and Donna in the hospital, they were distraught. It is hard to imagine what they were going through, knowing that Tom’s life could be extended by using their grandson’s heart. At first, they refused to consider the proffered heart from Jonathan’s grieving parents, their daughter and son-in-law. Tom and Donna knew, though, that Jonathan was brain dead, and came to understand that their prayers for a donor heart for Tom had not caused Jonathan’s accident. No, Jonathan’s heart was a gift that could bless Tom in his time of need. They recognized that something good might come out of this tragedy and decided to proceed.
-
-The transplant procedures went well. Afterward, Tom was a different man. The change went beyond improved health or even gratitude. He told me that he reflected every morning on Jonathan, on his daughter and son-in-law, on the gift he had received, and on what that gift had entailed. Even though his innate good humor and grit were still readily apparent, I observed that Tom was more solemn, thoughtful, and kindhearted.
-
-Tom lived an additional 13 years after the transplant, years he otherwise would not have had. His obituary stated that these years allowed him to touch the lives of his family and others with generosity and love. He was a private benefactor and an example of optimism and determination.
-
-Much like Tom, each of us has received gifts that we could not provide for ourselves, gifts from our Heavenly Father and His Beloved Son, including redemption through the atoning sacrifice of Jesus Christ. We have received life in this world; we will receive physical life in the hereafter, and eternal salvation and exaltation—if we choose it—all because of Heavenly Father and Jesus Christ.
-
-Every time we use, benefit from, or even think of these gifts, we ought to consider the sacrifice, generosity, and compassion of the givers. Reverence for the givers does more than just make us grateful. Reflecting on Their gifts can and should transform us.
-
-One remarkable transformation was that of Alma the Younger. As Alma was “going about rebelling against God,” an angel appeared. With “a voice of thunder,” the angel chastised Alma for persecuting the Church and “stealing away the hearts of the people.” The angel added this admonition: “Go, and remember the captivity of thy fathers … ; and remember how great things [God] has done for them.” Of all possible exhortations, that was what the angel emphasized.
-
-Alma repented and remembered. He later shared the angel’s admonition with his son Helaman. Alma counseled, “I would that ye should do as I have done, in remembering the captivity of our fathers; for they were in bondage, and none could deliver them except it was the God of Abraham, … Isaac, and … Jacob; and he surely did deliver them in their afflictions.” Alma said simply, “I do put my trust in him.” Alma understood that by remembering deliverance from bondage and support during “trials and troubles of every kind,” we come to know God and the surety of His promises.
-
-Few of us have an experience as dramatic as Alma’s, yet our transformation can be equally profound. The Savior pledged anciently:
-
-“A new heart also will I give you, and a new spirit will I put within you: and I will take away the stony heart … , and I will give you an heart of flesh.
-
-“And I will put my spirit within you. …
-
-“… And ye shall be my people, and I will be your God.”
-
-The resurrected Savior told the Nephites how this transformation begins. He identified a pivotal feature in Heavenly Father’s plan when He said:
-
-“And my Father sent me that I might be lifted up upon the cross; and after that I had been lifted up upon the cross, that I might draw all men unto me. …
-
-“And for this cause have I been lifted up; therefore, according to the power of the Father I will draw all men unto me.”
-
-What does it take for you to be drawn to the Savior? Consider Jesus Christ’s submission to His Father’s will, His victory over death, His taking upon Himself your sins and mistakes, His receiving power from the Father to make intercession for you, and His ultimate redemption of you. Are these things not sufficient to draw you to Him? They are for me. Jesus Christ “stands with open arms, hoping and willing to heal, forgive, cleanse, strengthen, purify, and sanctify [you and me].”
-
-These truths should give us a new heart and prompt us to choose to follow Heavenly Father and Jesus Christ. Yet even new hearts may be “prone to wander, … prone to leave the God [we] love.” To fight this tendency, we need to reflect every day on the gifts we have received and on what they entailed. King Benjamin counseled, “I would that ye should remember, and always retain in remembrance, the greatness of God … and his goodness and long-suffering towards you.” If we do so, we qualify for remarkable heavenly blessings.
-
-Reflecting on God’s goodness and mercy helps us become more spiritually receptive. In turn, increased spiritual sensitivity allows us to come to know the truth of all things by the power of the Holy Ghost. This includes a testimony of the truthfulness of the Book of Mormon; knowing that Jesus is the Christ, our personal Savior and Redeemer; and accepting that His gospel has been restored in these latter days.
-
-When we remember the greatness of our Heavenly Father and Jesus Christ and what They have done for us, we will not take Them for granted, just as Tom did not take Jonathan’s heart for granted. In a joyful and reverent way, Tom remembered each day the tragedy that brought him extended life. In the exuberance of knowing that we can be saved and exalted, we need to remember that salvation and exaltation came at a great cost. We can be reverently joyful as we realize that without Jesus Christ, we are doomed, but with Him, we can receive the greatest gift Heavenly Father can give. Indeed, this reverence allows us to enjoy the promise “of eternal life in this world” and eventually receive “eternal life … even immortal glory” in the world to come.
-
-When we consider the goodness of our Heavenly Father and Jesus Christ, our trust in Them increases. Our prayers change because we know God is our Father and we are His children. We seek not to change His will but to align our will with His and secure for ourselves blessings that He wants to grant, conditioned on our asking for them. We yearn to be more meek, more pure, more steadfast, more Christlike. These changes qualify us for additional heavenly blessings.
-
-By acknowledging that every good thing comes from Jesus Christ, we will communicate our faith more effectively to others. We will have courage when confronted with seemingly impossible tasks and circumstances. We will strengthen our resolve to keep the covenants we have made to follow the Savior. We will be filled with the love of God, want to help those in need without being judgmental, love our children and raise them in righteousness, retain a remission of our sins, and always rejoice. These are the remarkable fruits of remembering God’s goodness and mercy.
-
-In contrast, the Savior warned, “In nothing doth man offend God, or against none is his wrath kindled, save those who confess not his hand in all things.” I do not think that God is insulted when we forget Him. Rather, I think He is deeply disappointed. He knows that we have deprived ourselves of the opportunity to draw closer to Him by remembering Him and His goodness. We then miss out on Him drawing nearer to us and the specific blessings He has promised.
-
-I invite you to remember each day the greatness of Heavenly Father and Jesus Christ and what They have done for you. Let your consideration of Their goodness more firmly bind your wandering heart to Them. Ponder Their compassion, and you will be blessed with added spiritual sensitivity and become more Christlike. Contemplating Their empathy will help you “hold out faithful to the end,” until you “are received into heaven” to “dwell with God in a state of never-ending happiness.”
-
-Our Heavenly Father, referring to His Beloved Son, said, “Hear Him!” As you act on those words and listen to Him, remember, joyfully and reverently, that the Savior loves to restore what you cannot restore; He loves to heal wounds you cannot heal; He loves to fix what has been irreparably broken; He compensates for any unfairness inflicted on you; and He loves to permanently mend even shattered hearts.
-
-As I have reflected on gifts from our Heavenly Father and from Jesus Christ, I have come to know of Their infinite love and Their incomprehensible compassion for all Heavenly Father’s children. This knowledge has changed me, and it will change you too. In the name of Jesus Christ, amen.
-
-
----
-
-
-## “Let This House Be Built unto My Name”
-
-**Speaker:** By Elder David A. Bednar
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/44bednar?lang=eng
-
-In the Sacred Grove 200 years ago, young Joseph Smith saw and talked with God, the Eternal Father, and His Son, Jesus Christ. From Them, Joseph learned about the true nature of the Godhead and of ongoing revelation as this supernal vision ushered in the latter-day “dispensation of the fulness of times.”
-
-Approximately three years later, in response to earnest prayer on the evening of September 21, 1823, Joseph’s bedroom filled with light until it was “lighter than at noonday.” A personage appeared at his bedside, called the young boy by name, and declared “he was a messenger sent from the presence of God … and that his name was Moroni.” He instructed Joseph about the coming forth of the Book of Mormon.
-
-And then Moroni quoted from the book of Malachi in the Old Testament, with a little variation in the language used in the King James Version:
-
-“Behold, I will reveal unto you the Priesthood, by the hand of Elijah the prophet, before the coming of the great and dreadful day of the Lord. …
-
-“And he shall plant in the hearts of the children the promises made to the fathers, and the hearts of the children shall turn to their fathers. If it were not so, the whole earth would be utterly wasted at his coming.”
-
-Importantly, Moroni’s instruction to Joseph Smith about Elijah’s mission initiated temple and family history work in the latter days and was a key element in restoring “all things, which God hath spoken by the mouth of all his holy prophets since the world began.”
-
-I pray for the assistance of the Holy Ghost as we learn together about the covenants, ordinances, and blessings that are available to us in the temples of The Church of Jesus Christ of Latter-day Saints.
-
-I begin by asking a fundamental question: why was the return of Elijah important?
-
-“We learn from latter-day revelation that Elijah held the sealing power of the Melchizedek Priesthood” and “was the last prophet to do so before the time of Jesus Christ.”
-
-The Prophet Joseph Smith explained: “The spirit, power, and calling of Elijah is, that ye have power to hold the key of the … fullness of the Melchizedek Priesthood … ; and to … obtain … all the ordinances belonging to the kingdom of God, even unto the turning of the hearts of the fathers unto the children, and the hearts of the children unto the fathers, even those who are in heaven.”
-
-This sacred sealing authority is necessary so that “whatsoever thou shalt bind on earth shall be bound in heaven: and whatsoever thou shalt loose on earth shall be loosed in heaven.”
-
-Joseph further clarified: “How shall God come to the rescue of this generation? He will send Elijah the prophet. … Elijah shall reveal the covenants to seal the hearts of the fathers to the children, and the children to the fathers.”
-
-Elijah appeared with Moses on the Mount of Transfiguration and conferred this authority upon Peter, James, and John. Elijah also appeared with Moses and Elias on April 3, 1836, in the Kirtland Temple and conferred the same priesthood keys upon Joseph Smith and Oliver Cowdery.
-
-The restoration of the sealing authority by Elijah in 1836 was necessary to prepare the world for the Savior’s Second Coming and initiated a greatly increased and worldwide interest in family history research.
-
-The word heart is used over 1,000 times in the standard works. This simple but significant word often denotes the inner feelings of an individual. Our hearts—the sum total of our desires, affections, intentions, motives, and attitudes—define who we are and determine what we will become. And the essence of the Lord’s work is changing, turning, and purifying hearts through gospel covenants and priesthood ordinances.
-
-We do not build or enter holy temples solely to have a memorable individual or family experience. Rather, the covenants received and the ordinances performed in temples are essential to the sanctifying of our hearts and for the ultimate exaltation of God’s sons and daughters.
-
-Planting in the hearts of the children the promises made to the fathers—even Abraham, Isaac, and Jacob—turning the hearts of the children to their own fathers, conducting family history research, and performing vicarious temple ordinances are labors that bless individuals on both sides of the veil. As we become anxiously engaged in this sacred work, we are obeying the commandments to love and serve God and our neighbors. And such selfless service helps us truly to “Hear Him!” and come unto the Savior.
-
-The most sacred covenants and priesthood ordinances are received only in a temple—the house of the Lord. Everything that is learned and all that is done in the temple emphasize the divinity of Jesus Christ and His role in Heavenly Father’s great plan of happiness.
-
-President Ezra Taft Benson described an important pattern the Redeemer employs in bringing “to pass the immortality and eternal life of man.” He said: “The Lord works from the inside out. The world works from the outside in. The world would take people out of the slums. Christ takes the slums out of people, and then they take themselves out of the slums. The world would mold men by changing their environment. Christ changes men, who then change their environment. The world would shape human behavior, but Christ can change human nature.”
-
-Covenants and priesthood ordinances are central in the ongoing process of spiritual rebirth and transformation; they are the means whereby the Lord works with each of us from the inside out. Covenants that are honored steadfastly, remembered always, and written “with the Spirit of the living God … in fleshy tables of the heart” provide purpose and the assurance of blessings in mortality and for eternity. Ordinances that are received worthily and remembered continually open the heavenly channels through which the power of godliness can flow into our lives.
-
-We do not come to the temple to hide from or escape the evils of the world. Rather, we come to the temple to conquer the world of evil. As we invite into our lives the “power of godliness” by receiving priesthood ordinances and making and keeping sacred covenants, we are blessed with strength beyond our own to overcome the temptations and challenges of mortality and to do and become good.
-
-The first temple of this dispensation was constructed in Kirtland, Ohio, and dedicated on March 27, 1836.
-
-In a revelation to the Prophet Joseph Smith one week after the dedication, the Lord declared:
-
-“Let the hearts of all my people rejoice, who have, with their might, built this house to my name. …
-
-“Yea the hearts of thousands and tens of thousands shall greatly rejoice in consequence of the blessings which shall be poured out, and the endowment with which my servants have been endowed in this house.
-
-“And the fame of this house shall spread to foreign lands; and this is the beginning of the blessing which shall be poured out upon the heads of my people.”
-
-Please note the phrases the hearts of thousands and tens of thousands shall greatly rejoice and the fame of this house shall spread to foreign lands. These were stunning declarations in April of 1836, when the Church had only a relative handful of members and one temple.
-
-Today in 2020, we have 168 operating temples. Forty-nine additional temples are under construction or have been announced. Houses of the Lord are being constructed on the “isles of the sea” and in countries and locations previously considered by many unlikely to warrant a temple.
-
-The endowment ceremony currently is presented in 88 languages and will become available in many additional languages as temples are built to bless more of God’s children. In the next 15 years, the number of languages in which temple ordinances will be available likely will double.
-
-This year we will break ground and start construction on 18 temples. In contrast, it took 150 years to build the first 18 temples, from the organization of the Church in 1830 to the dedication of the Tokyo Japan Temple by President Spencer W. Kimball in 1980.
-
-Consider the hastening of temple work that has occurred just during the lifetime of President Russell M. Nelson. When President Nelson was born on September 9, 1924, the Church had six operating temples.
-
-When he was ordained an Apostle on April 7, 1984, 60 years later, 26 temples were operating, an increase of 20 temples in 60 years.
-
-When President Nelson was sustained as President of the Church, 159 temples were operating, an increase of 133 temples in the 34 years during which he served as a member of the Quorum of the Twelve.
-
-Since becoming the President of the Church on January 14, 2018, President Nelson has announced 35 new temples.
-
-Ninety-six percent of the existing temples have been dedicated during President Nelson’s lifetime; 84 percent have been dedicated since he was ordained an Apostle.
-
-As members of the Lord’s restored Church, we stand all amazed at the ever-accelerating pace of His work in the latter days. And more temples are coming.
-
-Brigham Young prophesied, “To accomplish this work there will have to be not only one temple but thousands of them, and thousands and tens of thousands of men and women will go into those temples and officiate for people who have lived as far back as the Lord shall reveal.”
-
-Understandably, the announcement of each new temple is a source of great joy and a reason to give thanks to the Lord. However, our primary focus should be on the covenants and ordinances that can change our hearts and deepen our devotion to the Savior and not simply on the location or beauty of the building.
-
-The fundamental obligations that rest upon us as members of the Lord’s restored Church are (1) to “Hear Him!” and have our own hearts changed through covenants and ordinances and (2) to fulfill joyfully the divinely appointed responsibility to offer temple blessings to the entire human family on both sides of the veil. With the Lord’s direction and help, indeed we will fulfill these sacred duties.
-
-The Prophet Joseph Smith declared:
-
-“The building up of Zion is a cause that has interested the people of God in every age; it is a theme upon which prophets, priests and kings have dwelt with peculiar delight; they have looked forward with joyful anticipation to the day in which we live; and fired with heavenly and joyful anticipations they have sung and written and prophesied of this our day; but they died without the sight; … it is left for us to see, participate in and help to roll forward the Latter-day glory.”
-
-“The heavenly Priesthood will unite with the earthly, to bring about those great purposes; … a work that God and angels have contemplated with delight for generations past; that fired the souls of the ancient patriarchs and prophets; a work that is destined to bring about the destruction of the powers of darkness, the renovation of the earth, the glory of God, and the salvation of the human family.”
-
-I solemnly testify that the Father and the Son appeared to Joseph Smith, and Elijah restored the sealing authority. Sacred temple covenants and ordinances can strengthen us and purify our hearts as we “Hear Him!” and receive the power of godliness in our lives. And I witness that this latter-day work will destroy the powers of darkness and bring about the salvation of the human family. Of these truths I joyfully testify in the sacred name of the Lord Jesus Christ, amen.
-
-
----
-
-
-## Hosanna and Hallelujah—The Living Jesus Christ: The Heart of Restoration and Easter
-
-**Speaker:** By Elder Gerrit W. Gong
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/31gong?lang=eng
-
-Dear brothers and sisters: with hosanna and hallelujah, we celebrate the living Jesus Christ at this season of continuing Restoration and Easter. With perfect love, our Savior assures us: “In me ye might have peace. In the world ye shall have tribulation: but be of good cheer; I have overcome the world.”
-
-Some years ago, as Sister Gong and I met a lovely family, their young daughter, Ivy, shyly brought out her violin case. She lifted out the violin bow, tightened and put rosin on it. Then she put the bow back in the case, curtsied, and sat down. A new beginner, she had just shared all she knew about the violin. Now, years later, Ivy plays the violin beautifully.
-
-In this mortal period, we are all a little like Ivy and her violin. We begin at the beginning. With practice and persistence, we grow and improve. With the passage of time, moral agency and mortal experiences help us become more like our Savior as we labor with Him in His vineyard and follow His covenant path.
-
-Anniversaries, including this bicentennial, highlight patterns of restoration. In celebrating the ongoing Restoration of the gospel of Jesus Christ, we also prepare for Easter. In both, we rejoice in the return of Jesus Christ. He lives—not only then, but now; not just for some, but for all. He came and comes to heal the brokenhearted, deliver the captives, recover sight to the blind, and set at liberty those who are bruised. That’s each of us. His redeeming promises apply, no matter our past, our present, or concerns for our future.
-
-Tomorrow is Palm Sunday. Traditionally, palms are a sacred symbol to express joy in our Lord, as in Christ’s Triumphal Entry into Jerusalem, where “much people … took branches of palm trees, and went forth to meet him.” (You may be interested to know the original of this Harry Anderson painting hangs in President Russell M. Nelson’s office, just behind his desk.) In the book of Revelation, those who praise God and the Lamb do so “clothed with white robes, and palms in their hands.” Along with “robes of righteousness” and “crowns of glory,” palms are included in the Kirtland Temple dedicatory prayer.
-
-Of course, the significance of Palm Sunday goes beyond crowds greeting Jesus with palms. On Palm Sunday, Jesus entered Jerusalem in ways the faithful recognized as fulfillment of prophecy. As Zechariah and the Psalmist prophetically foretold, our Lord entered Jerusalem riding a colt as multitudes knowingly cried, “Hosanna in the highest.” Hosanna means “save now.” Then, as now, we rejoice, “Blessed be he that cometh in the name of the Lord.”
-
-A week following Palm Sunday is Easter Sunday. President Russell M. Nelson teaches that Jesus Christ “came to pay a debt He didn’t owe because we owed a debt we couldn’t pay.” Indeed, through the Atonement of Christ, all God’s children “may be saved, by obedience to the laws and ordinances of the Gospel.” At Easter, we sing hallelujah. Hallelujah means “praise ye the Lord Jehovah.” The “Hallelujah Chorus” in Handel’s Messiah is a beloved Easter declaration that He is “King of Kings, and Lord of Lords.”
-
-The sacred events between Palm Sunday and Easter Sunday are the story of hosanna and hallelujah. Hosanna is our plea for God to save. Hallelujah expresses our praise to the Lord for the hope of salvation and exaltation. In hosanna and hallelujah we recognize the living Jesus Christ as the heart of Easter and latter-day restoration.
-
-Latter-day restoration begins with theophany—the literal appearance of God the Father and His Son, Jesus Christ, to the young prophet Joseph Smith. Said the Prophet Joseph, “Could you gaze into heaven five minutes, you would know more than you would by reading all that ever was written on the subject.” Because the heavens are again open, we know and “believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost”—the divine Godhead.
-
-On Easter Sunday, April 3, 1836, in the early days of the Restoration, the living Jesus Christ appeared after the Kirtland Temple was dedicated. Those who saw Him there testified of Him in complementary contrasts of fire and water: “His eyes were as a flame of fire; the hair of his head was white like the pure snow; his countenance shone above the brightness of the sun; and his voice was as the sound of the rushing of great waters, even the voice of Jehovah.”
-
-On that occasion, our Savior declared, “I am the first and the last; I am he who liveth, I am he who was slain; I am your advocate with the Father.” Again, complementary contrasts—first and last, living and slain. He is Alpha and Omega, the beginning and the end, the author and finisher of our faith.
-
-Following the appearance of Jesus Christ, Moses, Elias, and Elijah also came. By divine direction, these great prophets of old restored priesthood keys and authority. Thus, “the keys of this dispensation are committed” within His restored Church to bless all God’s children.
-
-The coming of Elijah in the Kirtland Temple also fulfilled Malachi’s Old Testament prophecy that Elijah would return “before the coming of the great and dreadful day of the Lord.” In doing so, Elijah’s appearance coincided, though not by coincidence, with the Jewish Passover season, which tradition reverently anticipates Elijah’s return.
-
-Many devout Jewish families set a place for Elijah at their Passover table. Many fill a cup to the brim to invite and welcome him. And some, during the traditional Passover Seder, send a child to the door, sometimes left partly open, to see if Elijah is outside waiting to be invited in.
-
-In fulfillment of prophecy and as part of the promised restoration of all things, Elijah did come as promised, at Easter and the onset of Passover. He brought the sealing authority to bind families on earth and in heaven. As Moroni taught the Prophet Joseph, Elijah “shall plant in the hearts of the children the promises made to the fathers, and the hearts of the children shall turn to their fathers. If it were not so,” Moroni continued, “the whole earth would be utterly wasted at [the Lord’s] coming.” The spirit of Elijah, a manifestation of the Holy Ghost, draws us to our generations—past, present, and future—in our genealogies, histories, and temple service.
-
-Let us also briefly recall what Passover signifies. Passover remembers the deliverance of the children of Israel from 400 years of bondage. The book of Exodus relates how this deliverance came after plagues of frogs, lice, flies, the death of cattle, boils, blains, hail and fire, locusts, and thick darkness. The final plague threatened the death of the firstborn in the land but not in the house of Israel if—if those households put the blood of an unblemished firstling lamb on the lintels of their doors.
-
-The angel of death passed by the houses marked with the symbolic blood of the lamb. That passing by, or pass over, represents Jesus Christ ultimately overcoming death. Indeed, the atoning blood of the Lamb of God gives our Good Shepherd power to gather His people in all places and circumstances into the safety of His fold on both sides of the veil.
-
-Significantly, the Book of Mormon describes the “power and resurrection of Christ”—the essence of Easter—in terms of two restorations.
-
-First, resurrection includes physical restoration of our “proper and perfect frame”; “every limb and joint,” “even a hair of the head shall not be lost.” This promise gives hope to those who have lost limbs; those who have lost ability to see, hear, or walk; or those thought lost to relentless disease, mental illness, or other diminished capacity. He finds us. He makes us whole.
-
-A second promise of Easter and our Lord’s Atonement is that, spiritually, “all things shall be restored to their proper order.” This spiritual restoration reflects our works and desires. Like bread upon the water, it restores “that which is good,” “righteous,” “just,” and “merciful.” No wonder the prophet Alma uses the word restore 22 times as he urges us to “deal justly, judge righteously, and do good continually.”
-
-Because “God himself atoneth for the sins of the world,” the Lord’s Atonement can make whole not only what was but also what can be. Because He knows our pains, afflictions, sicknesses, our “temptations of every kind,” He can, with mercy, succor us according to our infirmities. Because God is “a perfect, just God, and a merciful God also,” the plan of mercy can “appease the demands of justice.” We repent and do all we can. He encircles us eternally “in the arms of his love.”
-
-Today we celebrate restoration and resurrection. With you, I rejoice in the ongoing Restoration of the fulness of the gospel of Jesus Christ. As began 200 years ago this spring, light and revelation continue to come forth through the Lord’s living prophet and His Church called in His name—The Church of Jesus Christ of Latter-day Saints—and through personal revelation and inspiration by the supernal gift of the Holy Ghost.
-
-With you, at this Easter season, I testify of God, our Eternal Father, and His Beloved Son, the living Jesus Christ. Mortal men were cruelly crucified and later resurrected. But only the living Jesus Christ in His perfect resurrected form still bears the marks of crucifixion in His hands, feet, and side. Only He can say, “I have graven thee upon the palms of my hands.” Only He can say: “I am he who was lifted up. I am Jesus that was crucified. I am the Son of God.”
-
-Like little Ivy and her violin, we are in some ways still beginning. Truly, “eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him.” In these times, we can learn much of God’s goodness and our divine potential for God’s love to grow in us as we seek Him and reach out to each other. In new ways and new places, we can do and become, line upon line, kindness upon kindness, individually and together.
-
-Dear brothers and sisters everywhere, as we meet and learn together, your faith and goodness fill me with a sense of gospel adventure and gratitude. Your testimony and gospel journey enrich my testimony and gospel journey. Your concerns and joys, your love for the household of God and community of Saints, and your lived understanding of restored truth and light increase my fulness of the restored gospel, with the living Jesus Christ at its heart. Together we trust, “thru cloud and sunshine, Lord, abide with me.” Unitedly we know, amidst our loads and cares, we can count our many blessings. In the daily details and small and simple things, we can see great things brought to pass in our lives.
-
-“And it shall come to pass that the righteous shall be gathered out from among all nations, and shall come to Zion, singing with songs of everlasting joy.” At this season of hosanna and hallelujah, sing hallelujah—for He shall reign forever and ever! Shout hosanna, to God and the Lamb! In the sacred and holy name of Jesus Christ, amen.
-
-
----
-
-
-## Prayers of Faith
-
-**Speaker:** By President Henry B. Eyring
-
-**Calling:** Second Counselor in the First Presidency
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/17eyring?lang=eng
-
-The prayer of Elder Maynes at the beginning of this first session of general conference is being answered. Inspiration has come to us through wonderful messages and beautiful music. The promise of President Russell M. Nelson that this conference will be memorable is already beginning to be fulfilled.
-
-President Nelson has designated this year as “a bicentennial period commemorating 200 years since God the Father and His Beloved Son, Jesus Christ, appeared to Joseph Smith in a vision.” President Nelson invited us to make a personal plan to prepare ourselves for this historic conference, which commemoration he said would be “a hinge point in the history of the Church, and your part is vital.”
-
-Like me, perhaps you heard his message and asked yourself, “In what way is my part vital?” Perhaps you read and prayed about the events of the Restoration. Perhaps, more than ever before, you read the accounts of those few times when God the Father introduced His Beloved Son. Perhaps you read of the instances when the Savior spoke to the children of our Heavenly Father. I know I did all of those things and more.
-
-I found references in my reading to the priesthood of God and the opening of dispensations. I was humbled as I realized that my preparation for this conference was a hinge point in my personal history. I felt changes in my heart. I felt new gratitude. I felt filled with joy at the prospect of being invited to participate in this celebration of the ongoing Restoration.
-
-I imagine that others are feeling, because of careful preparation, more joyful, more optimistic, and more determined to serve in any capacity needed by the Lord.
-
-The transcendent events we honor were the beginning of the prophesied last dispensation, in which the Lord is preparing His Church and His people, those who bear His name, to receive Him. As part of our preparation for His coming, He will lift each of us so we may rise to spiritual challenges and opportunities unlike any seen in the history of this world.
-
-In September 1840, the Prophet Joseph Smith and his counselors in the First Presidency declared the following: “The work of the Lord in these last days, is one of vast magnitude and almost beyond the comprehension of mortals. Its glories are past description, and its grandeur unsurpassable. It is the theme which has animated the bosom of prophets and righteous men from the creation of the world down through every succeeding generation to the present time; and it is truly the dispensation of the fullness of times, when all things which are in Christ Jesus, whether in heaven or on the earth, shall be gathered together in Him, and when all things shall be restored, as spoken of by all the holy prophets since the world began; for in it will take place the glorious fulfilment of the promises made to the fathers, while the manifestations of the power of the Most High will be great, glorious, and sublime.”
-
-They went on to say: “We feel disposed to go forward and unite our energies for the upbuilding of the Kingdom, and establishing the Priesthood in their fullness and glory. The work which has to be accomplished in the last days is one of vast importance, and will call into action the energy, skill, talent, and ability of the Saints, so that it may roll forth with that glory and majesty described by the prophet [Daniel] [see Daniel 2:34–35, 44–45]; and will consequently require the concentration of the Saints, to accomplish works of such magnitude and grandeur.”
-
-Many of the specifics of what we will do and when we will do it in the unfolding Restoration are not yet revealed. Yet the First Presidency even in those early days knew some of the breadth and depth of the work the Lord has set before us. Here are a few examples of what we do know will take place:
-
-Through His Saints, the Lord will offer the gift of His gospel “to every nation, kindred, tongue, and people.” Technology and miracles will continue to play a part—as will individual “fishers of men” who minister with power and increasing faith.
-
-We as a people will become more united amid increasing conflict. We will be gathered in the spiritual strength of groups and families filled with gospel light.
-
-Even an unbelieving world will recognize The Church of Jesus Christ of Latter-day Saints and realize the power of God upon it. Faithful and brave disciples will fearlessly, humbly, and openly take upon them the name of Christ in their everyday lives.
-
-How, then, can each of us participate in this work of such magnitude and grandeur? President Nelson has taught us how to grow in spiritual power. When we take repentance as a joyful opportunity because of our growing faith that Jesus is the Christ, when we understand and believe that Heavenly Father hears our every prayer, when we strive to obey and live the commandments, we grow in our power to receive continuing revelation. The Holy Ghost can be our constant companion. A feeling of light will stay with us even as the world around us becomes darker.
-
-Joseph Smith is an example of how to grow in such spiritual power. He showed us that the prayer of faith is the key to revelation from God. He prayed in faith, believing that God the Father would answer his prayer. He prayed in faith, believing that only through Jesus Christ could he be freed from the guilt he felt for his sins. And he prayed in faith, believing that he needed to find the true Church of Jesus Christ to gain that forgiveness.
-
-Throughout his prophetic ministry, Joseph Smith used prayers of faith to obtain continuous revelation. As we face today’s challenges and those yet to come, we too will need to practice the same pattern. President Brigham Young said, “I do not know any other way for the Latter-day Saints than for every breath to be virtually a prayer for God to guide and direct his people.”
-
-These words from the sacrament prayer should then describe our daily life: “Always remember him.” “Him” refers to Jesus Christ. The next words, “and keep his commandments,” suggest what it means for us to remember Him. As we remember Jesus Christ always, we might ask in silent prayer, “What would He have me do?”
-
-Such prayer, offered in faith in Jesus Christ, ushered in this last dispensation. And it will be at the heart of the part each of us will play in its continuing unfolding. I have found, as you have, wonderful examples of such prayer.
-
-First is Joseph Smith. He asked in childlike faith what the Lord would have him do. His answer changed the history of the world.
-
-To me, an important lesson comes from Joseph’s response to Satan’s assault as Joseph knelt to pray.
-
-I know from experience that Satan and his servants try to make us feel that we must not pray. When Joseph Smith exerted all his powers to call upon God to deliver him from the power that tried to bind him, his prayer for relief was answered and Heavenly Father and Jesus Christ appeared.
-
-Satan’s attempt to thwart the beginning of the Restoration was so severe because Joseph’s prayer was so important. You and I will have smaller parts to play in the ongoing Restoration. Yet the enemy of the Restoration will try to stop us from praying. The example of Joseph’s faith and his determination can strengthen us in our resolve. This is one of many reasons why my prayers include thanks to Heavenly Father for the Prophet Joseph.
-
-Enos in the Book of Mormon is another model for my prayer of faith as I try to play my part in the continuing Restoration. Whatever your part will be, you could take him as a personal mentor.
-
-Like Joseph, Enos prayed in faith. He described his experience this way:
-
-“And my soul hungered; and I kneeled down before my Maker, and I cried unto him in mighty prayer and supplication for mine own soul; and all the day long did I cry unto him; yea, and when the night came I did still raise my voice high that it reached the heavens.
-
-“And there came a voice unto me, saying: Enos, thy sins are forgiven thee, and thou shalt be blessed.
-
-“And I, Enos, knew that God could not lie; wherefore, my guilt was swept away.
-
-“And I said: Lord, how is it done?
-
-“And he said unto me: Because of thy faith in Christ, whom thou hast never before heard nor seen. And many years pass away before he shall manifest himself in the flesh; wherefore, go to, thy faith hath made thee whole.”
-
-The lesson that has blessed me is in these words: “Because of thy faith in Christ, whom thou hast never before heard nor seen.”
-
-Joseph had faith in Christ to go into the grove and also to pray for release from the powers of Satan. He had not yet seen the Father and the Son, but he prayed in faith with all the energy of his heart.
-
-The experience of Enos has taught me the same precious lesson. When I pray with faith, I have the Savior as my advocate with the Father and I can feel that my prayer reaches heaven. Answers come. Blessings are received. There is peace and joy even in hard times.
-
-I remember when, as the newest member of the Quorum of the Twelve Apostles, I knelt in prayer with Elder David B. Haight. He was about the age I am now, with challenges I now experience myself. I remember his voice as he prayed. I didn’t open my eyes to look, but it sounded to me as if he was smiling. He spoke with Heavenly Father with joy in his voice.
-
-I can hear in my mind his happiness when he said, “In the name of Jesus Christ.” It sounded to me as if Elder Haight felt the Savior was affirming at that moment the message he had prayed to the Father. And I was sure it would be received with a smile.
-
-Our ability to make our vital contribution to the wonderful continuing Restoration will increase as we grow in our faith in Jesus Christ as our Savior and our Heavenly Father as our loving Father. As we pray in faith, we become a vital part in the Lord’s work as He prepares the world for His Second Coming. I pray that we all may find joy in doing the work He invites each of us to perform.
-
-I testify that Jesus Christ lives. This is His Church and kingdom on earth. Joseph Smith is the prophet of the Restoration. President Russell M. Nelson is the Lord’s prophet on the earth today. He holds all the keys of the priesthood in The Church of Jesus Christ of Latter-day Saints. In the name of Jesus Christ, amen.
-
-
----
-
-
-## The Coming Forth of the Book of Mormon
-
-**Speaker:** By Elder Ulisses Soares
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/23soares?lang=eng
-
-While meeting with the elders of the Church on one occasion, the Prophet Joseph Smith declared: “Take away the Book of Mormon, and the revelations, and where is our religion? We have none.” My dear brothers and sisters, following the First Vision, the miraculous coming forth of the Book of Mormon is the second fundamental milestone of the unfolding Restoration of the gospel of Jesus Christ in this dispensation. The Book of Mormon testifies of God’s love for His children, of the Lord Jesus Christ’s selfless and divine atoning sacrifice, and of His crowning ministry among the Nephites soon after His Resurrection. It also testifies that the remnant of the house of Israel is to become one through His latter-day work and that they are not cast off forever.
-
-As we study the coming forth of this holy book of scripture in these latter days, we come to realize that the entire undertaking was miraculous—from the Prophet Joseph receiving the gold plates from a holy angel to its translation “by the gift and power of God,” its preservation, and its publication by the hand of the Lord.
-
-The coming forth of the Book of Mormon began long before Joseph Smith received the gold plates from the hands of the angel Moroni. Prophets of old prophesied about this sacred book’s advent in our day. Isaiah spoke of a sealed book, that when it would appear people would be contending over God’s word. This circumstance would provide the context wherein God could perform His “marvellous work and a wonder,” causing “the wisdom of their wise men [to] perish, and the understanding of their prudent men [to] be hid,” while the meek would “increase their joy in the Lord, and the poor among men shall rejoice in the Holy One of Israel.” Ezekiel spoke about the stick of Judah (the Bible) and the stick of Ephraim (the Book of Mormon) being brought together as one. Both Ezekiel (in the Old Testament) and Lehi (in the Book of Mormon) indicate that they shall “grow together” to confound false doctrine, establish peace, and bring us to a knowledge of the covenants.
-
-In the evening of September 21, 1823, three and a half years after experiencing the First Vision, Joseph was visited three times by the angel Moroni, the last prophet of the Nephites in ancient America, as a result of his sincere prayers. During their visits that lasted through the night, Moroni told Joseph that God had a marvelous work for him to accomplish—the translation and publication to the world of the inspired words of ancient prophets of the American continent. The next day, Joseph went to the place, not far from his home, where the plates were buried by Moroni at the end of his life, centuries earlier. There Joseph saw Moroni again, who instructed him to prepare himself to receive the plates in the future.
-
-Over the next four years, on September 22 of each year, Joseph received additional instructions from Moroni regarding the knowledge about how the Lord’s kingdom should be governed in the latter days. Joseph’s preparation also included visits from the angels of God, thus unfolding the majesty and glory of the events that would take place in this dispensation.
-
-His marriage to Emma Hale in 1827 was part of that preparation. She played an important role in helping the Prophet throughout his life and ministry. In fact, in September 1827, Emma accompanied Joseph to the hill where the plates were hidden, and she waited for him as the angel Moroni delivered the record into Joseph’s hands. Joseph received the promise that the plates would be preserved if he would devote all his efforts to keep them safe until they should be returned into the hands of Moroni.
-
-My dear fellow companions in the gospel, many of today’s discoveries from ancient times occur during an archaeological excavation or even by accident during a construction project. Joseph Smith, however, was directed to the plates by an angel. That outcome by itself was a miracle.
-
-The translation process of the Book of Mormon was also a miracle. This sacred ancient record was not “translated” in the traditional way that scholars would translate ancient texts by learning an ancient language. We ought to look at the process more like a “revelation” with the aid of physical instruments provided by the Lord, as opposed to a “translation” by one with knowledge of languages. Joseph Smith declared that through God’s power he “translated the Book of Mormon from [hieroglyphs], the knowledge of which was lost to the world, in which wonderful event [he] stood alone, an unlearned youth, to combat the worldly wisdom and multiplied ignorance of eighteen centuries, with a new revelation.” The Lord’s help in the translation of the plates—or revelation, so to speak—is also evident when considering the miraculously short time Joseph Smith took to translate them.
-
-Joseph’s scribes testified of the power of God that was manifested while working on the translation of the Book of Mormon. Oliver Cowdery once said: “These were days never to be forgotten—to sit under the sound of a voice dictated by the inspiration of heaven, awakened the utmost gratitude of this bosom! Day after day I continued, uninterrupted, to write from his mouth, as he translated … ‘The Book of Mormon.’”
-
-Historical sources reveal that from the moment Joseph obtained the plates in 1827, attempts were made to steal them from him. He noted that “the most strenuous exertions were used to get [the plates] from [him]” and that “every stratagem that could be invented was resorted to for that purpose.” Eventually Joseph and Emma were forced to move from Manchester, New York, to Harmony, Pennsylvania, to find a safe place to proceed with the work of translation, away from mobs and individuals who wanted to steal the plates. As one historian notes: “Thus ended the first difficult phase of Joseph’s guardianship over the plates. … Yet the record was safe, and in his struggles to preserve them Joseph no doubt had learned much about the ways of God and man that would serve him well in the time to come.”
-
-While translating the Book of Mormon, Joseph learned that the Lord would choose witnesses to see the plates. This is part of what the Lord Himself established when He said, “In the mouth of two or three witnesses every word may be established.” Oliver Cowdery, David Whitmer, and Martin Harris, who were some of Joseph’s initial companions in the establishment of God’s marvelous work in this dispensation, were the first witnesses called to bear a special testimony of the Book of Mormon to the world. They testified that an angel, who came from the presence of the Lord, showed them the ancient record and that they saw the characters engraved in the plates. They also testified that they heard the voice of God from heaven declaring that the ancient record was translated by the gift and power of God. Then they were commanded to testify of it to the entire world.
-
-The Lord miraculously called another eight witnesses to see the gold plates for themselves and to be special witnesses of the truth and divinity of the Book of Mormon to the world. They testified that they saw and carefully examined the plates and their engraved characters. Even amid the adversities, persecutions, all kinds of difficulties, and even some of them later faltering in their faith, these eleven chosen Book of Mormon witnesses never denied their testimonies that they had seen the plates. Joseph Smith was not alone anymore with the knowledge of Moroni’s visits and the gold plates.
-
-Lucy Mack Smith recorded that her son arrived home overcome with joy after the witnesses were shown the plates. Joseph explained to his parents, “I feel as if I was relieved of a burden which was almost too heavy for me to bear, and it rejoices my soul, that I am not any longer to be entirely alone in the world.”
-
-Joseph Smith faced much opposition in printing the Book of Mormon as its translation came to an end. He was able to convince a printer named Egbert B. Grandin in Palmyra, New York, to print it only after Martin Harris, in an act of great faith and sacrifice, mortgaged his farm as collateral for the printing costs. Due in part to the continuing opposition after the publication of the Book of Mormon, Martin Harris faithfully sold 151 acres (0.6 km2) of his farm to pay off the publication costs. Through a revelation given to Joseph Smith, the Lord instructed Martin Harris to not covet his property and pay the printing cost for the book that “contains the truth and the word of God.” In March 1830 the first 5,000 copies of the Book of Mormon were published, and today more than 180 million copies have been printed in over a hundred languages.
-
-The historical facts and the special witnesses of the Book of Mormon testify that its coming forth was indeed miraculous. Nevertheless, the power of this book is not based only in its magnificent history but on its powerful, unparalleled message that has changed countless lives—including mine!
-
-I read the entire Book of Mormon for the first time when I was a young seminary student. As recommended by my teachers, I started reading it beginning with its introduction pages. The promise contained in the first pages of the Book of Mormon still echoes in my mind: “Ponder in [your] hearts … , and then … ask God [in faith] … in the name of Christ if the book is true. Those who pursue this course … will gain a testimony of its truth and divinity by the power of the Holy Ghost.”
-
-With that promise in mind, earnestly seeking to know more about the truth of it, and in a spirit of prayer, I studied the Book of Mormon, little by little, as I completed the weekly assigned seminary lessons. I remember, like it was yesterday, that a warm feeling gradually began swelling in my soul and filling my heart, enlightening my understanding, and becoming more and more delightful, as described by Alma in his preaching the word of God to his people. That feeling eventually turned into knowledge that took root in my heart and became the foundation of my testimony of the significant events and teachings found in this sacred book.
-
-Through these and other priceless personal experiences, the Book of Mormon indeed became the keystone that sustains my faith in Jesus Christ and my testimony of the doctrine of His gospel. It became one of the pillars that testifies to me of Christ’s divine atoning sacrifice. It became a shield throughout my life against the adversary’s attempts to weaken my faith and instill disbelief in my mind and gives me courage to boldly declare my testimony of the Savior to the world.
-
-My dear friends, my testimony of the Book of Mormon came line upon line as a miracle to my heart. To this day, this testimony continues to grow as I continuously search, with a sincere heart, to more fully understand the word of God as contained in this extraordinary book of scripture.
-
-To all who hear my voice today, I invite you to be part of the marvelous coming forth of the Book of Mormon in your own life. I promise you that as you prayerfully and consistently study its words, you can partake of its promises and rich blessings in your life. I reaffirm once more the promise that echoes through its pages: that if you “ask God, the Eternal Father, in the name of Christ, if these things are not true; and if ye shall ask with a sincere heart, with real intent, having faith in Christ,” He mercifully “will manifest the truth of it unto you, by the power of the Holy Ghost.” I can assure you that He will give you the answer in a very personal way, as He has done for me and many others around the world. Your experience will be as glorious and sacred for you as Joseph Smith’s experiences were for him, as well as for the first witnesses and for all who have sought to receive a witness of the integrity and trustworthiness of this sacred book.
-
-I bear my witness that the Book of Mormon is indeed the word of God. I testify that this sacred record “puts forth the doctrines of the gospel, outlines the plan of salvation, and tells men what they must do to gain peace in this life and eternal salvation in the life to come.” I testify that the Book of Mormon is God’s instrument to bring about the gathering of Israel in our day and to help people come to know His Son, Jesus Christ. I testify that God lives and loves us and His Son, Jesus Christ, is the Savior of the world, the chief cornerstone of our religion. I say these things in the sacred name of our Redeemer, our Master, and our Lord, even Jesus Christ, amen.
-
-
----
-
-
-## A Perfect Brightness of Hope
-
-**Speaker:** By Elder Jeffrey R. Holland
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2020
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2020/04/43holland?lang=eng
-
-Last October, President Russell M. Nelson invited us to look ahead to this April 2020 conference by each of us in our own way looking back to see the majesty of God’s hand in restoring the gospel of Jesus Christ. Sister Holland and I took that prophetic invitation seriously. We imagined ourselves living in the early 1800s, looking at the religious beliefs of that day. In that imagined setting, we asked ourselves, “What’s missing here? What do we wish we had? What do we hope God will provide in response to our spiritual longing?”
-
-Well, for one thing, we realized that two centuries ago we would have dearly hoped for the restoration of a truer concept of God than most in that day had, hidden as He often seemed to be behind centuries of error and misunderstanding. To borrow a phrase from William Ellery Channing, a prominent religious figure of the day, we would have looked for the “parental character of God,” which Channing considered “the first great doctrine of Christianity.” Such a doctrine would have recognized Deity as a caring Father in Heaven, rather than a harsh judge dispensing stern justice or as an absentee landlord who had once been engaged in earthly matters but was now preoccupied somewhere else in the universe.
-
-Yes, our hopes in 1820 would have been to find God speaking and guiding as openly in the present as He did in the past, a true Father, in the most loving sense of that word. He certainly would not have been a cold, arbitrary autocrat who predestined a select few for salvation and then consigned the rest of the human family to damnation. No, He would be one whose every action, by divine declaration, would be “for the benefit of the world; for he loveth the world” and every inhabitant in it. That love would be His ultimate reason for sending Jesus Christ, His Only Begotten Son, to the earth.
-
-Speaking of Jesus, had we lived in those first years of the 19th century, we would have realized with great alarm that doubts about the reality of the Savior’s life and Resurrection were beginning to take significant hold within Christendom. Therefore, we would have hoped for evidence to come to the whole world that would confirm the biblical witness that Jesus is the Christ, the literal Son of God, Alpha and Omega, and the only Savior this world will ever know. It would have been among our dearest hopes that other scriptural evidence be brought forward, something that could constitute another testament of Jesus Christ, enlarging and enhancing our knowledge of His miraculous birth, wondrous ministry, atoning sacrifice, and glorious Resurrection. Truly such a document would be “righteousness [sent] down out of heaven; and truth [sent] forth out of the earth.”
-
-Observing the Christian world in that day, we would have hoped to find someone authorized by God with true priesthood authority who could baptize us, bestow the gift of the Holy Ghost, and administer all gospel ordinances necessary for exaltation. In 1820, we would have hoped to see fulfilled the eloquent promises of Isaiah, Micah, and other ancient prophets regarding the return of the majestic house of the Lord. We would have thrilled to see the glory of holy temples established again, with the Spirit, the ordinances, the power, and the authority to teach eternal truths, heal personal wounds, and bind families together forever. I would have looked anywhere and everywhere to find someone authorized to say to me and my beloved Patricia that our marriage in such a setting was sealed for time and all eternity, never to hear or have imposed on us the haunting curse “until death do you part.” I know that “in [our] Father’s house are many mansions,” but, speaking personally, if I were to be so fortunate as to inherit one of them, it could be no more to me than a decaying shack if Pat and our children were not with me to share that inheritance. And for our ancestors, some of whom lived and died anciently without even hearing the name of Jesus Christ, we would have hoped for that most just and merciful of biblical concepts to be restored—the practice of the living offering up saving ordinances on behalf of their kindred dead. No practice I can imagine would demonstrate with more splendor a loving God’s concern for every one of His earthly children no matter when they lived nor where they died.
-
-Well, our 1820 list of hopes could go on, but perhaps the most important message of the Restoration is that such hopes would not have been in vain. Beginning in the Sacred Grove and continuing to this day, these desires began to be clothed in reality and became, as the Apostle Paul and others taught, true anchors to the soul, sure and steadfast. What was once only hoped for has now become history.
-
-Thus our look back at 200 years of God’s goodness to the world. But what of our look ahead? We still have hopes that have not yet been fulfilled. Even as we speak, we are waging an “all hands on deck” war with COVID-19, a solemn reminder that a virus 1,000 times smaller than a grain of sand can bring entire populations and global economies to their knees. We pray for those who have lost loved ones in this modern plague, as well as for those who are currently infected or at risk. We certainly pray for those who are giving such magnificent health care. When we have conquered this—and we will—may we be equally committed to freeing the world from the virus of hunger, freeing neighborhoods and nations from the virus of poverty. May we hope for schools where students are taught—not terrified they will be shot—and for the gift of personal dignity for every child of God, unmarred by any form of racial, ethnic, or religious prejudice. Undergirding all of this is our relentless hope for greater devotion to the two greatest of all commandments: to love God by keeping His counsel and to love our neighbors by showing kindness and compassion, patience and forgiveness. These two divine directives are still—and forever will be—the only real hope we have for giving our children a better world than the one they now know.
-
-In addition to having these global desires, many in this audience today have deeply personal hopes: hope for a marriage to improve, or sometimes just hope for a marriage; hope for an addiction to be conquered; hope for a wayward child to come back; hope for physical and emotional pain of a hundred kinds to cease. Because the Restoration reaffirmed the foundational truth that God does work in this world, we can hope, we should hope, even when facing the most insurmountable odds. That is what the scripture meant when Abraham was able to hope against hope—that is, he was able to believe in spite of every reason not to believe—that he and Sarah could conceive a child when that seemed utterly impossible. So, I ask, “If so many of our 1820 hopes could begin to be fulfilled with a flash of divine light to a mere boy kneeling in a patch of trees in upstate New York, why should we not hope that righteous desires and Christlike yearnings can still be marvelously, miraculously answered by the God of all hope?” We all need to believe that what we desire in righteousness can someday, someway, somehow yet be ours.
-
-Brothers and sisters, we know what some of the religious deficiencies in the early 19th century were. Furthermore, we know something of today’s religious shortcomings that still leave the hunger and hope of some unfulfilled. We know a variety of those dissatisfactions are leading some away from traditional ecclesiastical institutions. We also know, as one frustrated writer wrote, that “many religious leaders [of the day] seem clueless” in addressing this kind of decline, offering in response “a thin gruel of therapeutic deism, cheap symbolic activism, carefully couched heresy, [or sometimes just] uninspiring nonsense”—and all at a time when the world needs so much more, when the rising generation deserves so much more, and when in Jesus’s day He offered so much more. As disciples of Christ, we can in our day rise above those ancient Israelites who moaned, “Our bones are dried, and our hope is lost.” Indeed, if we finally lose hope, we lose our last sustaining possession. It was over the very gate of hell that Dante wrote a warning to all those traveling through his Divina Commedia: “Abandon all hope,” he said, “ye who enter here.” Truly when hope is gone, what we have left is the flame of the inferno raging on every side.
-
-So, when our backs are to the wall and, as the hymn says, “other helpers fail and comforts flee,” among our most indispensable virtues will be this precious gift of hope linked inextricably to our faith in God and our charity to others.
-
-In this bicentennial year, when we look back to see all we have been given and rejoice in the realization of so many hopes fulfilled, I echo the sentiment of a beautiful young returned sister missionary who said to us in Johannesburg just a few months ago, “[We] did not come this far only to come this far.”
-
-Paraphrasing one of the most inspiring valedictories ever recorded in scripture, I say with the prophet Nephi and that young sister:
-
-“My beloved brethren [and sisters], after ye have [received these first fruits of the Restoration], I would ask if all is done? Behold, I say unto you, Nay. …
-
-“… Ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. … If ye shall[,] … saith the Father: Ye shall have eternal life.”
-
-I give thanks, my brothers and sisters, for all we have been given in this last and greatest of all dispensations, the dispensation of the restored gospel of Jesus Christ. The gifts and blessings that flow from that gospel mean everything to me—everything—so in an effort to thank my Father in Heaven for them, I have “promises to keep, and miles to go before I sleep, and miles to go before I sleep.” May we press forward with love in our hearts, walking in the “brightness of hope” that lights the path of holy anticipation we have been on now for 200 years. I testify that the future is going to be as miracle-filled and bountifully blessed as the past has been. We have every reason to hope for blessings even greater than those we have already received because this is the work of Almighty God, this is the Church of continuing revelation, this is the gospel of Christ’s unlimited grace and benevolence. I bear witness to all of these truths and so much more in the name of Jesus Christ, amen.
-
-
----
-
-
-## Unwavering Commitment to Jesus Christ
-
-**Speaker:** By Elder Dale G. Renlund
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/10/16renlund?lang=eng
-
-Last April, I had the privilege of dedicating the Kinshasa Democratic Republic of the Congo Temple. Words cannot express the joy the faithful Congolese and I felt to see a temple dedicated in their land.
-
-Individuals who enter the Kinshasa Temple see an original painting entitled Congo Falls. It uniquely reminds temple-goers of the unwavering commitment required to anchor themselves to Jesus Christ and to follow the covenant path of our Heavenly Father’s plan. The waterfalls depicted in the painting call to mind a practice that was common more than a century ago among early converts to Christianity in Congo.
-
-Before their conversion, they worshipped inanimate objects, believing that the items possessed supernatural powers. After conversion, many made a pilgrimage to one of the countless waterfalls along the Congo River, such as the Nzongo Falls. These converts threw their previously idolized objects into the waterfalls as a symbol to God and others that they had discarded their old traditions and accepted Jesus Christ. They intentionally did not throw their objects into calm, shallow waters; they threw them into the churning waters of a massive waterfall, where the items became unrecoverable. These actions were a token of a new but unwavering commitment to Jesus Christ.
-
-People in other places and ages demonstrated their commitment to Jesus Christ in similar ways. The Book of Mormon people known as the Anti-Nephi-Lehies “laid down the weapons of their rebellion,” burying them “deep in the earth” as “a testimony to God … that they never would use [their] weapons again.” In doing so, they promised to follow God’s teachings and never go back on their commitment. This action was the beginning of being “converted unto the Lord” and never falling away.
-
-Being “converted unto the Lord” means leaving one course of action, directed by an old belief system, and adopting a new one based on faith in Heavenly Father’s plan and in Jesus Christ and His Atonement. This change is more than an intellectual acceptance of gospel teachings. It shapes our identity, transforms our understanding of life’s meaning, and leads to unchanging fidelity to God. Personal desires that are contrary to being anchored to the Savior and to following the covenant path fade away and are replaced by a determination to submit to the will of Heavenly Father.
-
-Being converted unto the Lord starts with an unwavering commitment to God, followed by making that commitment part of who we are. Internalizing such a commitment is a lifelong process that requires patience and ongoing repentance. Eventually, this commitment becomes part of who we are, embedded in our sense of self, and ever present in our lives. Just as we never forget our own name no matter what else we are thinking about, we never forget a commitment that is etched in our hearts.
-
-God invites us to cast our old ways completely out of reach and begin a new life in Christ. This happens as we develop faith in the Savior, which begins by hearing the testimony of those who have faith. Thereafter, faith deepens as we act in ways that anchor us more firmly to Him.
-
-Now, it would be nice if increased faith were transmitted like the flu or the common cold. Then a simple “spiritual sneeze” would build faith in others. But it does not work that way. The only way faith grows is for an individual to act in faith. These actions are often prompted by invitations extended by others, but we cannot “grow” someone else’s faith or rely solely on others to bolster our own. For our faith to grow, we must choose faith-building actions, such as praying, studying the scriptures, partaking of the sacrament, keeping the commandments, and serving others.
-
-As our faith in Jesus Christ grows, God invites us to make promises with Him. These covenants, as such promises are known, are manifestations of our conversion. Covenants also create a sure foundation for spiritual progression. As we choose to be baptized, we begin to take upon ourselves the name of Jesus Christ and choose to identify ourselves with Him. We pledge to become like Him and to develop His attributes.
-
-Covenants anchor us to the Savior and propel us along the path that leads to our heavenly home. The power of covenants helps us maintain the mighty change of heart, deepen our conversion to the Lord, and receive Christ’s image more fully in our countenance. But a half-hearted commitment to our covenants will not guarantee us anything. We may be tempted to equivocate, throw our old ways in calm water, or bury our weapons of rebellion with the handles sticking out. But an ambivalent commitment to our covenants will not open the door to the sanctifying power of Heavenly Father and Jesus Christ.
-
-Our commitment to keep our covenants should not be conditional or vary with changing circumstances in our lives. Our constancy to God should be like the dependable Congo River that flows near the Kinshasa Temple. This river, unlike most rivers in the world, has constant flow all year and pours nearly 11 million gallons (41.5 million L) of water per second into the Atlantic Ocean.
-
-The Savior invited His disciples to be this dependable and steadfast. He said, “Wherefore, settle this in your hearts, that ye will do the things which I shall teach, and command you.” A “settled” determination to keep our covenants allows for the full realization of God’s promise of enduring joy.
-
-Many faithful Latter-day Saints have demonstrated that they are “settled” in keeping their covenants with God and are forever changed. Let me tell you about three such individuals—Brother Banza Mucioko, Sister Banza Régine, and Brother Mbuyi Nkitabungi.
-
-In 1977 the Banzas lived in Kinshasa in the country of Zaire, now known as the Democratic Republic of the Congo. They were highly respected in their Protestant church community. Because of their talents, their church arranged for their young family to go to Switzerland to study and provided a university scholarship.
-
-While in Geneva, on the bus route to school, Brother Banza frequently saw a small meetinghouse with the name “The Church of Jesus Christ of Latter-day Saints.” He wondered, “Does Jesus Christ have Saints now, in the latter days?” He eventually decided to go and see.
-
-Brother and Sister Banza were greeted warmly at the branch. They asked some of the persistent questions they had about the nature of God, such as, “If God is a spirit, like the wind, how could we be created in His likeness? How could He sit on a throne?” They had never received a satisfactory answer until the missionaries explained restored doctrine in a brief lesson. When the missionaries left, the Banzas looked at each other and said, “Isn’t this the truth that we have heard?” They continued coming to church and meeting with the missionaries. They knew that baptism in the restored Church of Jesus Christ would have consequences. They would be stripped of their scholarships, their visas would be revoked, and they and their two young children would be required to leave Switzerland. They chose to be baptized and confirmed in October 1979.
-
-Two weeks after their baptism, Brother and Sister Banza returned to Kinshasa as the first and second members of the Church in their country. The members of the Geneva Branch stayed in contact with them and helped them connect with Church leaders. The Banzas were encouraged to faithfully await the promised time when God would establish His Church in Zaire.
-
-Meanwhile, another exchange student from Zaire, Brother Mbuyi, was studying in Belgium. He was baptized in 1980 in the Brussels Ward. Soon thereafter, he served a full-time mission to England. And God worked His miracles. Brother Mbuyi returned to Zaire as the third member of the Church in his country. With parental permission, Church meetings were held in his family home. In February 1986 a petition was made for official government recognition of the Church. The signatures of three citizens of Zaire were required. The three happy signatories of the petition were Brother Banza, Sister Banza, and Brother Mbuyi.
-
-These stalwart members knew the truth when they heard it; they made a covenant at baptism that anchored them to the Savior. They metaphorically threw their old ways into a churning waterfall with no intention of retrieving them. The covenant path was never easy. Political turmoil, infrequent contact with Church leaders, and challenges inherent in building a community of Saints might have deterred less-committed individuals. But Brother and Sister Banza and Brother Mbuyi persevered in their faith. They were present at the dedication of the Kinshasa Temple, 33 years after they signed the petition that led to the official recognition of the Church in Zaire.
-
-The Banzas are here in the Conference Center today. They are accompanied by their two sons, Junior and Phil, and daughters-in-law, Annie and Youyou. In 1986, Junior and Phil were the first two individuals baptized into the Church in Zaire. Brother Mbuyi is watching these proceedings from Kinshasa with his wife, Maguy, and their five children.
-
-These pioneers understand the meaning and consequences of covenants through which they have been brought “to the knowledge of the Lord their God, and to rejoice in Jesus Christ their Redeemer.”
-
-How do we anchor ourselves to the Savior and remain faithful like these and many tens of thousands of Congolese Saints who followed them and millions of others throughout the world? The Savior taught us how. Each week we partake of the sacrament and make a covenant with our Heavenly Father. We promise to link our identity with the Savior’s by pledging our willingness to take upon us His name, to always remember Him, and to keep His commandments. Conscientiously preparing for and worthily making these covenants each week anchors us to the Savior, helps us internalize our commitment, and powerfully propels us along the covenant path.
-
-I invite you to commit to a lifelong process of discipleship. Make and keep covenants. Throw your old ways into deep, churning waterfalls. Completely bury your weapons of rebellion with no handles sticking out. Because of the Atonement of Jesus Christ, making covenants with a real intent to reliably honor them will bless your life forever. You will become more like the Savior as you always remember Him, follow Him, and adore Him. I testify that He is the firm foundation. He is dependable, and His promises are sure. In the name of Jesus Christ, amen.
-
-
----
-
-
-## Fruit
-
-**Speaker:** By Elder Neil L. Andersen
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/10/56andersen?lang=eng
-
-I know what you are thinking! Just one more speaker and we will hear from President Nelson. Hoping to keep you alert for a few minutes as we await our beloved prophet, I have selected a very appealing topic: my subject is fruit.
-
-With the color, texture, and sweetness of berries, bananas, watermelons, and mangoes, or of more exotic fruit like kiwano or pomegranate, fruit has long been a treasured delicacy.
-
-During His earthly ministry, the Savior compared good fruit to things of eternal worth. He said, “Ye shall know them by their fruits.” “Every good tree bringeth forth good fruit.” He encouraged us to gather “fruit unto life eternal.”
-
-In a vivid dream that we all know well in the Book of Mormon, the prophet Lehi finds himself in “a dark and dreary wilderness.” There is filthy water, a mist of darkness, strange roads, and forbidden paths, as well as a rod of iron along a strait and narrow path leading to a beautiful tree with “fruit [that makes] one happy.” Recounting the dream, Lehi says: “I did … partake of the fruit; … it was most sweet, above all that I [had] ever … tasted. … [And] it filled my soul with exceedingly great joy.” This fruit was “[more] desirable [than any] other fruit.”
-
-What does this tree with its most precious fruit symbolize? It represents “the love of God” and proclaims our Heavenly Father’s marvelous plan of redemption. “For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.”
-
-This precious fruit symbolizes the wondrous blessings of the Savior’s incomparable Atonement. Not only will we live again following our mortality, but through our faith in Jesus Christ, our repentance, and our keeping the commandments, we can be forgiven of our sins and one day stand clean and pure before our Father and His Son.
-
-Partaking of the fruit of the tree also symbolizes that we embrace the ordinances and covenants of the restored gospel—being baptized, receiving the gift of the Holy Ghost, and entering the house of the Lord to be endowed with power from on high. Through the grace of Jesus Christ and by honoring our covenants, we receive the immeasurable promise of living with our righteous family throughout eternity.
-
-No wonder the angel described the fruit as “the most joyous to the soul.” It truly is!
-
-As we have all learned, even after savoring the precious fruit of the restored gospel, staying true and faithful to the Lord Jesus Christ is still not easily done. As has been said many times in this conference, we continue to face distractions and deceptions, confusion and commotion, enticements and temptations that attempt to pull our hearts away from the Savior and the joys and beauties we have experienced in following Him.
-
-Because of this adversity, Lehi’s dream also includes a warning! On the other side of the river is a spacious building with people of all ages pointing their fingers, mocking, and scoffing at the righteous followers of Jesus Christ.
-
-The people in the building are ridiculing and laughing at those keeping the commandments, hoping to discredit and deride their faith in Jesus Christ and in His gospel. And because of the verbal attacks of doubt and disdain launched at the believers, some of those who have tasted of the fruit begin to feel ashamed of the gospel they once embraced. The false allures of the world seduce them; they turn away from the tree and from the fruit and, in the words of the scripture, “[fall] away into forbidden paths and [are] lost.”
-
-In our world today, the adversary’s construction crews are working overtime, hastily inflating the large and spacious building. The expansion has spread across the river, hoping to envelop our homes, while the pointers and the scoffers wail day and night on their internet megaphones.
-
-President Nelson explained, “The adversary is quadrupling his efforts to disrupt testimonies and impede the work of the Lord.” Let us remember Lehi’s words: “We heeded them not.”
-
-Although we need not fear, we are to be on guard. At times, little things can upend our spiritual balance. Please don’t allow your questions, the insults of others, faithless friends, or unfortunate mistakes and disappointments to turn you away from the sweet, pure, and soul-satisfying blessings that come from the precious fruit of the tree. Keep your eyes and your hearts centered on the Savior Jesus Christ and the eternal joy that comes only through Him.
-
-In June my wife, Kathy, and I attended the funeral of Jason Hall. At the time of his passing, he was 48 years old and serving as an elders quorum president.
-
-Here are Jason’s words about an event that changed his life:
-
-“[At age 15] I [was] in a diving accident. … I [broke] my neck and was paralyzed from the chest down. I lost complete control of my legs and partial control of my arms. I could no longer walk, stand, … or feed myself. I could barely breathe or speak.”
-
-“‘Dear Father [in Heaven],’ I begged, ‘if I could only have my hands, I know I could make it. Please, Father, please. …
-
-“… ‘Keep my legs, Father; I just [pray for] the use of my hands.’”
-
-Jason never received the use of his hands. Can you hear the voices from the spacious building? “Jason Hall, God does not hear your prayers! If God is a loving God, how could He leave you like this? Why have faith in Christ?” Jason Hall heard their voices, but he did not heed them. Instead he feasted upon the fruit of the tree. His faith in Jesus Christ became immovable. He graduated from the university and married Kolette Coleman in the temple, describing her as the love of his life. After 16 years of marriage, another miracle, their precious son, Coleman, was born.
-
-How did they grow their faith? Kolette explained: “We trusted in God’s plan. And it gave us hope. We knew that Jason would [in a future day] be whole. … We knew that God provided us a Savior, whose atoning sacrifice enables us to keep looking forward when we want to give up.”
-
-Speaking at Jason’s funeral, 10-year-old Coleman said his dad taught him: “Heavenly Father [has] a plan for us, earth life would be awesome, and we could live in families. … But … we would have to go through hard things and we would make mistakes.”
-
-Coleman continued: “Heavenly Father sent His Son, Jesus, to earth. His job was to be perfect. To heal people. To love them. And then to suffer for all of our pain, sorrows, and sins. Then He died for us.” Then Coleman added, “Because He did this, Jesus knows how I feel right now.
-
-“Three days after Jesus died, He … came alive again, with His body perfect. This is important to me because I know that … my [dad’s] body will be perfect and we will be together as a family.”
-
-Coleman concluded: “Every night since I was a baby, my dad said to me, ‘Dad loves you, Heavenly Father loves you, and you’re a good boy.’”
-
-President Russell M. Nelson described why the Hall family feels joy and hope. He said:
-
-“The joy we feel has little to do with the circumstances of our lives and everything to do with the focus of our lives.
-
-“When the focus of our lives is on God’s plan of salvation … and Jesus Christ and His gospel, we can feel joy regardless of what is happening—or not happening—in our lives. Joy comes from and because of Him. He is the source of all joy. …
-
-“If we look to the world … , we will never know joy. … [Joy] is the gift that comes from intentionally trying to live a righteous life, as taught by Jesus Christ.”
-
-If you have been without the fruit of the tree for some time, please know that the Savior’s arms are always outstretched to you. He lovingly beckons, “Repent and come unto me.” His fruit is plentiful and always in season. It cannot be purchased with money, and no one who honestly desires it is denied.
-
-If you desire to return to the tree and taste the fruit once again, begin by praying to your Heavenly Father. Believe in Jesus Christ and the power of His atoning sacrifice. I promise you that as you look to the Savior “in every thought,” the fruit of the tree will be yours once again, delicious to your taste, joyous to your soul, “the greatest of all the gifts of God.”
-
-Three weeks ago today, I saw the joy of the Savior’s fruit on full display as Kathy and I attended the Lisbon Portugal Temple dedication. The truths of the restored gospel opened to Portugal in 1975 as religious freedom became available. Many noble Saints who first tasted of the fruit when there were no congregations, no chapels, and no temple closer than 1,000 miles (1,600 km) rejoiced with us that the precious fruit of the tree is now in a house of the Lord in Lisbon, Portugal. How I honor and revere these Latter-day Saints who have kept their hearts riveted on the Savior.
-
-The Savior said, “He that abideth in me, and I in him, the same bringeth forth much fruit: for without me ye can do nothing.”
-
-Speaking this morning to the members of the Church across the world, President Nelson said, “My dear brothers and sisters, you are living exemplars of the fruits that come from following the teachings of Jesus Christ.” Then he added: “I thank you! I love you!”
-
-We love you, President Nelson.
-
-I am an eyewitness to the power of revelation that rests upon our dear President. He is the prophet of God. Like Lehi of old, President Russell M. Nelson beckons to us and all of God’s family to come and partake of the fruit of the tree. May we have the humility and strength to follow his counsel.
-
-I humbly witness that Jesus Christ is the Son of God. His love, His power, and His grace bring all things of lasting worth. I so testify in the name of Jesus Christ, amen.
-
-
----
-
-
-## Your Great Adventure
-
-**Speaker:** By Elder Dieter F. Uchtdorf
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/10/43uchtdorf?lang=eng
-
-A beloved children’s fantasy novel written many years ago begins with the sentence “In a hole in the ground there lived a hobbit.”
-
-The story of Bilbo Baggins is about a most normal and unremarkable hobbit who is presented with a most remarkable opportunity—the wonderful chance at adventure and the promise of a great reward.
-
-The problem is that most self-respecting hobbits want nothing to do with adventures. Their lives are all about comfort. They enjoy eating six meals a day when they can get them and spend their days in their gardens, swapping tales with visitors, singing, playing musical instruments, and basking in the simple joys of life.
-
-However, when Bilbo is presented with the prospect of a grand adventure, something surges deep within his heart. He understands from the outset that the journey will be challenging. Even dangerous. There is even a possibility he might not return.
-
-And yet, the call to adventure has reached deep into his heart. And so, this unremarkable hobbit leaves comfort behind and enters the path to a great adventure that will take him all the way to “there and back again.”
-
-Perhaps one of the reasons this story resonates with so many is because it is our story too.
-
-Long, long ago, even before we were born, in an age dimmed by time and clouded from memory, we too were invited to embark on an adventure. It was proposed by God, our Heavenly Father. Accepting this adventure would mean leaving the comfort and security of His immediate presence. It would mean coming to earth for a journey filled with unknown danger and trial.
-
-We knew it would not be easy.
-
-But we also knew that we would gain precious treasures, including a physical body and experiencing the intense joys and sorrows of mortality. We would learn to strive, to seek, and to struggle. We would discover truths about God and ourselves.
-
-Of course, we knew we would make many mistakes along the way. But we also had a promise: that because of the great sacrifice of Jesus Christ, we could be cleansed of our transgressions, refined and purified in our spirits, and one day resurrected and reunited with those we love.
-
-We learned how much God loves us. He gave us life, and He wants us to succeed. Therefore, He prepared a Savior for us. “Nevertheless,” our Father in Heaven said, “thou mayest choose for thyself, for it is given unto thee.”
-
-There must have been parts of the mortal adventure that worried and even terrified God’s children, since a large number of our spiritual brothers and sisters decided against it.
-
-By the gift and power of moral agency, we determined that the potential of what we could learn and eternally become was well worth the risk.
-
-And so, trusting the promises and power of God and His Beloved Son, we accepted the challenge.
-
-I did.
-
-And so did you.
-
-We agreed to leave the security of our first estate and embark on our own great adventure of “there and back again.”
-
-And yet, mortal life has a way of distracting us, doesn’t it? We tend to lose sight of our great quest, preferring comfort and ease over growth and progress.
-
-Still, there remains something undeniable, deep within our hearts, that hungers for a higher and nobler purpose. This hunger is one reason why people are drawn to the gospel and Church of Jesus Christ. The restored gospel is, in a sense, a renewal of the call to adventure we accepted so long ago. The Savior invites us, each day, to set aside our comforts and securities and join Him on the journey of discipleship.
-
-There are many bends in this road. There are hills, valleys, and detours. There may even be metaphorical spiders, trolls, and even a dragon or two. But if you stay on the path and trust in God, you will eventually find the way to your glorious destiny and back to your heavenly home.
-
-So how do you begin?
-
-It’s quite simple.
-
-First, you need to choose to incline your heart to God. Strive each day to find Him. Learn to love Him. And then let that love inspire you to learn, understand, and follow His teachings and learn to keep God’s commandments. The restored gospel of Jesus Christ is given to us in a plain and simple way that a child can understand. Yet the gospel of Jesus Christ has the answers to the most complex questions in life and has such profound depth and complexity that even with a lifetime of study and pondering, we can scarcely comprehend even the smallest part.
-
-If you hesitate in this adventure because you doubt your ability, remember that discipleship is not about doing things perfectly; it’s about doing things intentionally. It is your choices that show what you truly are, far more than your abilities.
-
-Even when you fail, you can choose not to give up, but rather discover your courage, press forward, and rise up. That is the great test of the journey.
-
-God knows that you are not perfect, that you will fail at times. God loves you no less when you struggle than when you triumph.
-
-Like a loving parent, He merely wants you to keep intentionally trying. Discipleship is like learning to play the piano. Perhaps all you can do at first is play a barely recognizable rendition of “Chopsticks.” But if you continue practicing, the simple tunes will one day give way to wondrous sonatas, rhapsodies, and concertos.
-
-Now, that day may not come during this life, but it will come. All God asks is that you consciously keep striving.
-
-There is something interesting, almost paradoxical, about this path you’ve chosen: the only way for you to progress in your gospel adventure is to help others progress as well.
-
-To help others is the path of discipleship. Faith, hope, love, compassion, and service refine us as disciples.
-
-Through your efforts to help the poor and the needy, to reach out to those in distress, your own character is purified and forged, your spirit is enlarged, and you walk a little taller.
-
-But this love cannot come with expectations of repayment. It cannot be the kind of service that expects recognition, adulation, or favor.
-
-True disciples of Jesus Christ love God and His children without expectation of something in return. We love those who disappoint us, who don’t like us. Even those who ridicule, abuse, and seek to hurt us.
-
-When you fill your hearts with the pure love of Christ, you leave no room for rancor, judgment, and shaming. You keep God’s commandments because you love Him. In the process, you slowly become more Christlike in your thoughts and deeds. And what adventure could be greater than this?
-
-The third thing we strive to master in this journey is to take upon ourselves the name of Jesus Christ and not be ashamed of being a member of the Church of Jesus Christ.
-
-We do not hide our faith.
-
-We do not bury it.
-
-To the contrary, we talk about our journey with others in normal and natural ways. That’s what friends do—they talk about things that are important to them. Things that are close to their heart and make a difference to them.
-
-That’s what you do. You tell your stories and experiences as a member of The Church of Jesus Christ of Latter-day Saints.
-
-Sometimes your stories make people laugh. Sometimes they bring them to tears. Sometimes they will help people to continue in patience, resilience, and courage to face another hour, another day and come a little closer to God.
-
-Share your experiences in person, on social media, in groups, everywhere.
-
-One of the last things Jesus told His disciples was that they were to go throughout the world and share the story of the risen Christ. Today we too joyfully accept that great commission.
-
-What a glorious message we have to share: because of Jesus Christ, every man, woman, and child can return home safely to their heavenly home and there dwell in glory and righteousness!
-
-There is even more good news to share.
-
-God has appeared to man in our day! We have a living prophet.
-
-May I remind you that God does not need you to “sell” the restored gospel or the Church of Jesus Christ.
-
-He simply expects you not to hide it under a bushel.
-
-And if people decide the Church is not for them, that is their decision.
-
-It does not mean you have failed. You continue to treat them kindly. Nor does it exclude that you invite them again.
-
-The difference between casual social contacts and compassionate, courageous discipleship is—invitation!
-
-We love and respect all of God’s children, regardless of their position in life, regardless of their race or religion, regardless of their life’s decisions.
-
-For our part, we will say, “Come and see! Find out for yourself how walking the path of discipleship will be rewarding and ennobling.”
-
-We invite people to “come and help, as we try to make the world a better place.”
-
-And we say, “Come and stay! We are your brothers and sisters. We are not perfect. We trust God and seek to keep His commandments.
-
-“Join with us, and you will make us better. And, in the process, you will become better as well. Let’s take this adventure together.”
-
-When our friend Bilbo Baggins felt the call to adventure stir within him, he decided to get a good night’s rest, enjoy a hearty breakfast, and start out first thing in the morning.
-
-When Bilbo awoke, he noticed his house was a mess, and he was almost distracted from his noble plan.
-
-But then his friend Gandalf came and asked, “Whenever are you going to come?” To catch up with his friends, Bilbo had to decide for himself what to do.
-
-And so, the very normal and unremarkable hobbit found himself darting out his front door to the path of adventure so quickly that he forgot his hat, walking stick, and pocket handkerchief. He even left his second breakfast unfinished.
-
-Perhaps there is a lesson here for us as well.
-
-If you and I have felt the stirrings to join the great adventure of living and sharing what our loving Heavenly Father prepared for us a long time ago, I assure you, today is the day to follow God’s Son and our Savior on His path of service and discipleship.
-
-We could spend a lifetime waiting for that moment when everything lines up perfectly. But now is the time to commit fully to seeking God, ministering to others, and sharing our experience with others.
-
-Leave behind your hat, walking stick, handkerchief, and messy house.
-
-To those of us already walking that path, take courage, exercise compassion, have confidence, and continue!
-
-To those who have left the path, please come back, join again with us, make us stronger.
-
-And to those who have not yet begun, why delay? If you want to experience the wonders of this great spiritual journey, set foot upon your own grand adventure! Speak with the missionaries. Speak with your Latter-day Saint friends. Speak with them about this marvelous work and a wonder.
-
-It’s time to begin!
-
-If you sense that your life could have more meaning, a higher purpose, stronger family bonds, and a closer connection with God, please, come, join with us.
-
-If you seek a community of people who are working to become the best versions of themselves, help those in need, and make this world a better place, come, join with us!
-
-Come and see what this marvelous, wondrous, and adventurous journey is all about.
-
-Along the way you will discover yourself.
-
-You will discover meaning.
-
-You will discover God.
-
-You will discover the most adventurous and glorious journey of your life.
-
-Of this I testify in the name of our Redeemer and Savior, Jesus Christ, amen.
-
-
----
-
-
-## Giving Our Spirits Control over Our Bodies
-
-**Speaker:** By President M. Russell Ballard
-
-**Calling:** Acting President of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/10/53ballard?lang=eng
-
-My dear brothers and sisters, as October general conference approached last year, I prepared my conference talk to highlight the 100th anniversary of the vision of the spirit world given to President Joseph F. Smith on October 3, 1918.
-
-A few days after I had submitted my talk for translation, my beloved eternal companion, Barbara, completed her mortal probation and passed into the spirit world.
-
-As the days have turned into weeks, then months, and now a year since Barbara’s passing, I find myself more fully appreciating this scripture: “Thou shalt live together in love, insomuch that thou shalt weep for the loss of them that die.” Barbara and I were blessed to “live together in love” for 67 years. But I have learned in a very real way what it means to “weep for the loss” of those we love. Oh, how I love and miss her!
-
-I suppose most of us fail to fully appreciate what others do for us until they are gone. I knew Barbara was always busy, but I did not fully understand the constant family, Church, and community demands upon her time. There were daily consecrated efforts repeated thousands of times through the years that kept our family functioning. And through it all, no one in our family ever heard her raise her voice or say an unkind word.
-
-Floods of memories have washed over me this past year. I have thought about the physically demanding choice she made to be the mother of seven children. Being a homemaker was the only career she ever wanted, and she was in every aspect a consummate professional.
-
-Often I have wondered how she kept track of our children and me. Meal preparation alone was a truly daunting task, not to mention activities such as doing the mountains of laundry our family generated every week and keeping shoes and appropriately sized clothing on the children. We all turned to her on a myriad of other issues that were important to us. And because they were important to us, they were also important to her. She was, in a word, magnificent—as a wife, as a mother, as a friend, as a neighbor, and as a daughter of God.
-
-Now that she has moved on, I am happy that I chose to sit next to her when I came home from the office during the last few months of her life, to hold her hand as we watched the endings of some of her favorite musicals—over and over again because Alzheimer’s would not allow her to remember that she had seen them just the afternoon before. Memories of those special hand-holding sessions are now very, very precious to me.
-
-Brothers and sisters, please do not miss an opportunity to look into the eyes of your family members with love. Children and parents, reach out to each other and express your love and appreciation. Like me, some of you may wake up one day to discover that the time for such important communication has passed. Live each day together with hearts filled with gratitude, good memories, service, and much love.
-
-During this past year, I have pondered more intently than ever before about our Heavenly Father’s plan. In teaching his son Corianton, Alma referred to it as “the great plan of happiness.”
-
-The word that keeps coming to my mind now when I consider the plan is “reunion.” It is a plan, designed by our loving Father in Heaven, that has at its center the grand and glorious possibilities of family reunion—of eternally reuniting husbands and wives, parents and children, generation upon generation in the household of God.
-
-That thought brings me comfort and the assurance that I will be with Barbara again. Although she physically suffered toward the end of her life, her spirit was strong, noble, and pure. She had prepared herself in all things so that when the day comes, she can stand before “the pleasing bar of God,” full of confidence and peaceful assurance. But here I am, in two days 91 years old, and I’m still wondering, “Am I ready? Am I doing everything I need to do to be able to hold her hand once again?”
-
-The most simple, basic certainty of life is this: We are all going to die. Whether we die old or young, easy or hard, wealthy or indigent, beloved or lonely, nobody escapes death.
-
-A few years ago, President Gordon B. Hinckley said something that is particularly meaningful about this: “How sweet is the assurance, how comforting is the peace that come from the knowledge that if we marry right and live right, our relationship will continue, notwithstanding the certainty of death and the passage of time.”
-
-I certainly married right. Of that there can be no doubt. But that isn’t enough, according to President Hinckley. I also have to live right.
-
-Today, “living right” can be a pretty confusing concept, especially if you spend much time on social media, where any voice can declare real truths or false concepts about God and His plan for His children. Thankfully, members of the Church have eternally true gospel principles to know how to live so that we might be better prepared when we must die.
-
-Just a few months before I was born, my Apostle grandfather, Elder Melvin J. Ballard, gave a talk that, for some people, captured the essence of what it means to live right. Titled “Struggle for the Soul,” his talk focused on the ongoing battle between our physical bodies and our eternal spirits.
-
-He said, “The greatest conflict that any man or woman will ever have … will be the battle that is had with self,” explaining that Satan, “the enemy of our souls,” attacks us through “the lusts, the appetites, the ambitions of the flesh.” So the primary battle is between our divine and spiritual nature and the carnal natural man. Brothers and sisters, remember, we can receive spiritual help through the influence of the Holy Ghost that can “teach you all things.” Help can also come through the power and blessings of the priesthood.
-
-Now, I ask, how is this battle going with each one of you?
-
-President David O. McKay said: “Man’s earthly existence is but a test as to whether he will concentrate his efforts, his mind, his soul, upon things which contribute to the comfort and gratification of his physical nature, or whether he will make as his life’s [purpose] the acquisition of spiritual qualities.”
-
-This battle between our carnal and our spiritual natures isn’t a new thing. In his final sermon to his people, King Benjamin taught that “the natural man is an enemy to God, and has been from the fall of Adam, and will be, forever and ever, unless he yields to the enticings of the Holy Spirit, and putteth off the natural man and becometh a saint through the atonement of Christ the Lord.”
-
-The Apostle Paul taught that “they that are after the flesh do mind the things of the flesh; but they that are after the Spirit the things of the Spirit.
-
-“For to be carnally minded is death; but to be spiritually minded is life and peace.”
-
-It seems clear to me that one of the most important things we can learn in this life is how to emphasize our eternal spiritual nature and control our evil desires. This should not be that difficult. After all, our spirit, which has been around a lot longer than our physical body, has already been successful in choosing righteousness over evil in the premortal realm. Before this earth was formed, we lived in the spirit world as sons and daughters of Heavenly Parents, who loved us and continue to love us now.
-
-And yes, we did have to make life-changing decisions and choices in that premortal realm. Every person who has ever lived or ever will live on this planet made an essential decision to choose to accept Heavenly Father’s plan for our salvation. So we all came to earth with a proven track record of a successful spiritual nature and eternal destiny.
-
-Think about that for a moment. This is who you and I really are and who you have always been: a son or daughter of God, with spiritual roots in eternity and a future overflowing with infinite possibilities. You are—first, foremost, and always—a spiritual being. And so when we choose to put our carnal nature ahead of our spiritual nature, we are choosing something that is contrary to our real, true, authentic spiritual selves.
-
-Still, there’s no question that flesh and earthly impulses complicate the decision-making. With a veil of forgetfulness drawn between the premortal spirit world and this mortal world, we can lose sight of our relationship to God and our spiritual nature, and our carnal nature can give priority to what we want right now. Learning to choose the things of the Spirit over the things of the flesh is one of the primary reasons why this earthly experience is part of Heavenly Father’s plan. It’s also why the plan is built upon the solid, sure foundation of the Atonement of the Lord and Savior Jesus Christ so that our sins, including the errors we make when we yield to the flesh, can be overcome through constant repentance and we can live spiritually focused. Now is the time to control our bodily appetites to comply with the spiritual doctrine of Christ. That is why we must not procrastinate the day of our repentance.
-
-Repentance, therefore, becomes an indispensable weapon in our battle over self. Just last general conference, President Russell M. Nelson referred to this battle and reminded us that “when we choose to repent, we choose to change! We allow the Savior to transform us into the best version of ourselves. We choose to grow spiritually and receive joy—the joy of redemption in Him. When we choose to repent, we choose to become more like Jesus Christ!”
-
-Every night as I review my day in prayer with my Father in Heaven, I ask to be forgiven if I did anything wrong and promise to try to be better tomorrow. I believe this regular daily repentance helps my spirit remind my body who is in charge of me.
-
-Another resource is the weekly opportunity we all have to refresh ourselves spiritually by partaking of the sacrament in remembrance of the Atonement and the perfect love that our Lord and Savior, Jesus Christ, has for us.
-
-Brothers and sisters, I encourage you to slow down a bit and think about where you are now in subjugating your carnal nature and empowering your divine, spiritual nature so when the time comes, you may pass into the spirit world to a joyful reunion with your loved ones—for which I testify and humbly pray in the sacred name of the Lord Jesus Christ, amen.
-
-
----
-
-
-## Two Great Commandments
-
-**Speaker:** By President Dallin H. Oaks
-
-**Calling:** First Counselor in the First Presidency
-
-**Year:** 2019
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/10/35oaks?lang=eng
-
-My dear sisters in the gospel of Jesus Christ, I greet you as divinely assigned guardians of the eternal family. President Russell M. Nelson has taught us, “This Church was restored so that families could be formed, sealed, and exalted eternally.” That teaching has important implications for persons who identify as lesbian, gay, bisexual, or transgender, commonly referred to as LGBT. President Nelson has also reminded us that we don’t “have to [always] agree with each other to love each other.” These prophetic teachings are important for family discussions to answer the questions of children and youth. I have prayerfully sought inspiration to speak to this audience because you are uniquely affected by these questions, which directly or indirectly affect every family in the Church.
-
-I begin with what Jesus taught were the two great commandments.
-
-“Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind.
-
-“This is the first and great commandment.
-
-“And the second is like unto it, Thou shalt love thy neighbour as thyself.”
-
-This means we are commanded to love everyone, since Jesus’s parable of the good Samaritan teaches that everyone is our neighbor. But our zeal to keep this second commandment must not cause us to forget the first, to love God with all our heart, soul, and mind. We show that love by “keep[ing] [His] commandments.” God requires us to obey His commandments because only through that obedience, including repentance, can we return to live in His presence and become perfect as He is.
-
-In his recent talk to the young adults of the Church, President Russell M. Nelson spoke of what he called the “strong connection between God’s love and His laws.” The laws that apply most significantly to the issues relating to those identifying as LGBT are God’s law of marriage and its companion law of chastity. Both are essential in our Father in Heaven’s plan of salvation for His children. As President Nelson taught, “God’s laws are motivated entirely by His infinite love for us and His desire for us to become all we can become.”
-
-President Nelson taught: “Many countries … have legalized same-sex marriage. As members of the Church, we respect the laws of the land … , including civil marriage. The truth is, however, that in the beginning … marriage was ordained by God! And to this day it is defined by Him as being between a man and a woman. God has not changed His definition of marriage.”
-
-President Nelson continued: “God has also not changed His law of chastity. Requirements to enter the temple have not changed.”
-
-President Nelson reminded all of us that “our commission as Apostles is to teach nothing but truth. That commission does not give [Apostles] the authority to modify divine law.” Thus, my sisters, the leaders of the Church must always teach the unique importance of marriage between a man and a woman and the related law of chastity.
-
-The work of The Church of Jesus Christ of Latter-day Saints is ultimately concerned with preparing the children of God for the celestial kingdom, and most particularly for its highest glory, exaltation or eternal life. That highest destiny is possible only through marriage for eternity. Eternal life includes the creative powers inherent in the combination of male and female—what modern revelation describes as the “continuation of the seeds forever and ever.”
-
-In his talk to young adults, President Nelson taught, “Abiding by God’s laws will keep you safe as you progress toward eventual exaltation”—that is, to become like God, with the exalted life and divine potential of our Heavenly Parents. That is the destiny we desire for all we love. Because of that love, we cannot let our love supersede the commandments and the plan and work of God, which we know will bring those we love their greatest happiness.
-
-But there are many we love, including some who have the restored gospel, who do not believe in or choose not to follow God’s commandments about marriage and the law of chastity. What about them?
-
-God’s doctrine shows that all of us are His children and that He has created us to have joy. Modern revelation teaches that God has provided a plan for a mortal experience in which all can choose obedience to seek His highest blessings or make choices that lead to one of the less glorious kingdoms. Because of God’s great love for all of His children, those lesser kingdoms are still more wonderful than mortals can comprehend. The Atonement of Jesus Christ makes all of this possible, as He “glorifies the Father, and saves all the works of his hands.”
-
-I have spoken of the first commandment, but what of the second? How do we keep the commandment to love our neighbors? We seek to persuade our members that those who follow lesbian, gay, bisexual, or transgender teachings and actions should be treated with the love our Savior commands us to show toward all our neighbors. Thus, when same-sex marriage was declared legal in the United States, the First Presidency and Quorum of the Twelve declared: “The gospel of Jesus Christ teaches us to love and treat all people with kindness and civility—even when we disagree. We affirm that those who avail themselves of laws or court rulings authorizing same-sex marriage should not be treated disrespectfully.”
-
-Further, we must never persecute those who do not share our beliefs and commitments. Regretfully, some persons facing these issues continue to feel marginalized and rejected by some members and leaders in our families, wards, and stakes. We must all strive to be kinder and more civil.
-
-For reasons we do not understand, we have different challenges in our mortal experiences. But we do know that God will help each of us overcome these challenges if we sincerely seek His help. After suffering and repenting for violations of laws we have been taught, we are all destined for a kingdom of glory. The ultimate and final judgment will be by the Lord, who alone has the required knowledge, wisdom, and grace to judge each of us.
-
-Meanwhile, we must try to keep both of the great commandments. To do so, we walk a fine line between law and love—keeping the commandments and walking the covenant path, while loving our neighbors along the way. This walk requires us to seek divine inspiration on what to support and what to oppose and how to love and listen respectfully and teach in the process. Our walk demands that we not compromise on commandments but show forth a full measure of understanding and love. Our walk must be considerate of children who are uncertain about their sexual orientation, but it discourages premature labeling because, in most children, such uncertainty decreases significantly over time. Our walk opposes recruitment away from the covenant path, and it denies support to any who lead people away from the Lord. In all of this we remember that God promises hope and ultimate joy and blessings for all who keep His commandments.
-
-Mothers and fathers and all of us are responsible to teach both of the two great commandments. For the women of the Church, President Spencer W. Kimball described that duty in this great prophecy: “Much of the major growth that is coming to the Church in the last days will come because many of the good women of the world … will be drawn to the Church in large numbers. This will happen to the degree that the women of the Church reflect righteousness and articulateness in their lives and to the degree that the women of the Church are seen as distinct and different … from the women of the world. … Thus it will be that female exemplars of the Church will be a significant force in both the numerical and the spiritual growth of the Church in the last days.”
-
-Speaking of that prophecy, President Russell M. Nelson declared that “the day that President Kimball foresaw is today. You are the women he foresaw!” Little did we who heard that prophecy 40 years ago realize that among those the women of this Church may save will be their own dear friends and family who are currently influenced by worldly priorities and devilish distortions. My prayer and blessing is that you will teach and act to fulfill that prophecy, in the name of Jesus Christ, amen.
-
-
----
-
-
-## Covenant Belonging
-
-**Speaker:** By Elder Gerrit W. Gong
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/10/41gong?lang=eng
-
-Dear brothers and sisters, the story is told of a Primary child learning to pray. “Thank you for the letter A, the letter B, … the letter G.” The child’s prayer continues, “Thank you for the letters X, Y, Z. Dear Heavenly Father, thank you for the number 1, the number 2.” The Primary teacher worries but wisely waits. The child says, “Thank you for the number 5, the number 6—and thank you for my Primary teacher. She’s the only person who’s ever let me finish my prayer.”
-
-Heavenly Father does hear every child’s prayer. With infinite love, He beckons us to come believe and belong by covenant.
-
-This world is full of mirage, illusion, sleight of hand. So much seems transitory and superficial. When we put aside the masks, pretense, crowd-sourced likes and dislikes, we yearn for more than fleeting veneer, ephemeral connection, or the pursuit of worldly self-interest. Gratefully, there is a way through to answers that matter.
-
-When we come to God’s great commandments to love Him and those around us by covenant, we do so not as stranger or guest but as His child at home. The age-old paradox is still true. In losing our worldly self through covenant belonging, we find and become our best eternal self—free, alive, real—and define our most important relationships. Covenant belonging is to make and keep solemn promises to God and each other through sacred ordinances that invite the power of godliness to be manifest in our lives. When we covenant all we are, we can become more than we are. Covenant belonging gives us place, narrative, capacity to become. It produces faith unto life and salvation.
-
-Divine covenants become a source of love for and from God and thereby for and with each other. God, our Heavenly Father, loves us more and knows us better than we love or know ourselves. Faith in Jesus Christ and personal change (repentance) bring mercy, grace, forgiveness. These comfort the hurt, loneliness, injustice we experience in mortality. Being God, our Heavenly Father wants us to receive God’s greatest gift—His joy, His eternal life.
-
-Our God is a God of covenant. By His nature, He “keepest covenant and showest mercy.” His covenants endure “so long as time shall last, or the earth shall stand, or there shall be one man upon the face thereof to be saved.” We are not meant to wander in existential uncertainty and doubt but to rejoice in cherished covenant relationships “stronger than the cords of death.”
-
-God’s ordinances and covenants are universal in their requirement and individual in their opportunity. In God’s fairness, each individual in every place and age can receive saving ordinances. Agency applies—individuals choose whether to accept offered ordinances. God’s ordinances provide guideposts on His path of covenants. We call God’s plan to bring His children home the plan of redemption, plan of salvation, plan of happiness. Redemption, salvation, celestial happiness are possible because Jesus Christ “wrought out this perfect atonement.”
-
-To belong with God and to walk with each other on His covenant path is to be blessed by covenant belonging.
-
-First, covenant belonging centers in Jesus Christ as “mediator of the new covenant.” All things can work together for our good when we are “sanctified in Christ … in the covenant of the Father.” Every good and promised blessing comes to those who remain faithful to the end. The “happy state of those that keep the commandments of God” is to be “blessed in all things, both temporal and spiritual,” and to “dwell with God in … never-ending happiness.”
-
-As we honor our covenants, we may sometimes feel we are in the company of angels. And we will be—those we love and who bless us on this side of the veil and those who love and bless us from the other side of the veil.
-
-Recently Sister Gong and I saw covenant belonging at its tender best in a hospital room. A young father desperately needed a kidney transplant. His family had wept, fasted, and prayed for him to receive a kidney. When news came that a life-saving kidney had just become available, his wife quietly said, “I hope the other family is OK.” To belong by covenant is, in the words of the Apostle Paul, “that I may be comforted together with you by the mutual faith both of you and me.”
-
-Along life’s path, we may lose faith in God, but He never loses faith in us. As it were, His porch light is always on. He invites us to come or return to the covenants that mark His path. He waits ready to embrace us, even when we are “yet a great way off.” When we look with an eye of faith for the patterns, arc, or connected dots of our experience, we can see His tender mercies and encouragement, especially in our trials, sorrows, and challenges, as well as in our joys. However often we stumble or fall, if we keep moving toward Him, He will help us, a step at a time.
-
-Second, the Book of Mormon is evidence we can hold in our hand of covenant belonging. The Book of Mormon is the promised instrument for the gathering of God’s children, prophesied as a new covenant. As we read the Book of Mormon, by ourselves and with others, whether silently or aloud, we can ask God “with a sincere heart, with real intent, having faith in Christ,” and receive by the power of the Holy Ghost God’s assurance that the Book of Mormon is true. This includes assurance that Jesus Christ is our Savior, Joseph Smith is the prophet of the Restoration, and the Lord’s Church is called by His name—The Church of Jesus Christ of Latter-day Saints.
-
-The Book of Mormon speaks by ancient and modern covenant to you who are the children of Lehi, “children of the prophets.” Your forefathers received a covenant promise that you, their descendants, would recognize a voice as if from the dust in the Book of Mormon. That voice you feel as you read testifies you are “children of the covenant” and Jesus is your Good Shepherd.
-
-The Book of Mormon invites each of us, in Alma’s words, to enter “into a covenant with [the Lord], that [we] will serve him and keep his commandments, that he may pour out his Spirit more abundantly upon [us].” When we want to change for the better—as one person put it, “to stop being miserable and to be happy being happy”—we can become open to direction, help, and strength. We can come by covenant to belong with God and a community of faithful believers and receive the blessings promised in the doctrine of Christ—now.
-
-Restored priesthood authority and power to bless all His children is a third dimension of covenant belonging. In this dispensation, John the Baptist and the Apostles Peter, James, and John have come as glorified messengers from God to restore His priesthood authority. God’s priesthood and His ordinances sweeten relationships on earth and can seal covenant relationships in heaven.
-
-Priesthood can bless literally from cradle to grave—from an infant’s name and blessing to a grave dedication. Priesthood blessings heal, comfort, counsel. A father was angry with his son until forgiving love came as the father gave his son a tender priesthood blessing. The only member of the Church in her family, a dear young woman was uncertain about God’s love for her until she received an inspired priesthood blessing. Across the world, noble patriarchs prepare spiritually to give patriarchal blessings. As the patriarch lays his hands on your head, he feels and expresses God’s love for you. He pronounces your lineage in the house of Israel. He indicates blessings from the Lord. Typically thoughtful, one patriarch’s wife told me how she and her family invite the Spirit, especially on days their papa is giving patriarchal blessings.
-
-Finally, the blessings of covenant belonging come when we follow the Lord’s prophet and rejoice in temple-covenant living, including in marriage. Covenant marriage becomes supernal and eternal as we daily choose the happiness of our spouse and family before our own. As “me” becomes “we,” we grow together. We grow old together; we grow young together. As we bless each other across a lifetime of forgetting ourselves, we find our hopes and joys sanctified in time and eternity.
-
-While situations differ, when we do all we can, the best we can, and sincerely ask and seek His help along the way, the Lord will guide us, in His time and manner, by the Holy Ghost. Marriage covenants are binding by mutual choice of those making them—a reminder of God’s and our respect for agency and the blessing of His help when we unitedly seek it.
-
-The fruits of covenant belonging across family generations are felt in our homes and hearts. Please allow me to illustrate with personal examples.
-
-When Sister Gong and I were falling in love toward marriage, I learned about agency and decisions. For a period of time, we were in school studying in two different countries on two different continents. It is why I can honestly say I earned a PhD in international relations.
-
-When I asked, “Heavenly Father, should I marry Susan?” I felt peace. But it was when I learned to pray with real intent, “Heavenly Father, I love Susan and want to marry her. I promise I will be the best husband and father I can be”—when I acted and made my best decisions, it was then the strongest spiritual confirmations came.
-
-Now our Gong and Lindsay FamilySearch family trees, stories, and photos help us discover and connect through the lived experience of generational covenant belonging. For us, respected progenitors include:
-
-Great-Grandma Alice Blauer Bangerter, who had three marriage proposals in one day, later asked her husband to rig a foot pedal to her butter churn so she could churn butter, knit, and read at the same time.
-
-Great-Grandpa Loy Kuei Char carried his children on his back and his family’s few belongings on a donkey as they crossed the lava fields on Hawaii’s Big Island. Generations of Char family commitment and sacrifice bless our family today.
-
-Gram Mary Alice Powell Lindsay was left with five young children when her husband and oldest son both died suddenly just days apart. A widow for 47 years, Gram raised her family with sustaining love from local leaders and members. During those many years, Gram promised the Lord if He would help her, she would never complain. The Lord helped her. She never complained.
-
-Dear brothers and sisters, as witnessed by the Holy Ghost, everything good and eternal is centered in the living reality of God, our Eternal Father, and His Son, Jesus Christ, and His Atonement. Our Lord, Jesus Christ, is the Mediator of the new covenant. Testifying of Jesus Christ is a covenant purpose of the Book of Mormon. By oath and covenant, God’s restored priesthood authority is intended to bless all God’s children, including through covenant marriage, generational family, and individual blessings.
-
-Our Savior declares, “I am Alpha and Omega, Christ the Lord; yea, even I am he, the beginning and the end, the Redeemer of the world.”
-
-With us at the beginning, He is with us, in all our covenant belonging, to the end. I so testify in the sacred and holy name of Jesus Christ, amen.
-
-
----
-
-
-## Take Up Our Cross
-
-**Speaker:** By Elder Ulisses Soares
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/10/55soares?lang=eng
-
-Dear brothers and sisters, we have received wonderful teachings from our leaders during these last two days. I testify to you that if we strive to apply these inspired and timely teachings in our lives, the Lord, through His grace, will help each of us carry our cross and make our burdens light.
-
-While in the vicinity of Caesarea Philippi, the Savior revealed to His disciples what He would suffer at the hands of the elders, chief priests, and scribes in Jerusalem. He specifically taught them about His death and glorious Resurrection. At that point in time, His disciples did not completely understand His divine mission on earth. Peter himself, when he heard what the Savior had said, took Him aside and rebuked Him, saying, “Be it far from thee, Lord: this shall not be unto thee.”
-
-To help His disciples to understand that devotion to His work includes submission and suffering, the Savior emphatically declared:
-
-“If any man will come after me, let him deny himself, and take up his cross, and follow me.
-
-“For whosoever will save his life shall lose it: and whosoever will lose his life for my sake shall find it.
-
-“For what is a man profited, if he shall gain the whole world, and lose his own soul? or what shall a man give in exchange for his soul?”
-
-Through this declaration, the Savior emphasized that all those who are willing to follow Him need to deny themselves and control their desires, appetites, and passions, sacrificing everything, even life itself if necessary, being entirely submissive to the will of the Father—just as He did. This is, in fact, the price to be paid for the salvation of a soul. Jesus purposely and metaphorically used the symbol of a cross to help His disciples better understand what sacrifice and devotion to the Lord’s cause would truly mean. The image of a cross was well known among His disciples and the inhabitants of the Roman Empire because Romans forced victims of crucifixion to publicly carry their own cross or crossbeam to the place where their execution would occur.
-
-It was only after the Savior’s Resurrection that the disciples’ minds were opened to understand all that had been written about Him and what would be required of them from that time on.
-
-In the same fashion, all of us, brothers and sisters, need to open our minds and our hearts in order to more fully understand the relevance of taking upon ourselves our crosses and following Him. We learn through the scriptures that those who wish to take their cross upon themselves love Jesus Christ in such a way that they deny themselves of all ungodliness and of every worldly lust and keep His commandments.
-
-Our determination to cast off all that is contrary to God’s will and to sacrifice all we are asked to give and to strive to follow His teachings will help us to endure in the path of Jesus Christ’s gospel—even in the face of tribulation, the weakness of our souls, or the social pressure and worldly philosophies that oppose His teachings.
-
-For example, for those who have not yet found an eternal companion and may be feeling lonely and hopeless, or for those who have been divorced and feel abandoned and forgotten, I assure you that accepting the Savior’s invitation of taking upon yourselves your crosses and following Him means continuing with faith on the Lord’s path, maintaining a pattern of dignity, and not indulging in worldly habits that will eventually take away our hope in God’s love and mercy.
-
-The same principles apply to those of you who are experiencing same-gender attraction and feel discouraged and helpless. And maybe for this reason some of you are feeling that the gospel of Jesus Christ is not for you anymore. If that is the case, I want to assure you that there is always hope in God the Father and in His plan of happiness, in Jesus Christ and His atoning sacrifice, and in living Their loving commandments. In His perfect wisdom, power, justice, and mercy, the Lord may seal us His, that we may be brought to His presence and have everlasting salvation, if we are steadfast and immovable in keeping the commandments and are always abounding in good works.
-
-To those who have committed serious sins, accepting this same invitation means, among other things, to humble yourself before God, to counsel with appropriate Church leaders, and to repent and forsake your sins. This process will also bless all who are fighting against debilitating addictions, including opioids, drugs, alcohol, and pornography. Taking these steps brings you closer to the Savior, who can ultimately free you from guilt, sorrow, and spiritual and physical slavery. Additionally, you may also desire to seek the support of your family, friends, and competent medical and counseling professionals.
-
-Please never give up after subsequent failures and consider yourself incapable of abandoning sins and overcoming addiction. You cannot afford to stop trying and thereafter continue in weakness and sin! Always strive to do your best, manifesting through your works the desire to cleanse the inner vessel, as taught by the Savior. Sometimes solutions to certain challenges come after months and months of continuous effort. The promise found in the Book of Mormon that “it is by grace that we are saved, after all we can do,” is applicable in these circumstances. Please remember that the Savior’s gift of grace “is not necessarily limited in time to ‘after’ all we can do. We may receive His grace before, during, and after the time when we expend our own efforts.”
-
-I testify that as we continually strive to overcome our challenges, God will bless us with the gifts of faith to be healed and of the working of miracles. He will do for us what we are not capable of doing for ourselves.
-
-Additionally, for those who feel bitter, angry, offended, or chained to sorrows for something you feel is undeserved, to take up one’s cross and follow the Savior means to strive to lay aside these feelings and turn to the Lord so He can free us from this state of mind and help us to find peace. Unfortunately, if we hold on to these negative feelings and emotions, we may find ourselves living without the influence of the Lord’s Spirit in our lives. We cannot repent for other people, but we can forgive them—by refusing to be held hostages by those who have harmed us.
-
-The scriptures teach that there is a way out of these situations—by inviting our Savior to help us to replace our stony hearts with new hearts. For this to happen, we need to come before the Lord with our weaknesses and implore His help and forgiveness, especially during the sacred moment when we partake of the sacrament each Sunday. May we choose to seek His help and take an important and difficult step by forgiving those who have hurt us so that our wounds may begin to heal. I promise you that in your doing so, your nights will be full of the relief that comes from a mind at peace with the Lord.
-
-While in Liberty Jail in 1839, the Prophet Joseph Smith wrote an epistle to Church members containing prophecies that are so very applicable in all these circumstances and situations. He wrote, “All thrones and dominions, principalities and powers, shall be revealed and set forth upon all who have endured valiantly for the gospel of Jesus Christ.” Therefore, my dear brothers and sisters, those who have taken upon themselves the name of the Savior, trusting in His promises and persevering to the end, will be saved and may dwell with God in a state of never-ending happiness.
-
-We all face adverse circumstances in our lives that make us feel sad, helpless, hopeless, and sometimes even weakened. Some of these feelings may lead us to question the Lord: “Why am I experiencing these situations?” or “Why are my expectations not met? After all, I am doing everything in my power to carry my cross and follow the Savior!”
-
-My dear friends, we must remember that taking our cross upon ourselves includes being humble and trusting in God and in His infinite wisdom. We must acknowledge that He is aware of each of us and of our needs. It is also necessary to accept the fact that the Lord’s timing is different than ours. Sometimes we seek for a blessing and set a time limit for the Lord to fulfill it. We cannot condition our faithfulness to Him by imposing upon Him a deadline for the answers to our desires. When we do this, we resemble the skeptical Nephites from ancient times, who mocked their brothers and sisters by saying that the time was past for the fulfillment of the words spoken by Samuel the Lamanite, creating confusion among those who believed. We need to trust the Lord enough to be still and know that He is God, that He knows all things, and that He is aware of each of us.
-
-I recently had the opportunity to minister to a widowed sister named Franca Calamassi, who is suffering from a debilitating illness. Sister Calamassi was the first member of her family to join the restored Church of Jesus Christ. Although her husband was never baptized, he consented to meet with the missionaries and often attended Church meetings. Despite these circumstances, Sister Calamassi remained faithful and raised her four children in the gospel of Jesus Christ. A year following her husband’s passing, Sister Calamassi took her children to the temple, and they participated in sacred ordinances and were sealed together as a family. The promises associated with these ordinances brought her much hope, joy, and happiness that helped her carry on in life.
-
-When the first symptoms of the disease began to appear, her bishop gave her a blessing. At that time she told her bishop that she was ready to accept the Lord’s will, expressing her faith to be healed as well as her faith to endure her illness to the end.
-
-During my visit, while holding Sister Calamassi’s hand and looking into her eyes, I saw an angelic glow emanating from her countenance—reflecting her confidence in God’s plan and her perfect brightness of hope in the Father’s love and plan for her. I felt her firm determination to endure in her faith until the end by taking up her cross, despite the challenges she was facing. This sister’s life is a testimony of Christ, a statement of her faith and devotion to Him.
-
-Brothers and sisters, I want to testify to you that taking upon us our cross and following the Savior requires us to follow His example and strive to become like Him, patiently facing the circumstances of life, denying and despising the appetites of the natural man, and waiting on the Lord. The Psalmist wrote:
-
-“Wait on the Lord: be of good courage, and he shall strengthen thine heart: wait, I say, on the Lord.”
-
-“He is our help and our shield.”
-
-I testify to you that following our Master’s footsteps and waiting on Him who is the ultimate healer of our lives will provide rest to our souls and make our burdens easy and light. Of these things I testify in the sacred name of Jesus Christ, amen.
-
-
----
-
-
-## Adjustments to Strengthen Youth
-
-**Speaker:** By Elder Quentin L. Cook
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/10/25cook?lang=eng
-
-Thank you, dear President Nelson, for that joyful revelatory guidance with respect to witnesses at baptisms and the direction you have asked us to share to help strengthen youth and develop their sacred potential.
-
-Before I share those adjustments, we express our sincere appreciation for the exceptional way members have responded to developments in the ongoing Restoration of the gospel. As President Nelson suggested last year, you have taken your vitamins!
-
-You joyfully study Come, Follow Me at home. You have also responded to adjustments at church. Members of the elders quorum and Relief Society sisters unitedly do the work of salvation.
-
-Our gratitude is overflowing. We are particularly grateful that our youth continue to remain strong and faithful.
-
-Our youth live in an exciting but also challenging time. The choices available have never been more dramatic. One example: the modern smartphone provides access to incredibly important and uplifting information, including family history and the holy scriptures. On the other hand, it contains foolishness, immorality, and evil not readily available in the past.
-
-To help our youth navigate this maze of choices, the Church has prepared three profound and comprehensive initiatives. First, curriculum has been strengthened and expanded to the home. Second, a children and youth program that includes exciting activities and personal development was presented just last Sunday by President Russell M. Nelson, President M. Russell Ballard, and the General Officers. A third initiative is organizational changes to make youth a more significant focus of our bishops and other leaders. This focus must be spiritually powerful and help our youth become the youth battalion President Nelson has asked them to become.
-
-These efforts, together with those announced during the last few years, are not isolated changes. Each of the adjustments is an integral part of an interlocking pattern to bless the Saints and prepare them to meet God.
-
-One part of the pattern relates to the rising generation. Our youth are being asked to take more individual responsibility at younger ages—without parents and leaders taking over what youth can do for themselves.
-
-Today we announce organizational changes for youth at ward and stake levels. As President Nelson explained, Sister Bonnie H. Cordon will discuss changes for young women this evening. One purpose for the changes I will now discuss is to strengthen Aaronic Priesthood holders, quorums, and quorum presidencies. These changes align our practice with Doctrine and Covenants 107:15, which reads, “The bishopric is the presidency of this [Aaronic] priesthood, and holds the keys or authority of the same.”
-
-One of the scriptural duties of the bishop is to preside over the priests and to sit in council with them, teaching them the duties of their office. In addition, the first counselor in the bishopric will have specific responsibility for teachers and the second counselor for deacons.
-
-Accordingly, to align with this revelation in the Doctrine and Covenants, Young Men presidencies at the ward level will be discontinued. These faithful brethren have done much good, and we express appreciation to them.
-
-It is our hope that bishoprics will give great emphasis and focus to the priesthood responsibilities of young men and help them in their quorum duties. Capable adult Young Men advisers will be called to assist the Aaronic Priesthood quorum presidencies and the bishopric in their duties. We are confident that more young men and young women will rise to the challenge and stay on the covenant path because of this laser-like focus on our youth.
-
-In the Lord’s inspired pattern, the bishop has responsibility for everyone in the ward. He blesses the parents of youth as well as the youth. One bishop found that as he counseled with a young man struggling with pornography, he could help the young man in his repentance only as he helped the parents react with love and understanding. The young man’s healing was a healing for his family and was possible through the bishop working in behalf of the entire family. The young man has now become a worthy Melchizedek Priesthood holder and full-time missionary.
-
-As this account suggests, these adjustments will:
-
-Help bishops and their counselors focus on their core responsibilities to the youth and Primary children.
-
-Place the power and duties of the Aaronic Priesthood at the center of every young man’s personal life and goals.
-
-These adjustments also:
-
-Emphasize the responsibilities of Aaronic Priesthood quorum presidencies and their direct reporting line to the bishopric.
-
-Motivate adult leaders to assist and mentor Aaronic Priesthood quorum presidencies in magnifying the power and authority of their office.
-
-As noted, these adjustments do not lessen the bishopric’s responsibility for young women. As President Nelson just taught, “[The bishop’s] first and foremost responsibility is to care for the young men and young women of his ward.”
-
-How will our beloved and hard-working bishops fulfill this responsibility? As you remember, in 2018 Melchizedek Priesthood quorums were adjusted to work even more closely with Relief Societies so that elders quorums and Relief Societies can, under the direction of the bishop, help shoulder important responsibilities that previously consumed much of his time. These responsibilities include missionary work and temple and family history work in the ward—as well as much of the ministering to ward members.
-
-The bishop cannot delegate some responsibilities, such as strengthening the youth, being a common judge, caring for those in need, and overseeing finances and temporal affairs. These are, however, fewer than we may have understood in the past. As Elder Jeffrey R. Holland explained last year when the adjustments to the Melchizedek Priesthood quorums were announced: “The bishop remains, of course, the presiding high priest of the ward. This new alignment [of elders quorums and Relief Societies] should let him preside over the work of the Melchizedek Priesthood and the Relief Society without requiring him to do the work of either of those bodies.”
-
-For instance, a Relief Society president and an elders quorum president, as assigned, can take a greater role in counseling with adults—as can a Young Women president in counseling with young women. While only the bishop can serve as a common judge, these other leaders are also entitled to revelation from heaven to help with challenges that do not require a common judge or involve abuse of any kind.
-
-That doesn’t mean a young woman cannot or should not talk to the bishop or to her parents. Their focus is the youth! But it does mean that a Young Women leader may best meet the needs of an individual young woman. The bishopric is as concerned for young women as for young men, but we recognize the strength that comes from having strong, engaged, and focused Young Women leaders who love and mentor, not taking over the roles of class presidencies but helping youth succeed in those roles.
-
-Sister Cordon will share additional exciting changes for young women tonight. I, however, announce that ward Young Women presidents will now report to and counsel directly with the bishop of the ward. In the past, this assignment could be delegated to a counselor, but going forward, young women will be a direct responsibility of the one who holds presiding keys for the ward. The Relief Society president will continue to report directly to the bishop.
-
-At the general and stake levels, we will continue to have Young Men presidencies. At the stake level, a high councilor will be the Young Men president and will, with the high councilors assigned to Young Women and Primary, be part of the stake Aaronic Priesthood–Young Women committee. These brethren will work with the stake Young Women presidency on this committee. With a counselor to the stake president as chair, this committee will have increased importance because many of the programs and activities in the new Children and Youth initiative will be at the stake level.
-
-These high councilors, under the direction of the stake presidency, can serve as a resource to the bishop and Aaronic Priesthood quorums in a manner similar to the service provided by high councilors to ward elders quorums.
-
-As a related matter, another high councilor will serve as the stake Sunday School president and, as needed, could serve on the stake Aaronic Priesthood–Young Women committee.
-
-Additional organizational changes will be further explained in information sent to leaders. These changes include:
-
-The bishopric youth committee meeting will be replaced by a ward youth council.
-
-The word “Mutual” will be retired and become “Young Women activities,” “Aaronic Priesthood quorum activities,” or “youth activities,” which will be held weekly where possible.
-
-The ward budget for youth activities will be divided equitably between the young men and young women according to the number of youth in each organization. A sufficient amount will be provided for Primary activities.
-
-At all levels—ward, stake, and general—we will use the term “organization” rather than the term “auxiliary.” Those who lead the General Relief Society, Young Women, Young Men, Primary, and Sunday School organizations will be known as “General Officers.” Those who lead organizations at the ward and stake levels will be known as “ward officers” and “stake officers.”
-
-The adjustments announced today may begin as soon as branches, wards, districts, and stakes are ready but should be in place by January 1, 2020. These adjustments, when combined and integrated with previous adjustments, represent a spiritual and organizational effort consistent with doctrine to bless and strengthen every man, woman, youth, and child, helping each to follow the example of our Savior, Jesus Christ, as we progress on the covenant path.
-
-Dear brothers and sisters, I promise and testify that these comprehensive adjustments, under the direction of an inspired president and prophet, Russell M. Nelson, will empower and strengthen every member of the Church. Our youth will develop greater faith in the Savior, be protected from the temptations of the adversary, and stand prepared to meet life’s challenges. In the sacred name of Jesus Christ, amen.
-
-
----
-
-
-## Watchful unto Prayer Continually
-
-**Speaker:** By Elder David A. Bednar
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/10/22bednar?lang=eng
-
-I earnestly pray for the assistance of the Holy Ghost for you and for me as we rejoice and worship together.
-
-In April of 1976, Elder Boyd K. Packer spoke specifically to the youth of the Church in general conference. In his classic message entitled “Spiritual Crocodiles,” he described how during an assignment in Africa he observed well-camouflaged crocodiles waiting to prey on unsuspecting victims. He then likened the crocodiles to Satan, who preys on unwary youth by camouflaging the deadly nature of sin.
-
-I was 23 years old when Elder Packer gave that talk, and Susan and I were anticipating the birth of our first child in just a few days. We were impressed with the content of his message about avoiding sin and the masterful way he used the ordinary behavior of animals to teach an important spiritual lesson.
-
-Susan and I also have traveled to Africa on many assignments. And we have had opportunities to see the magnificent animals that live on that continent. Remembering the impact of Elder Packer’s talk in our lives, we have tried to observe and learn lessons from the behavior of African wildlife.
-
-I want to describe the characteristics and tactics of two cheetahs Susan and I watched hunting their prey and relate some of the things we observed to the daily living of the gospel of Jesus Christ.
-
-Cheetahs are the fastest land animals on earth and reach running speeds as high as 75 mph (120 km/h). These beautiful animals can accelerate from a standstill position to running as fast as 68 mph (109 km/h) in less than three seconds. Cheetahs are predators that sneak up on their prey and sprint a short distance to chase and attack.
-
-Susan and I spent almost two hours watching two cheetahs stalking a large group of topis, Africa’s most common and widespread antelopes. The tall, dry grass of the African savanna was golden brown and almost totally obscured the predators as they pursued a group of topis. The cheetahs were separated from each other by approximately 100 yards (91 m) but worked in tandem.
-
-While one cheetah sat upright in the grass and did not move, the other cheetah crouched low to the ground and slowly crept closer to the unsuspecting topis. Then the cheetah that had been sitting upright disappeared in the grass at exactly the same moment that the other cheetah sat upright. This alternating pattern of one cheetah crouching low and creeping forward while the other cheetah sat upright in the grass continued for a long time. The stealthy subtlety of the strategy was intended to distract and deceive the topis and thereby divert their attention away from the approaching danger. Patiently and steadily, the two cheetahs worked as a team to secure their next meal.
-
-Positioned between the large group of topis and the approaching cheetahs were several older and stronger topis standing as sentinels on termite mounds. The enhanced view of the grasslands from the small hills enabled these guardian topis to watch for signs of danger.
-
-Then suddenly, as the cheetahs appeared to be within striking distance, the entire group of topis turned and ran away. I do not know if or how the sentinel topis communicated with the larger group, but somehow a warning was given, and all the topis moved to a place of safety.
-
-And what did the cheetahs do next? Without any delay, the two cheetahs resumed their alternating pattern of one cheetah crouching low and creeping forward while the other cheetah sat upright in the grass. The pattern of pursuit continued. They did not stop. They did not rest or take a break. They were relentless in following their strategy of distraction and diversion. Susan and I watched the cheetahs disappear in the distance, always moving closer and closer to the group of topis.
-
-That night Susan and I had a memorable conversation about what we had observed and learned. We also discussed this experience with our children and grandchildren and identified many valuable lessons. I now will describe three of those lessons.
-
-To me, cheetahs are sleek, alluring, and captivating creatures. A cheetah’s yellowish-tan to greyish-white coat with black spots acts as a beautiful disguise that makes these animals almost invisible as they stalk their prey in the African grasslands.
-
-In a similar way, spiritually dangerous ideas and actions frequently can appear to be attractive, desirable, or pleasurable. Thus, in our contemporary world, each of us needs to be aware of beguiling bad that pretends to be good. As Isaiah warned, “Woe unto them that call evil good, and good evil; that put darkness for light, and light for darkness; that put bitter for sweet, and sweet for bitter!”
-
-In a paradoxical period when violating the sanctity of human life is heralded as a right and chaos is described as liberty, how blessed we are to live in this latter-day dispensation when restored gospel light can shine brightly in our lives and help us to discern the adversary’s dark deceptions and distractions.
-
-“For they that are wise and have received the truth, and have taken the Holy Spirit for their guide, and have not been deceived—verily I say unto you, they shall not be hewn down and cast into the fire, but shall abide the day.”
-
-For a topi, a brief moment of carelessness or inattentiveness could invite a swift attack from a cheetah. Likewise, spiritual complacency and casualness make us vulnerable to the advances of the adversary. Spiritual thoughtlessness invites great danger into our lives.
-
-iStock.com/Angelika
-
-Nephi described how in the latter days Satan would attempt to pacify and lull the children of God into a false sense of “carnal security, that they will say: All is well in Zion; yea, Zion prospereth, all is well—and thus the devil cheateth their souls, and leadeth them away carefully down to hell.”
-
-Constant vigilance is required to counteract complacency and casualness. To be vigilant is the state or action of keeping careful watch for possible danger or difficulties. And keeping watch denotes the act of staying awake to guard and protect. Spiritually speaking, we need to stay awake and be alert to the promptings of the Holy Ghost and the signals that come from the Lord’s watchmen on the towers.
-
-“Yea, and I also exhort you … that ye be watchful unto prayer continually, that ye may not be led away by the temptations of the devil, … for behold, he rewardeth you no good thing.”
-
-Focusing our lives in and on the Savior and His gospel enables us to overcome the tendency of the natural man to be spiritually snoozy and lazy. As we are blessed with eyes to see and ears to hear, the Holy Ghost can increase our capacity to look and listen when we may not typically think we need to look or listen or when we may not think anything can be seen or heard.
-
-“Watch, therefore, that ye may be ready.”
-
-A cheetah is a predator that naturally preys on other animals. All day, every day, a cheetah is a predator.
-
-Satan “is the enemy of righteousness and of those who seek to do the will of God.” All day, every day, his only intent and sole purpose are to make the sons and daughters of God miserable like unto himself.
-
-The Father’s plan of happiness is designed to provide direction for His children, to help them experience enduring joy, and to bring them safely home to Him with resurrected, exalted bodies. The devil labors to make the sons and daughters of God confused and unhappy and to hinder their eternal progression. The adversary works relentlessly to attack the elements of the Father’s plan he hates the most.
-
-Satan does not have a body, and his eternal progress has been halted. Just as water flowing in a riverbed is stopped by a dam, so the adversary’s eternal progress is thwarted because he does not have a physical body. Because of his rebellion, Lucifer has denied himself all of the mortal blessings and experiences made possible through a tabernacle of flesh and bones. One of the potent scriptural meanings of the word damned is illustrated in his inability to continue progressing and becoming like our Heavenly Father.
-
-Because a physical body is so central to the Father’s plan of happiness and our spiritual development, Lucifer seeks to frustrate our progression by tempting us to use our bodies improperly. President Russell M. Nelson has taught that spiritual safety ultimately lies in “‘never taking the first enticing step toward going where you should not go and doing what you should not do.’ … As human beings we all have [physical] appetites necessary for our survival. ‘These appetites are absolutely essential for the perpetuation of life. So, what does the adversary do? … He attacks us through our appetites. He tempts us to eat things we should not eat, to drink things we should not drink, and to love as we should not love!’”
-
-One of the ultimate ironies of eternity is that the adversary, who is miserable precisely because he has no physical body, invites and entices us to share in his misery through the improper use of our bodies. The very tool he does not have and cannot use is thus the primary target of his attempts to lure us to physical and spiritual destruction.
-
-Understanding the intent of an enemy is vital to effective preparation for possible attacks. Precisely because Captain Moroni knew the intention of the Lamanites, he was prepared to meet them at the time of their coming and was victorious. And that same principle and promise applies to each of us.
-
-“If ye are prepared, ye shall not fear.
-
-“And that ye might escape the power of the enemy.”
-
-Just as important lessons can be learned by observing the behavior of cheetahs and topis, so each of us should look for the lessons and warnings found in the simple events of everyday life. As we seek for a mind and heart open to receive heavenly direction by the power of the Holy Ghost, then some of the greatest instructions that we can receive and many of the most powerful warnings that can safeguard us will originate in our own ordinary experiences. Powerful parables are contained in both the scriptures and in our daily lives.
-
-I have highlighted only three of the many lessons that can be identified in the adventure Susan and I had in Africa. I invite and encourage you to reflect on this episode with the cheetahs and the topis and identify additional lessons for you and your family. Please remember always that your home is the true center of gospel learning and living.
-
-As you respond in faith to this invitation, inspired thoughts will come to your mind, spiritual feelings will swell in your heart, and you will recognize actions that should be undertaken or continued so that you can “take upon you [the] whole armor [of God], that ye may be able to withstand the evil day, having done all, that ye may be able to stand.”
-
-I promise that the blessings of effective preparation and spiritual protection will flow into your life as you are watchful unto prayer vigilantly and continually.
-
-I testify that pressing forward on the covenant path provides spiritual safety and invites enduring joy into our lives. And I witness that the risen and living Savior will sustain and strengthen us in times both good and bad. Of these truths I testify in the sacred name of the Lord Jesus Christ, amen.
-
-
----
-
-
-## Covenant Women in Partnership with God
-
-**Speaker:** By President Henry B. Eyring
-
-**Calling:** Second Counselor in the First Presidency
-
-**Year:** 2019
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/10/34eyring?lang=eng
-
-I am grateful for the blessing of addressing you, the covenant daughters of God. Tonight, my purpose is to encourage you in the great service to which you are called. Yes, every daughter of God listening to my voice has received a call from the Lord Jesus Christ.
-
-Your call began when you were placed into mortality, in a place and time chosen for you by a God who knows you perfectly and loves you as His daughter. In the spirit world, He knew you and taught you and placed you where you would have the opportunity, rare in the history of the world, to be invited into a baptismal font. There, you would hear these words spoken by a called servant of Jesus Christ: “Having been commissioned of Jesus Christ, I baptize you in the name of the Father, and of the Son, and of the Holy Ghost. Amen.”
-
-When you came out of the water, you had accepted another call to serve. As a new covenant daughter of God, you made a promise and received an assignment in The Church of Jesus Christ of Latter-day Saints, of which you were then confirmed a member. You covenanted with God to take upon yourself the name of Jesus Christ, to keep His commandments, and to serve Him.
-
-For each one who makes these covenants, the service that the Lord calls him or her to do will be suited perfectly to that person. The covenant daughters and sons of God, however, all share one important and joyful call. It is to serve others for Him.
-
-Speaking to sisters, President Russell M. Nelson gave a wonderful summary of the Lord’s call to you to join Him in His work. President Nelson described your call in this way: “The Lord said, ‘My work and my glory [is] to bring to pass the immortality and eternal life of man.’ (Moses 1:39.) So His devoted daughter-disciple may truly say, ‘My work and my glory is to help my loved ones reach that heavenly goal.’
-
-“To help another human being reach one’s celestial potential is part of the divine mission of woman. As mother, teacher, or nurturing Saint, she molds living clay to the shape of her hopes. In partnership with God, her divine mission is to help spirits live and souls be lifted. This is the measure of her creation. It is ennobling, edifying, and exalting.”
-
-You cannot know when, or for what length of time, your personal mission will be focused on service in calls such as mother, leader, or ministering sister. The Lord, out of love, does not leave us the choice of the timing, duration, or sequence of our assignments. Yet you know from scripture and living prophets that all of these assignments will come, either in this life or in the next, to every daughter of God. And all of them are preparation for eternal life in loving families—“the greatest of all the gifts of God.”
-
-You will be wise to bend every effort to prepare now with the end in mind. That task is made simpler because each of these assignments requires much of the same preparation.
-
-Let’s start with the assignment to be a ministering sister. Whether you have that assignment as a 10-year-old daughter in a family where the father has died, or as a Relief Society president whose town was recently affected by fire, or when you are in a hospital recovering from surgery—you have a chance to fulfill your call from the Lord to be His ministering daughter.
-
-Those appear to be very different ministering assignments. Yet they all require the preparation of a powerful, loving heart, a fearless faith that the Lord gives no command save He prepares a way, and a desire to go and do for Him.
-
-Because she was prepared, the 10-year-old daughter put her arms around her widowed mother and prayed to know how to help her family. And she keeps at it.
-
-The Relief Society president had prepared to minister before the unexpected fire in her area. She had come to know and love the people. Her faith in Jesus Christ had grown over the years from having received answers to her prayers for the Lord to help her in small services for Him. Because of her long preparation, she was ready and eager to organize her sisters to minister to people and families in distress.
-
-A sister recovering in a hospital from surgery was prepared to minister to her fellow patients. She had spent a lifetime ministering for the Lord to every stranger as if he or she was a neighbor and a friend. When she felt in her heart the call to minister in the hospital, she served others so bravely and with such love that the other patients began to hope she wouldn’t recover too soon.
-
-In the same way that you prepare to minister, you can and must prepare for your call to be a leader for the Lord when it comes. It will require faith in Jesus Christ, rooted in your deep love of the scriptures, to lead people and to teach His word without fear. Then you will be prepared to have the Holy Ghost as your constant companion. You will be eager to say, “I will,” when your counselor in the Young Women presidency says, with panic in her voice, “Sister Alvarez is sick today. Who will teach her class?”
-
-It takes much the same preparation for the wonderful day when the Lord calls you to an assignment as a mother. But it will also take an even more loving heart than you needed earlier. It will take faith in Jesus Christ beyond what has ever before been in your heart. And it will take a capacity to pray for the influence, direction, and comfort of the Holy Ghost beyond what you may have felt was even possible.
-
-You might reasonably ask how a man of any age can know what mothers need. It’s a valid question. Men can’t know everything, but we can learn some lessons by revelation from God. And we can also learn much by observation, when we take the opportunity to seek the Spirit to help us understand what we observe.
-
-I have been observing Kathleen Johnson Eyring for the 57 years we have been married. She is the mother of four boys and two girls. To date, she has accepted the call to be a mothering influence on more than a hundred direct family members and hundreds more whom she has adopted into her mother heart.
-
-You remember President Nelson’s perfect description of a woman’s divine mission—including her mission of mothering: “As mother, teacher, or nurturing Saint, she molds living clay to the shape of her hopes. In partnership with God, her divine mission is to help spirits live and souls be lifted. This is the measure of her creation.”
-
-As nearly as I can discern, my wife, Kathleen, has followed that charge, given to our Father’s daughters. The key appears to me to be the words “she molds living clay to the shape of her hopes … in partnership with God.” She did not force. She molded. And she had a template for her hopes, and to which she tried to mold those she loved and mothered. Her template was the gospel of Jesus Christ—as I could see through prayerful observation over the years.
-
-Becoming a covenant woman in partnership with God is how great and good daughters of God have always mothered, led, and ministered, serving in whatever way and place He has prepared for them. I promise that you will find joy in your journey to your heavenly home as you return to Him as a covenant-keeping daughter of God.
-
-I testify that God the Father lives and He loves you. He will answer your prayers. His Beloved Son leads, in every detail, The Church of Jesus Christ of Latter-day Saints. President Russell M. Nelson is His living prophet. And Joseph Smith saw and spoke with God the Father and Jesus Christ in a grove of trees in Palmyra, New York. I know that is true. I also testify that Jesus Christ is your Savior; He loves you. And through His Atonement, you can be purified and lifted to the high and holy callings which will come to you. I so testify in the sacred name of Jesus Christ, amen.
-
-
----
-
-
-## Holiness and the Plan of Happiness
-
-**Speaker:** By President Henry B. Eyring
-
-**Calling:** Second Counselor in the First Presidency
-
-**Year:** 2019
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/10/51eyring?lang=eng
-
-My dear brothers and sisters, I have prayed for the power to help you in your personal search for happiness. Some might feel happy enough already, yet surely no one would reject the offer of more happiness. Anyone would be eager to accept a guaranteed offer of lasting happiness.
-
-That is what Heavenly Father; His Beloved Son, Jesus Christ; and the Holy Ghost have offered every spirit child of Heavenly Father who now lives, will live, or ever has lived in this world. That offer is sometimes called the plan of happiness. It was so called by the prophet Alma as he taught his son, who was mired in the misery of sin. Alma knew that wickedness could never be happiness for his son—or for any child of Heavenly Father.
-
-He taught his son that increasing in holiness was the only path to happiness. He made it plain that greater holiness is made possible through the Atonement of Jesus Christ cleansing and perfecting us. Only by faith in Jesus Christ, continuing repentance, and keeping covenants are we able to claim the lasting happiness we all yearn to experience and retain.
-
-My prayer for today is that I may help you understand that greater happiness comes from greater personal holiness so that you will act upon that belief. I will then share what I know for myself about what we can do to qualify for that gift of becoming ever more holy.
-
-The scriptures teach us that among other things, we can be sanctified or become more holy when we exercise faith in Christ, demonstrate our obedience, repent, sacrifice for Him, receive sacred ordinances, and keep our covenants with Him. Qualifying for the gift of holiness requires humility, meekness, and patience.
-
-One experience of wanting more holiness came for me in the Salt Lake Temple. I entered the temple for the first time having been told little of what to expect. I had seen the words on the building: “Holiness to the Lord” and “The House of the Lord.” I felt a great sense of anticipation. Yet I wondered if I was prepared to enter.
-
-My mother and father walked ahead of me as we entered the temple. We were asked to show our recommends, certifying our worthiness.
-
-My parents knew the man at the recommend desk. So they lingered a moment to speak with him. I went ahead alone into a large space where everything was sparkling white. I looked up at a ceiling so high above me it seemed an open sky. In that moment, a clear impression came to me that I had been there before.
-
-But then, I heard a very soft voice—it was not my own. The softly spoken words were these: “You have never been here before. You are remembering a moment before you were born. You were in a sacred place like this. You felt the Savior was about to come into the place where you stood. And you felt happiness because you were eager to see Him.”
-
-That experience in the Salt Lake Temple lasted only a moment. Yet the memory of it still brings peace, joy, and quiet happiness.
-
-I learned many lessons that day. One was that the Holy Ghost speaks in a still, small voice. I can hear Him when there is spiritual peace in my heart. He brings a feeling of happiness and assurance that I am becoming more holy. And that always brings the happiness I felt in those first moments in a temple of God.
-
-You have observed in your own life and in the lives of others the miracle of happiness coming from growing holiness, becoming more like the Savior. In recent weeks, I have been at the bedside of people who could face death with full faith in the Savior and with happy countenances.
-
-One was a man surrounded by his family. He and his wife were chatting quietly as my son and I entered. I had known them for many years. I had seen the Atonement of Jesus Christ work in their lives and in the lives of their family members.
-
-They had together chosen to end medical efforts to prolong his life. There was a quiet feeling as he spoke to us. He smiled as he expressed gratitude for the gospel and its purifying effects on him and the family he loved. He spoke of his happy years of service in the temple. At this man’s request, my son anointed his head with consecrated oil. I sealed the anointing. As I did, I had a clear impression to tell him that he would soon see his Savior, face-to-face.
-
-I promised him that he would feel happiness, love, and the Savior’s approval. He smiled warmly as we left. His last words to me were “Tell Kathy I love her.” My wife, Kathleen, over many years had encouraged generations of his family to accept the Savior’s invitation to come unto Him, make and keep sacred covenants, and so qualify for the happiness that comes as a result of that greater holiness.
-
-He died hours later. Within weeks of his passing, his widow brought a gift to my wife and me. She smiled as we talked. She said pleasantly, “I expected that I would feel sad and lonely. I feel so happy. Do you think that’s all right?”
-
-Knowing how much she loved her husband and how both of them had come to know, love, and serve the Lord, I told her that her feelings of happiness were a promised gift because she had, by her faithful service, been made more holy. Her holiness had qualified her for that happiness.
-
-Some listening today may be wondering: “Why do I not feel the peace and happiness promised to those who have been faithful? I have been faithful through terrible adversity, but I don’t feel happiness.”
-
-Even the Prophet Joseph Smith faced this test. He prayed for relief when he was confined in a jail in Liberty, Missouri. He had been faithful to the Lord. He had grown in holiness. Yet he felt happiness had been denied.
-
-The Lord taught him the lesson of patience we all will need at some time, and perhaps for long periods, in our mortal testing. Here is the Lord’s message to His faithful and suffering prophet:
-
-“And if thou shouldst be cast into the pit, or into the hands of murderers, and the sentence of death passed upon thee; if thou be cast into the deep; if the billowing surge conspire against thee; if fierce winds become thine enemy; if the heavens gather blackness, and all the elements combine to hedge up the way; and above all, if the very jaws of hell shall gape open the mouth wide after thee, know thou, my son, that all these things shall give thee experience, and shall be for thy good.
-
-“The Son of Man hath descended below them all. Art thou greater than he?
-
-“Therefore, hold on thy way, and the priesthood shall remain with thee; for their bounds are set, they cannot pass. Thy days are known, and thy years shall not be numbered less; therefore, fear not what man can do, for God shall be with you forever and ever.”
-
-That was the same instructive lesson the Lord gave Job, who paid a heavy price to allow the Atonement to make him more holy. We know that Job was holy, from the introduction we have of him: “There was a man in the land of Uz, whose name was Job; and that man was perfect and upright, and one that feared God, and eschewed evil.”
-
-Then Job lost his wealth, his family, and even his health. You might remember that Job doubted that his greater holiness, gained through greater adversity, had qualified him for greater happiness. It seemed to Job that holiness had brought misery.
-
-Yet the Lord gave Job the same correcting lesson He gave Joseph Smith. He let Job see his heartbreaking situation with spiritual eyes. He said:
-
-“Gird up now thy loins like a man; for I will demand of thee, and answer thou me.
-
-“Where wast thou when I laid the foundations of the earth? declare, if thou hast understanding.
-
-“Who hath laid the measures thereof, if thou knowest? or who hath stretched the line upon it?
-
-“Whereupon are the foundations thereof fastened? or who laid the corner stone thereof;
-
-“When the morning stars sang together, and all the sons of God shouted for joy?”
-
-Then, after Job repented of calling God unfair, Job was permitted to see his trials in a higher and holier way. He had repented.
-
-“Then Job answered the Lord, and said,
-
-“I know that thou canst do every thing, and that no thought can be withholden from thee.
-
-“Who is he that hideth counsel without knowledge? therefore have I uttered that I understood not; things too wonderful for me, which I knew not.
-
-“Hear, I beseech thee, and I will speak: I will demand of thee, and declare thou unto me.
-
-“I have heard of thee by the hearing of the ear: but now mine eye seeth thee.
-
-“Wherefore I abhor myself, and repent in dust and ashes.”
-
-After Job repented and so became more holy, the Lord blessed him beyond all he had lost. But perhaps the greatest blessing for Job was to have increased in holiness through adversity and repentance. He was qualified to have greater happiness in the days he had yet to live.
-
-Greater holiness will not come simply by asking for it. It will come by doing what is needed for God to change us.
-
-President Russell M. Nelson has given what seems to me the best counsel of how to move along the covenant path to greater holiness. He pointed the way when he urged:
-
-“Experience the strengthening power of daily repentance—of doing and being a little better each day.
-
-“When we choose to repent, we choose to change! We allow the Savior to transform us into the best version of ourselves. We choose to grow spiritually and receive joy—the joy of redemption in Him. When we choose to repent, we choose to become more like Jesus Christ!”
-
-President Nelson went on to give us this encouragement in our efforts to become holier: “The Lord does not expect perfection from us at this point. … But He does expect us to become increasingly pure. Daily repentance is the pathway to purity.”
-
-President Dallin H. Oaks, in an earlier conference address, also helped me see more clearly how we grow in holiness and how we can know we are moving toward it. He said: “How do we achieve spirituality? How do we attain that degree of holiness where we can have the constant companionship of the Holy Ghost? How do we come to view and evaluate things of this world with the perspective of eternity?”
-
-President Oaks’s answer begins with greater faith in Jesus Christ as our loving Savior. That leads us to seek forgiveness every day and to remember Him every day by keeping His commandments. That greater faith in Jesus Christ comes as we feast daily on His word.
-
-The hymn “More Holiness Give Me” suggests a way to pray for help in becoming more holy. The author wisely suggests that the holiness we seek is a gift from a loving God, granted over time, after all we can do. You remember the last verse:
-
-More purity give me,
-
-More strength to o’ercome,
-
-More freedom from earth-stains,
-
-More longing for home.
-
-More fit for the kingdom,
-
-More used would I be,
-
-More blessed and holy—
-
-More, Savior, like thee.
-
-Whatever our personal circumstance, wherever we may be on the covenant path home, may our prayers for greater holiness be answered. I know that as our petition is granted, our happiness will increase. It may come slowly, but it will come. I have that assurance from a loving Heavenly Father and His Beloved Son, Jesus Christ.
-
-I testify that Joseph Smith was a prophet of God, that President Russell M. Nelson is our living prophet today. God the Father lives and loves us. He wants us to come home to Him in families. Our loving Savior invites us to follow Him on our journey there. They have prepared the way. In the sacred name of Jesus Christ, amen.
-
-
----
-
-
-## The Message, the Meaning, and the Multitude
-
-**Speaker:** By Elder Jeffrey R. Holland
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/10/11holland?lang=eng
-
-Brothers and sisters, this is Sammy Ho Ching, seven months old, watching general conference on television in his home last April.
-
-As time approached to sustain President Russell M. Nelson and the other General Authorities, Sammy’s arms were busy holding his bottle. So he did the next best thing.
-
-Sammy gives entirely new meaning to the concept of voting with your feet.
-
-Welcome to this semiannual conference of The Church of Jesus Christ of Latter-day Saints. To set the stage for a discussion of the meaning of these twice-a-year gatherings, I invoke this scene from Luke’s New Testament account:
-
-“It came to pass, that as [Jesus] was come nigh unto Jericho, a certain blind man sat by the way side begging:
-
-“… Hearing [a] multitude pass by, he asked what it meant.
-
-“… They told him, that Jesus of Nazareth passeth by.
-
-“And he cried, saying, Jesus, thou Son of David, have mercy on me.”
-
-Startled at his boldness, the crowd tried to silence the man, but “he cried so much the more,” it says. As a result of his persistence, he was brought to Jesus, who heard his faith-filled plea for the restoration of his sight and healed him.
-
-I am moved by this vivid little vignette every time I read it. We can sense the man’s distress. We can almost hear him shouting for the Savior’s attention. We smile at his refusal to be silenced—indeed, his determination to turn the volume up when everyone else was telling him to turn it down. It is, in and of itself, a sweet story of very determined faith. But as with all scripture, the more we read it, the more we find in it.
-
-One thought that struck me only recently is the good sense this man had in having spiritually sensitive people around him. The entire significance of this story hinges on a handful of anonymous women and men who, when asked by their colleague, “What does this commotion mean?” had the vision, if you will, to identify Christ as the reason for the clamor; He was Meaning Personified. There is a lesson in this little exchange for all of us. In matters of faith and conviction, it helps to direct your inquiry toward those who actually have some! “Can the blind lead the blind?” Jesus once asked. “[If so,] shall they not both fall into the ditch?”
-
-Such a quest for faith and conviction is our purpose in these conferences, and by joining with us today, you will realize that this search is a broadly shared endeavor. Look around you. Here on these grounds you see families of all sizes coming from every direction. Old friends embrace in joyful reunion, a marvelous choir is warming up, and protestors shout from their favorite soapbox. Missionaries of an earlier day look for former companions, while recently returned missionaries look for entirely new companions (if you know what I mean!). And photos? Heaven help us! With cell phones in every hand, we have morphed from “every member a missionary” to “every member a photographer.” In the midst of all of this delightful commotion, one could justifiably ask, “What does it all mean?”
-
-As in our New Testament story, those blessed with sight will recognize that, in spite of everything else this conference tradition may offer us, it will mean little or nothing unless we find Jesus at the center of it all. To grasp the vision we are seeking, the healing that He promises, the significance we somehow know is here, we must cut through the commotion—joyful as it is—and fix our attention on Him. The prayer of every speaker, the hope of all who sing, the reverence of every guest—all are dedicated to inviting the Spirit of Him whose Church this is—the living Christ, the Lamb of God, the Prince of Peace.
-
-But we don’t have to be in a conference center to find Him. When a child reads the Book of Mormon for the first time and is enamored with Abinadi’s courage or the march of 2,000 stripling warriors, we can gently add that Jesus is the omnipresent central figure in this marvelous chronicle, standing like a colossus over virtually every page of it and providing the link to all of the other faith-promoting figures in it.
-
-Likewise, when a friend is learning about our faith, she or he can be a bit overwhelmed by some of the unique elements and unfamiliar vocabulary of our religious practice—dietary restrictions, self-reliance supplies, pioneer treks, digitized family trees, with an untold number of stake centers where some have undoubtedly expected to be served a fine charbroiled sirloin, medium-rare. So, as our new friends experience a multitude of new sights and sounds, we must point past the hustle and bustle and concentrate them on the meaning of it all, on the beating heart of the eternal gospel—the love of Heavenly Parents, the atoning gift of a divine Son, the comforting guidance of the Holy Ghost, the latter-day restoration of all these truths and so much more.
-
-When one goes to the holy temple for the first time, he or she may be somewhat awestruck by that experience. Our job is to ensure that the sacred symbols and revealed rituals, the ceremonial clothing and visual presentations, never distract from but rather point toward the Savior, whom we are there to worship. The temple is His house, and He should be uppermost in our minds and hearts—the majestic doctrine of Christ pervading our very being just as it pervades the temple ordinances—from the time we read the inscription over the front door to the very last moment we spend in the building. Amid all the wonder we encounter, we are to see, above all else, the meaning of Jesus in the temple.
-
-Consider the swirl of bold initiatives and new announcements in the Church in these recent months. As we minister to one another, or refine our Sabbath experience, or embrace a new program for children and youth, we will miss the real reason for these revelatory adjustments if we see them as disparate, unrelated elements rather than as an interrelated effort to help us build more firmly on the Rock of our Salvation. Surely, surely, this is what President Russell M. Nelson intends in having us use the revealed name of the Church. If Jesus—His name, His doctrine, His example, His divinity—can be at the center of our worship, we will be reinforcing the great truth Alma once taught: “There be many things to come; [but] behold, there is one thing which is of more importance than they all— … the Redeemer [who] liveth and cometh among his people.”
-
-One concluding thought: Joseph Smith’s 19th-century frontier environment was aflame with competing crowds of Christian witnesses. But in the tumult they created, these exuberant revivalists were, ironically, obscuring the very Savior young Joseph so earnestly sought. Battling what he called “darkness and confusion,” he retreated to the solitude of a grove of trees where he saw and heard a more glorious witness of the Savior’s centrality to the gospel than anything we have mentioned here this morning. With a gift of sight unimagined and unanticipated, Joseph beheld in vision his Heavenly Father, the great God of the universe, and Jesus Christ, His perfect Only Begotten Son. Then the Father set the example we have been applauding this morning: He pointed to Jesus, saying: “This is My Beloved Son. Hear Him!” No greater expression of Jesus’s divine identity, His primacy in the plan of salvation, and His standing in the eyes of God could ever exceed that short seven-word declaration.
-
-Commotion and confusion? Crowds and contention? There is plenty of all that in our world. Indeed, skeptics and the faithful still contend over this vision and virtually all else I have referred to today. In case you may be striving to see more clearly and to find meaning in the midst of a multitude of opinions, I point you toward that same Jesus and bear apostolic witness of Joseph Smith’s experience, coming as it did some 1,800 years after our blind friend received his sight on the ancient Jericho Road. I testify with these two and a host of others down through time that surely the most thrilling sight and sound in life is that of Jesus not only passing by but His coming to us, stopping beside us, and making His abode with us.
-
-Sisters and brothers, through the incessant din and drumbeat of our day, may we strive to see Christ at the center of our lives, of our faith, and of our service. That is where true meaning lies. And if some days our vision is limited or our confidence has waned or our belief is being tested and refined—as surely it will be—may we then cry out the louder, “Jesus, thou son of David, have mercy on me.” I promise with apostolic fervor and prophetic conviction that He will hear you and will say, soon or late, “Receive thy sight: thy faith hath saved thee.” Welcome to general conference. In the name of Jesus Christ, amen.
-
-
----
-
-
-## Sustaining of General Authorities, Area Seventies, and General Officers of the Church
-
-**Speaker:** Presented by President Henry B. Eyring
-
-**Calling:** Second Counselor in the First Presidency
-
-**Year:** 2019
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/10/21eyring?lang=eng
-
-Brothers and sisters, it is proposed that we sustain Russell Marion Nelson as prophet, seer, and revelator and President of The Church of Jesus Christ of Latter-day Saints; Dallin Harris Oaks as First Counselor in the First Presidency; and Henry Bennion Eyring as Second Counselor in the First Presidency.
-
-Those in favor may manifest it.
-
-Those opposed, if any, may manifest it.
-
-It is proposed that we sustain Dallin H. Oaks as President of the Quorum of the Twelve Apostles and M. Russell Ballard as Acting President of the Quorum of the Twelve Apostles.
-
-Those in favor, please signify.
-
-Any opposed may manifest it.
-
-It is proposed that we sustain the following as members of the Quorum of the Twelve Apostles: M. Russell Ballard, Jeffrey R. Holland, Dieter F. Uchtdorf, David A. Bednar, Quentin L. Cook, D. Todd Christofferson, Neil L. Andersen, Ronald A. Rasband, Gary E. Stevenson, Dale G. Renlund, Gerrit W. Gong, and Ulisses Soares.
-
-Those in favor, please manifest it.
-
-Any opposed may so indicate.
-
-It is proposed that we sustain the counselors in the First Presidency and the Quorum of the Twelve Apostles as prophets, seers, and revelators.
-
-All in favor, please manifest it.
-
-Contrary, if there be any, by the same sign.
-
-It is proposed that we release with appreciation for their devoted service Elders Wilford W. Andersen, Kim B. Clark, Lawrence E. Corbridge, Claudio R. M. Costa, Bradley D. Foster, O. Vincent Haleck, Donald L. Hallstrom, Steven E. Snow, and Larry Y. Wilson as General Authority Seventies and grant them emeritus status.
-
-Those who wish to join with us in expressing gratitude to these Brethren and their families for their remarkable service, please so manifest.
-
-It is proposed that we release the following as Area Seventies: Julio C. Acosta, Blake R. Alder, Alain L. Allard, Omar A. Alvarez, Taiichi Aoba, Carlos F. Arredondo, Aley K. Auna Jr., Grant C. Bennett, Michael H. Bourne, Rómulo V. Cabrera, Wilson B. Calderón, Hernando Camargo, José C. F. Campos, Nicolás Castañeda, Walter Chatora, Zeno Chow, Robert J. Dudfield, J. Kevin Ence, Meliula M. Fata, K. Mark Frost, Claude R. Gamiette, Maurício G. Gonzaga, Leonard D. Greer, Jose L. Isaguirre, Tae Gul Jung, Sergio L. Krasnoselsky, Milan F. Kunz, Bryan R. Larsen, G. Kenneth Lee, Geraldo Lima, W. Jean-Pierre Lono, Khumbulani Mdletshe, Dale H. Munk, Norman R. Nemrow, Yutaka Onda, Wolfgang Pilz, Raimundo Pacheco De Pinho, Gennady N. Podvodov, Abraham E. Quero, Marco A. Rais, Steven K. Randall, Francisco J. Ruiz de Mendoza, Edwin A. Sexton, Raúl H. Spitale, C. Walter Treviño, ‘Aisake K. Tukuafu, Juan A. Urra, Raul S. Villanueva, and Leonard Woo.
-
-Those who wish to join us in expressing appreciation for their excellent service, please manifest it.
-
-It is proposed that we sustain the following as new Area Seventies: Michel J. Carter, Alfred Kyungu, R. Pepper Murray, Ryan K. Olsen, and Iotua Tune.
-
-Those in favor may manifest it.
-
-Those opposed, if any, may manifest it.
-
-It is proposed that we sustain the other General Authorities, Area Seventies, and General Officers of the Church as presently constituted.
-
-All in favor, please manifest it.
-
-Contrary, if there be any, by the same sign.
-
-Those who opposed any of the proposals should contact their stake president.
-
-Brothers and sisters, we are ever grateful for your continued faith and prayers in behalf of the leaders of the Church.
-
-
----
-
-
-## The Joy of the Saints
-
-**Speaker:** By Elder D. Todd Christofferson
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/10/14christofferson?lang=eng
-
-The Book of Mormon prophet Enos, Lehi’s grandson, wrote of a singular experience that happened earlier in his life. While hunting alone in the forest, Enos began pondering on the teachings of his father, Jacob. He related, “The words which I had often heard my father speak concerning eternal life, and the joy of the saints, sunk deep into my heart.” In the spiritual hunger of his soul, Enos knelt in prayer, a remarkable prayer that lasted through the day and into the night, a prayer that brought him crucial revelations, assurances, and promises.
-
-There is much to be learned from Enos’s experience, but today what stands out in my mind is Enos’s memory of his father speaking often of “the joy of the saints.”
-
-In this conference three years ago, President Russell M. Nelson spoke of joy. Among other things, he said:
-
-“The joy we feel has little to do with the circumstances of our lives and everything to do with the focus of our lives.
-
-“When the focus of our lives is on God’s plan of salvation … and Jesus Christ and His gospel, we can feel joy regardless of what is happening—or not happening—in our lives. Joy comes from and because of Him. … For Latter-day Saints, Jesus Christ is joy!”
-
-Saints are those who have entered into the gospel covenant through baptism and are striving to follow Christ as His disciples. Thus, “the joy of the saints” denotes the joy of becoming Christlike.
-
-I would like to speak of the joy that comes from keeping His commandments, the joy that arises from overcoming sorrow and weakness through Him, and the joy inherent in serving as He served.
-
-We live in a hedonistic age when many question the importance of the Lord’s commandments or simply ignore them. Not infrequently, people who flout divine directives such as the law of chastity, the standard of honesty, and the holiness of the Sabbath seem to prosper and enjoy the good things of life, at times even more so than those who are striving to be obedient. Some begin to wonder if the effort and sacrifices are worth it. The ancient people of Israel once complained:
-
-“It is vain to serve God: and what profit is it that we have kept his ordinance, and that we have walked mournfully before the Lord of hosts?
-
-“And now we call the proud happy; yea, they that work wickedness are set up; yea, they that tempt God are even delivered.”
-
-Just wait, said the Lord, until “that day when I make up my jewels. … Then shall ye … discern between the righteous and the wicked, between him that serveth God and him that serveth him not.” The wicked may “have joy in their works for a season,” but it is always temporary. The joy of the Saints is enduring.
-
-God sees things in their true perspective, and He shares that perspective with us through His commandments, effectively guiding us around the pitfalls and potholes of mortality toward eternal joy. The Prophet Joseph Smith explained: “When His commandments teach us, it is in view of eternity; for we are looked upon by God as though we were in eternity; God dwells in eternity, and does not view things as we do.”
-
-I haven’t met anyone who found the gospel later in life who didn’t wish it could have been earlier. “Oh, the poor choices and mistakes I could have avoided,” they will say. The Lord’s commandments are our guide to better choices and happier outcomes. How we ought to rejoice and thank Him for showing us this more excellent way.
-
-As a teenager, Sister Kalombo Rosette Kamwanya from the D.R. Congo, now serving in the Côte d’Ivoire Abidjan West Mission, fasted and prayed for three days to find the direction God wanted her to take. In a remarkable night vision, she was shown two buildings, a chapel and what she now realizes was a temple. She began to search and soon found the chapel she had seen in her dream. The sign said, “The Church of Jesus Christ of Latter-day Saints.” Sister Kamwanya was baptized and then her mother and her six brothers. Sister Kamwanya said, “When I received the gospel, I felt like a captured bird that had been liberated. My heart was filled with joy. … I had the assurance that God loves me.”
-
-Keeping the Lord’s commandments enables us more fully and more easily to feel His love. The strait and narrow path of the commandments leads directly to the tree of life, and the tree and its fruit, the sweetest and “most desirable above all things,” are a representation of the love of God and fill the soul “with exceedingly great joy.” Said the Savior:
-
-“If ye keep my commandments, ye shall abide in my love; even as I have kept my Father’s commandments, and abide in his love.
-
-“These things have I spoken unto you, that my joy might remain in you, and that your joy might be full.”
-
-Even when we are found faithfully keeping the commandments, there are trials and tragedies that could interrupt our joy. But as we strive to overcome these challenges with the Savior’s help, it preserves both the joy we feel now and the joy we anticipate. Christ reassured His disciples, “In the world ye shall have tribulation: but be of good cheer; I have overcome the world.” It is in turning to Him, obeying Him, binding ourselves to Him that trial and sorrow are turned to joy. I mention one example.
-
-In 1989, Jack Rushton was serving as president of the Irvine California Stake in the United States. During a family vacation on the California coast, Jack was bodysurfing when a wave swept him into a submerged rock, breaking his neck and severely injuring his spinal cord. Jack said later, “The instant I hit, I knew that I was paralyzed.” He could no longer talk or even breathe on his own.
-
-Family, friends, and stake members rallied around Brother Rushton and his wife, Jo Anne, and, among other things, remodeled a section of their home to accommodate Jack’s wheelchair. Jo Anne became Jack’s principal caregiver for the next 23 years. Referring to Book of Mormon accounts of how the Lord visited His people in their afflictions and made their burdens light, Jo Anne said, “I am often amazed at the lightness of heart I feel in caring for my husband.”
-
-An alteration to his respiration system restored Jack’s ability to speak, and within the year, Jack was called as Gospel Doctrine teacher and stake patriarch. When he would give a patriarchal blessing, another priesthood holder placed Brother Rushton’s hand on the head of the person receiving the blessing and supported his hand and arm during the blessing. Jack passed away on Christmas Day 2012, after 22 years of devoted service.
-
-Once in an interview, Jack observed: “Problems will come into all of our lives; it’s part of just being here upon this earth. And some people think that religion or having faith in God will protect you from bad things. I don’t think that’s the point. I think the point is that if our faith is strong, that when bad things happen, which they will, we’ll be able to deal with them. … My faith never wavered, but that didn’t mean that I didn’t have depressions. I think for the first time in my life, I was pushed to the limit, and literally there was nowhere to turn, and so I turned to the Lord, and to this day, I feel a spontaneity of joy.”
-
-This is a day of sometimes merciless attacks in social media and in person against those who seek to uphold the Lord’s standard in dress, entertainment, and sexual purity. It is often the youth and young adults among the Saints, as well as women and mothers, who bear this cross of mocking and persecution. It is not easy to rise above such abuse, but remember the words of Peter: “If ye be reproached for the name of Christ, happy are ye; for the spirit of glory and of God resteth upon you: on their part he is evil spoken of, but on your part he is glorified.”
-
-In the Garden of Eden, Adam and Eve were “in a state of innocence, having no joy, for they knew no misery.” Now, as accountable beings, we find joy in overcoming misery in whatever form, whether it be sin, trial, weakness, or any other obstacle to happiness. This is the joy of sensing progress in the path of discipleship; the joy of “having received a remission of … sins, and having peace of conscience”; the joy of feeling one’s soul expand and grow through the grace of Christ.
-
-The Savior finds joy in bringing to pass our immortality and eternal life. In speaking of the Savior’s Atonement, President Russell M. Nelson said:
-
-“As in all things, Jesus Christ is our ultimate exemplar, ‘who for the joy that was set before him endured the cross’ [Hebrews 12:2]. Think of that! In order for Him to endure the most excruciating experience ever endured on earth, our Savior focused on joy!
-
-“And what was the joy that was set before Him? Surely it included the joy of cleansing, healing, and strengthening us; the joy of paying for the sins of all who would repent; the joy of making it possible for you and me to return home—clean and worthy—to live with our Heavenly Parents and families.”
-
-Similarly, the joy “set before us” is the joy of assisting the Savior in His work of redemption. As the seed and children of Abraham, we participate in blessing all the families of the earth “with the blessings of the Gospel, which are the blessings of salvation, even of life eternal.”
-
-The words of Alma come to mind:
-
-“This is my glory, that perhaps I may be an instrument in the hands of God to bring some soul to repentance; and this is my joy.
-
-“And behold, when I see many of my brethren truly penitent, and coming to the Lord their God, then is my soul filled with joy. …
-
-“But I do not joy in my own success alone, but my joy is more full because of the success of my brethren, who have been up to the land of Nephi. …
-
-“Now, when I think of the success of these my brethren my soul is carried away, even to the separation of it from the body, as it were, so great is my joy.”
-
-The fruits of our service to one another in the Church are part of the joy “set before us.” Even in times of discouragement or stress, we can minister patiently if we are focused on the joy of pleasing God and bringing light, relief, and happiness to His children, our brothers and sisters.
-
-When in Haiti last month for the dedication of the Port-au-Prince Temple, Elder David and Sister Susan Bednar met with a young sister whose husband had been killed a few days earlier in a tragic accident. They wept together with her. Yet on Sunday this dear woman was in her place as an usher at the dedication services, with a soft, welcoming smile for all who entered the temple.
-
-I believe that the ultimate “joy of the saints” comes in knowing that the Savior pleads their cause, “and no one can conceive of the joy which [will fill] our souls [as] we [hear Jesus] pray for us unto the Father.” With President Russell M. Nelson, I testify that joy is a gift for faithful Saints “who have endured the crosses of the world” and who are “intentionally trying to live a righteous life, as taught by Jesus Christ.” May your joy be full, I pray in the name of Jesus Christ, amen.
-
-
----
-
-
-## Deceive Me Not
-
-**Speaker:** By Elder Gary E. Stevenson
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/10/45stevenson?lang=eng
-
-Today, I offer words of counsel for everyone, but especially for you of the rising generation—Primary children, young men, and young women. You are deeply loved by the Lord’s prophet for our day, President Russell M. Nelson—so much so that he spoke to many of you last year in a special worldwide youth devotional broadcast titled “Hope of Israel.” We often hear President Nelson calling you exactly that—the “hope of Israel,” the rising generation and the future of the restored Church of Jesus Christ.
-
-My young friends, I would like to begin by sharing two family stories.
-
-Years ago, I arrived home from work and was startled to see white paint splattered everywhere—on the ground, the garage door, and our red-brick house. I inspected the scene more closely and discovered the paint was still wet. A trail of paint led toward the backyard, and so I followed it. There, I found my five-year-old son with a paintbrush in his hand, chasing our dog. Our beautiful black Labrador was splattered almost half white!
-
-“What are you doing?” I asked in an animated voice.
-
-My son stopped, looked at me, looked at the dog, looked at the paintbrush dripping with paint, and said, “I just want him to look like the black-spotted dogs in the movie—you know, the one with 101 Dalmatians.”
-
-I loved our dog. I thought he was perfect, but that day my son had a different idea.
-
-My second story centers around Great-Uncle Grover, who lived in a house out in the country, far from the city. Uncle Grover was getting very old. We thought our sons should meet him before he died. So, one afternoon, we took a long drive to his humble house. We sat together to visit and introduce him to our sons. Not long into the conversation, our two young boys, maybe five and six years old, wanted to go outside and play.
-
-Uncle Grover, hearing their request, bent over with his face in theirs. His face was so weathered and unfamiliar that the boys were a little scared of him. He said to them, in his gravelly voice, “Be careful—there are a lot of skunks out there.” Hearing this, Lesa and I were more than startled; we were worried that they might get sprayed by a skunk! The boys soon went outside to play as we continued to visit.
-
-Later, when we got in the car to go home, I inquired of the boys, “Did you see a skunk?” One of them replied, “No, we didn’t see any skunks, but we did see a black kitty cat with a white stripe on its back!”
-
-These stories about innocent children discovering something about life and reality may make each of us smile, but they also illustrate a more profound concept.
-
-In the first story, our young son had a beautiful dog as a pet; notwithstanding, he grabbed a gallon of paint and, with paintbrush in hand, determined to create his own imagined reality.
-
-In the second account, the boys were blissfully unaware of the unsavory threat they faced from a skunk. Unable to properly identify what they had actually encountered, they ran the risk of suffering some unfortunate consequences. These are stories of mistaken identity—presuming the real thing to be something else. In each case, the consequences were minor.
-
-However, many today grapple with these same issues on a much larger scale. They are either unable to see things as they truly are or are unsatisfied with truth. Moreover, there are forces at play today designed to deliberately lead us away from absolute truth. These deceptions and lies go far beyond innocent mistaken identity and often have dire, not minor, consequences.
-
-Satan, the father of lies and the great deceiver, would have us question things as they really are and either ignore eternal truths or replace them with something that appears more pleasing. “He maketh war with the saints of God” and has spent millennia calculating and practicing the ability to persuade God’s children to believe that good is evil and evil is good.
-
-He has made a reputation for himself convincing mortals that skunks are just kittens or that, with an application of paint, you can turn a Labrador into a Dalmatian!
-
-Let’s now turn to an example of this very principle found in the scriptures, when the Lord’s prophet Moses came face-to-face with this same issue. “Moses was caught up into an exceedingly high mountain[;] … he saw God face to face, and he talked with him.” God taught Moses about his eternal identity. Though Moses was mortal and imperfect, God taught that Moses was “in the similitude of mine Only Begotten; and mine Only Begotten … shall be the Savior.”
-
-To summarize, in this marvelous vision, Moses beheld God, and he also learned something important about himself: he was indeed a son of God.
-
-Listen carefully to what happened as this wondrous vision closed. “And it came to pass that … Satan came tempting him,” saying, “Moses, son of man, worship me!” Moses courageously replied: “Who art thou? For behold, I am a son of God, in the similitude of his Only Begotten; and where is thy glory, that I should worship thee?”
-
-In other words, Moses said: “You cannot deceive me, for I know who I am. I was created in the image of God. You don’t have His light and glory. So why should I worship you or fall prey to your deception?”
-
-Now pay attention to how Moses further responds. He declares, “Get thee hence, Satan; deceive me not.”
-
-There is much we can learn from Moses’s mighty response to temptation from the adversary. I invite you to respond the same way when you feel influenced by temptation. Command the enemy of your soul by saying: “Go away! You have no glory. Do not tempt or lie to me! For I know I am a child of God. And I will always call upon my God for His help.”
-
-The adversary, however, does not easily abandon his destructive motives to deceive and demean us. He certainly did not do so with Moses, instead desiring to cause Moses to forget who he was eternally.
-
-As if he were throwing a childish tantrum, “Satan cried with a loud voice, and ranted upon the earth, and commanded, saying: I am the Only Begotten, worship me.”
-
-Let’s review. Did you hear what he just said? “I am the Only Begotten. Worship me!”
-
-The great deceiver said, in effect, “Don’t worry; I won’t harm you—I’m not a skunk; I am just an innocent black-and-white kitty cat.”
-
-Moses then called upon God and received His divine strength. Even though the adversary trembled and the earth shook, Moses did not yield. His voice was certain and clear. “Depart from me, Satan,” he declared, “for this one God only will I worship, which is the God of glory.”
-
-Finally, he “departed … from the presence of Moses.”
-
-After the Lord appeared and blessed Moses for his obedience, the Lord said:
-
-“Blessed art thou, Moses, for … thou shalt be made stronger than many waters. …
-
-“And lo, I am with thee, even unto the end of thy days.”
-
-Moses’s resistance of the adversary is a vivid and enlightening example for each of us, no matter our stage in life. It is a powerful message for you personally—to know what to do when he tries to deceive you. For you, like Moses, have been blessed with the gift of heavenly help.
-
-How might you find this heavenly help, even as Moses did, and not be deceived or give in to temptation? A clear channel for divine assistance was reaffirmed in this dispensation by the Lord Himself when He declared: “Wherefore, I the Lord, knowing the calamity which should come upon the inhabitants of the earth, called upon my servant Joseph Smith, Jun., and spake unto him from heaven, and gave him commandments.” Using simpler words, we might say that the Lord, who knows “the end from the beginning,” knows the unique difficulties of our day. Therefore, He has provided a way for us to resist challenges and temptations, many of which come as a direct result of the deceitful influences of the adversary and his attacks.
-
-The way is simple. Through His servants, God speaks to us, His children, and gives us commandments. We could restate the verse I just quoted to say, “I the Lord … called upon my servant [President Russell M. Nelson], and spake unto him from heaven, and gave him commandments.” Isn’t that a glorious truth?
-
-I bear solemn witness that the Lord did in all reality speak to Joseph Smith from heaven, beginning with the grand First Vision. He also speaks to President Nelson in our time. I testify that God communed with prophets in past ages and gave them commandments designed to lead His children to happiness in this life and glory in the next.
-
-God continues to give commandments to our living prophet today. Examples abound—a more home-centered, Church-supported balance in gospel instruction; the replacement of home and visiting teaching with ministering; adjustments to temple procedures and ordinances; and the new Children and Youth program. I marvel at the goodness and compassion of a loving Heavenly Father and His Son, Jesus Christ, who restored the Savior’s Church to earth once again and have called a prophet in our day. The Restoration of the gospel of Jesus Christ offsets perilous times with the fulness of times.
-
-Obedience to commandments given to our prophet is a key not only in avoiding the influence of the deceiver but also in experiencing lasting joy and happiness. This divine formula is rather simple: righteousness, or obedience to commandments, brings blessings, and blessings bring happiness, or joy, into our lives.
-
-However, in the same way that the adversary tried to deceive Moses, he seeks to trick you. He has always pretended to be something that he is not. He always attempts to hide who he truly is. He claims that obedience will make your life miserable and that it will rob you of happiness.
-
-Can you think of some of his ploys to deceive? For instance, he disguises the destructive consequences of illicit drugs or drinking and instead suggests that it will bring pleasure. He immerses us in the various negative elements that can exist in social media, including debilitating comparisons and idealized reality. In addition, he camouflages other dark, harmful content found online, such as pornography, blatant attacks on others through cyberbullying, and sowing misinformation to cause doubt and fear in our hearts and minds. Cunningly he whispers, “Just follow me, and you will surely be happy.”
-
-The words written so many centuries ago by a Book of Mormon prophet are especially relevant for our day: “Wickedness never was happiness.” May we recognize Satan’s deceptions for what they are. May we withstand and see through the lies and influences of the one who seeks to destroy our souls and steal from us our present joy and future glory.
-
-My dear brothers and sisters, we must continue to be faithful and vigilant, for so is the only way to discern truth and to hear the voice of the Lord through His servants. “For the Spirit speaketh the truth and lieth not. … These things are manifested unto us plainly, for the salvation of our souls. … For God also spake them unto prophets of old.” We are the Saints of Almighty God, the hope of Israel! Will we falter? “Shall we shrink or shun the fight? No! … To God’s command, soul, heart, and hand, faithful and true we will ever stand.”
-
-I bear my witness of the Holy One of Israel—even the name of Jesus Christ. I testify of His abiding love, truth, and joy that are made possible by His infinite and eternal sacrifice. As we obey His commandments, we will always be led in the right way and will not be deceived. In the sacred name of our Savior, Jesus Christ, amen.
-
-
----
-
-
-## Trust in the Lord
-
-**Speaker:** By President Dallin H. Oaks
-
-**Calling:** First Counselor in the First Presidency
-
-**Year:** 2019
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/10/17oaks?lang=eng
-
-My dear brothers and sisters, a letter I received some time ago introduces the subject of my talk. The writer was contemplating a temple marriage to a man whose eternal companion had died. She would be a second wife. She asked this question: would she be able to have her own house in the next life, or would she have to live with her husband and his first wife? I just told her to trust the Lord.
-
-I continue with an experience I heard from a valued associate, which I share with his permission. After the death of his beloved wife and the mother of his children, a father remarried. Some grown children strongly objected to the remarriage and sought the counsel of a close relative who was a respected Church leader. After hearing the reasons for their objections, which focused on conditions and relationships in the spirit world or in the kingdoms of glory that follow the Final Judgment, this leader said: “You are worried about the wrong things. You should be worried about whether you will get to those places. Concentrate on that. If you get there, all of it will be more wonderful than you can imagine.”
-
-What a comforting teaching! Trust in the Lord!
-
-From letters I have received, I know that others are troubled by questions about the spirit world we will inhabit after we die and before we are resurrected. Some assume that the spirit world will continue many of the temporal circumstances and issues we experience in this mortal life. What do we really know about conditions in the spirit world? I believe a BYU religion professor’s article on this subject had it right: “When we ask ourselves what we know about the spirit world from the standard works, the answer is ‘not as much as we often think.’”
-
-Of course, we know from the scriptures that after our bodies die we continue to live as spirits in the spirit world. The scriptures also teach that this spirit world is divided between those who have been “righteous” or “just” during life and those who have been wicked. They also describe how some faithful spirits teach the gospel to those who have been wicked or rebellious (see 1 Peter 3:19; Doctrine and Covenants 138:19–20, 29, 32, 37). Most important, modern revelation reveals that the work of salvation goes forward in the spirit world (see Doctrine and Covenants 138:30–34, 58), and although we are urged not to procrastinate our repentance during mortality (see Alma 13:27), we are taught that some repentance is possible there (see Doctrine and Covenants 138:58).
-
-The work of salvation in the spirit world consists of freeing spirits from what the scriptures frequently describe as “bondage.” All in the spirit world are under some form of bondage. President Joseph F. Smith’s great revelation, canonized in section 138 of the Doctrine and Covenants, states that the righteous dead, who were in a state of “peace” (Doctrine and Covenants 138:22) as they anticipated the Resurrection (see Doctrine and Covenants 138:16), “had looked upon the long absence of their spirits from their bodies as a bondage” (Doctrine and Covenants 138:50).
-
-The wicked also suffer an additional bondage. Because of unrepented sins, they are in what the Apostle Peter referred to as spirit “prison” (1 Peter 3:19; see also Doctrine and Covenants 138:42). These spirits are described as “bound” or as “captives” (Doctrine and Covenants 138:31, 42) or as “cast out into outer darkness” with “weeping, and wailing, and gnashing of teeth” as they await resurrection and judgment (Alma 40:13–14).
-
-Resurrection for all in the spirit world is assured by the Resurrection of Jesus Christ (see 1 Corinthians 15:22), though it occurs at different times for different groups. Until that appointed time, what the scriptures tell us about activity in the spirit world principally concerns the work of salvation. Little else is revealed. The gospel is preached to the ignorant, the unrepentant, and the rebellious so they can be freed from their bondage and go forward to the blessings a loving Heavenly Father has in store for them.
-
-The spirit-world bondage that applies to righteous converted souls is their need to await—and perhaps even be allowed to prompt—the performance of their proxy ordinances on earth so they can be baptized and enjoy the blessings of the Holy Ghost (see Doctrine and Covenants 138:30–37, 57–58). These mortal proxy ordinances also empower them to go forward under priesthood authority to enlarge the hosts of the righteous who can preach the gospel to the spirits in prison.
-
-Beyond these basics, our canon of scripture contains very little about the spirit world that follows death and precedes the Final Judgment. So what else do we know about the spirit world? Many members of the Church have had visions or other inspirations to inform them about how things operate or are organized in the spirit world, but these personal spiritual experiences are not to be understood or taught as the official doctrine of the Church. And, of course, there is abundant speculation by members and others in published sources like books on near-death experiences.
-
-As to all of these, the wise cautions of Elders D. Todd Christofferson and Neil L. Andersen in earlier general conference messages are important to remember. Elder Christofferson taught: “It should be remembered that not every statement made by a Church leader, past or present, necessarily constitutes doctrine. It is commonly understood in the Church that a statement made by one leader on a single occasion often represents a personal, though well-considered, opinion, not meant to be official or binding for the whole Church.”
-
-In the following conference, Elder Andersen taught this principle: “The doctrine is taught by all 15 members of the First Presidency and Quorum of the Twelve. It is not hidden in an obscure paragraph of one talk.” The family proclamation, signed by all 15 prophets, seers, and revelators, is a wonderful illustration of that principle.
-
-Beyond something as formal as the family proclamation, the prophetic teachings of the Presidents of the Church, affirmed by other prophets and apostles, are also an example of this. As to circumstances in the spirit world, the Prophet Joseph Smith gave two teachings near the close of his ministry that have been frequently taught by his successors. One of these is his teaching in the King Follett sermon that family members who were righteous will be together in the world of spirits. Another is this statement at a funeral in the last year of his life: “The spirits of the just are exalted to a greater and more glorious work … [in] the world of spirits. … They are not far from us, and know and understand our thoughts, feelings, and motions, and are often pained therewith.”
-
-So, what about a question like I mentioned earlier about where spirits live? If that question seems strange or trivial to you, consider many of your own questions, or even those you have been tempted to answer on the basis of something you heard from another person sometime in the past. For all questions about the spirit world, I suggest two answers. First, remember that God loves His children and will surely do what is best for each of us. Second, remember this familiar Bible teaching, which has been most helpful to me on a multitude of unanswered questions:
-
-“Trust in the Lord with all thine heart; and lean not unto thine own understanding.
-
-“In all thy ways acknowledge him, and he shall direct thy paths” (Proverbs 3:5–6).
-
-Similarly, Nephi concluded his great psalm with these words: “O Lord, I have trusted in thee, and I will trust in thee forever. I will not put my trust in the arm of flesh” (2 Nephi 4:34).
-
-We can all wonder privately about circumstances in the spirit world or even discuss these or other unanswered questions in family or other intimate settings. But let us not teach or use as official doctrine what does not meet the standards of official doctrine. To do so does not further the work of the Lord and may even discourage individuals from seeking their own comfort or edification through the personal revelation the Lord’s plan provides for each of us. Excessive reliance on personal teachings or speculations may even draw us aside from concentrating on learning and efforts that will further our understanding and help us go forward on the covenant path.
-
-Trust in the Lord is a familiar and true teaching in The Church of Jesus Christ of Latter-day Saints. That was Joseph Smith’s teaching when the early Saints experienced severe persecutions and seemingly insurmountable obstacles. That is still the best principle we can use when our efforts to learn or our attempts to find comfort encounter obstacles in matters not yet revealed or not adopted as the official doctrine of the Church.
-
-That same principle applies to unanswered questions about sealings in the next life or desired readjustments because of events or transgressions in mortality. There is so much we do not know that our only sure reliance is to trust in the Lord and His love for His children.
-
-In conclusion, what we do know about the spirit world is that the Father’s and the Son’s work of salvation continues there. Our Savior initiated the work of declaring liberty to the captives (see 1 Peter 3:18–19; 4:6; Doctrine and Covenants 138:6–11, 18–21, 28–37), and that work continues as worthy and qualified messengers continue to preach the gospel, including repentance, to those who still need its cleansing effect (see Doctrine and Covenants 138:57). The object of all of that is described in the official doctrine of the Church, given in modern revelation.
-
-“The dead who repent will be redeemed, through obedience to the ordinances of the house of God,
-
-“And after they have paid the penalty of their transgressions, and are washed clean, shall receive a reward according to their works, for they are heirs of salvation” (Doctrine and Covenants 138:58–59).
-
-The duty of each of us is to teach the doctrine of the restored gospel, keep the commandments, love and help one another, and do the work of salvation in the holy temples.
-
-I testify of the truth of what I have said here and of the truths taught and to be taught in this conference. This is all made possible because of the Atonement of Jesus Christ. As we know from modern revelation, He “glorifies the Father, and saves all the works of his hands” (Doctrine and Covenants 76:43; emphasis added). In the name of Jesus Christ, amen.
-
-
----
-
-
-## Standing by Our Promises and Covenants
-
-**Speaker:** By Elder Ronald A. Rasband
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** October
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/10/29rasband?lang=eng
-
-Dear brothers and sisters, as we close this session, may we each hold in our hearts the witness borne today of the truths of the gospel of Jesus Christ. We are blessed to have this sacred time together to reinforce our promise to the Lord Jesus Christ that we are His servants and He is our Savior.
-
-The importance of making and keeping promises and covenants weighs heavy on my mind. How important is it to you to keep your word? to be trusted? to do what you say you will do? to strive to honor your sacred covenants? to have integrity? By living true to our promises to the Lord and to others, we walk the covenant path back to our Father in Heaven and we feel His love in our lives.
-
-Our Savior, Jesus Christ, is our great Exemplar when it comes to making and keeping promises and covenants. He came to earth promising to do the will of the Father. He taught gospel principles in word and in deed. He atoned for our sins that we might live again. He has honored every one of His promises.
-
-Can the same be said of each of us? What are the dangers if we cheat a little, slip a little, or do not quite follow through with our commitments? What if we walk away from our covenants? Will others come unto Christ in light of our example? Is your word your bond? Keeping promises is not a habit; it is a characteristic of being a disciple of Jesus Christ.
-
-Ever mindful of our frailties in mortal life, the Lord promised, “Be of good cheer, and do not fear, for I the Lord am with you, and will stand by you.” I have felt His presence when needing reassurance, comfort, or greater spiritual insight or strength, and I have been deeply humbled and am grateful for His divine companionship.
-
-The Lord has said, “Every soul who forsaketh his sins and cometh unto me, and calleth on my name, and obeyeth my voice, and keepeth my commandments, shall see my face and know that I am.” That is perhaps His ultimate promise.
-
-I learned the importance of keeping my word in my youth. One such example is when I stood at attention to recite the Scout Oath. Our association with the Boy Scouts of America, as it now concludes, will always be an important legacy to me and this Church. To the Scouting organization, to the scores of men and women who have served diligently as Scout leaders, to the moms—real credit goes there—and to the young men who have participated in Scouting, we say, “Thank you.”
-
-In this very session, our dear prophet, President Russell M. Nelson, and Elder Quentin L. Cook have announced adjustments that will refocus our attention on youth and align our organizations with revealed truth. In addition, just last Sunday, President Nelson and President M. Russell Ballard explained the new Children and Youth of The Church of Jesus Christ of Latter-day Saints program for the entire Church. It is a worldwide initiative focused on our Lord and Savior, Jesus Christ. The First Presidency and Quorum of the Twelve Apostles are unified in this new direction, and I personally bear my witness that the Lord has guided us every step of the way. I am excited for the children and youth of the Church to experience this integrated focus on them both at home and at church—through gospel learning, service and activities, and personal development.
-
-The youth theme for this coming year, 2020, speaks of Nephi’s classic promise to “go and do.” He wrote, “And it came to pass that I, Nephi, said unto my father: I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” Although it was uttered long ago, we in the Church stand on that promise today.
-
-To “go and do” means rising above the ways of the world, receiving and acting on personal revelation, living righteously with hope and faith in the future, making and keeping covenants to follow Jesus Christ, and thereby increasing our love for Him, the Savior of the world.
-
-A covenant is a two-way promise between us and the Lord. As members of the Church, we covenant at baptism to take upon us the name of Jesus Christ, to live as He lived. Like those baptized at the Waters of Mormon, we covenant to become His people, “to bear one another’s burdens, that they may be light; … to mourn with those that mourn; … comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places.” Our ministering one to another in the Church reflects our commitment to honor those very promises.
-
-When we partake of the sacrament, we renew that covenant to take upon us His name and make additional promises to improve. Our daily thoughts and actions, both large and small, reflect our commitment to Him. His sacred promise in return is “If ye do always remember me ye shall have my Spirit to be with you.”
-
-My question today is, do we stand by our promises and covenants, or are they sometimes half-hearted commitments, casually made and hence easily broken? When we say to someone, “I will pray for you,” do we? When we commit, “I will be there to help,” will we? When we obligate ourselves to pay a debt, do we? When we raise our hands to sustain a fellow member in a new calling, which means to give support, do we?
-
-One evening in my youth, my mother sat with me at the foot of her bed and spoke fervently of the importance of living the Word of Wisdom. “I know from the experiences of others, from years ago,” she said, “the loss of spirituality and sensitivity that comes from not following the Word of Wisdom.” She looked right into my eyes, and I felt her words penetrate my heart: “Promise me, Ronnie, today [she called me Ronnie], that you will always live the Word of Wisdom.” I solemnly made that promise to her, and I have held to it all these years.
-
-That commitment served me well when I was in my youth and in later years when I was in business circles where substances flowed freely. I made a decision in advance to follow God’s laws, and I never had to revisit it. The Lord has said, “I, the Lord, am bound when ye do what I say; but when ye do not what I say, ye have no promise.” What is He saying to those who abide by the Word of Wisdom? That we will have the promise of health, strength, wisdom, knowledge, and angels to protect us.
-
-Some years ago, Sister Rasband and I were at the Salt Lake Temple for the sealing of one of our daughters. As we stood outside the temple with a younger daughter not yet old enough to attend the ceremony, we spoke of the importance of being sealed in the holy temple of God. As my mother had taught me years before, we said to our daughter, “We want you safely sealed in the temple, and we want you to promise us that when you find your eternal companion, you will make a date with him to be sealed in the temple.” She gave us her word.
-
-She has since stated that our talk and her promise protected her and reminded her “what was most important.” She later made sacred covenants as she was sealed to her husband in the temple.
-
-President Nelson has taught: “We … increase the Savior’s power in our lives when we make sacred covenants and keep those covenants with precision. Our covenants bind us to Him and give us godly power.”
-
-When we keep promises to one another, we are more likely to keep promises to the Lord. Remember the Lord’s words: “Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.”
-
-Reflect with me on examples of promises in the scriptures. Ammon and the sons of Mosiah in the Book of Mormon committed “to preach the word of God.” When Ammon was captured by Lamanite forces, he was taken before the Lamanite King Lamoni. He committed to the king, “I will be thy servant.” When raiders came to steal the king’s sheep, Ammon cut off their arms. So astonished was the king, he listened to Ammon’s message of the gospel and was converted.
-
-Ruth, in the Old Testament, promised her mother-in-law, “Whither thou goest, I will go.” She lived true to her word. The good Samaritan, in a parable in the New Testament, promised the innkeeper if he would care for the injured traveler, “Whatsoever thou spendest more, when I come again, I will repay thee.” Zoram, in the Book of Mormon, promised to go into the wilderness with Nephi and his brothers. Nephi recounted, “When Zoram had made an oath unto us, our fears did cease concerning him.”
-
-What of the ancient promise “made to the fathers” as described in the scriptures that “the hearts of the children shall turn to their fathers”? In the pre-earth life when we chose God’s plan, we made a promise to help gather Israel on both sides of the veil. “We went into a partnership with the Lord,” Elder John A. Widtsoe explained years ago. “The working out of the plan became then not merely the Father’s work, and the Savior’s work, but also our work.”
-
-“[The] gathering is the most important thing taking place on earth today,” President Nelson has said as he has traveled the world. “When we speak of the gathering, we are simply saying this fundamental truth: every one of our Heavenly Father’s children, on both sides of the veil, deserves to hear the message of the restored gospel of Jesus Christ.”
-
-As an Apostle of the Lord Jesus Christ, I conclude with an invitation and promise. First, the invitation: I invite you to consider the promises and covenants you make with the Lord, and with others, with great integrity, knowing that your word is your bond. Second, I promise you, as you do this, the Lord will establish your words and sanction your deeds as you strive with unwearied diligence to build up your lives, your families, and The Church of Jesus Christ of Latter-day Saints. He will be with you, my dear brothers and sisters, and you can, with confidence, look forward to being “received into heaven, that thereby [you] may dwell with God in a state of never-ending happiness … for the Lord God hath spoken it.”
-
-Of this I testify and promise in the name of Jesus Christ, amen.
-
-
----
-
-
-## Behold the Lamb of God
-
-**Speaker:** By Elder Jeffrey R. Holland
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/04/28holland?lang=eng
-
-I was doing just fine until I saw the tears in the eyes of those young people in this choir. Those tears are a more eloquent sermon than I could ever give.
-
-Looking up from water’s edge, past the eager crowds seeking baptism at his hand, John, called the Baptist, saw in the distance his cousin, Jesus of Nazareth, striding resolutely toward him to make a request for that same ordinance. Reverently, but audible enough for those nearby to hear, John uttered the admiration that still moves us two millennia later: “Behold the Lamb of God.”
-
-It is instructive that this long-prophesied forerunner to Jesus did not call Him “Jehovah” or “Savior” or “Redeemer” or even “the Son of God”—all of which were applicable titles. No, John chose the earliest and perhaps most commonly recognized image in the religious tradition of his people. He used the figure of a sacrificial lamb offered in atonement for the sins and sorrows of a fallen world and all the fallen people in it.
-
-Please indulge me in recalling just a little of that history.
-
-After expulsion from the Garden of Eden, Adam and Eve faced a devastating future. Having opened the door to mortality and temporal life for us, they had closed the door to immortality and eternal life for themselves. Due to a transgression they had consciously chosen to make in our behalf, they now faced physical death and spiritual banishment, separation from the presence of God forever. What were they to do? Would there be a way out of this plight? We are not certain just how much these two were allowed to remember of the instruction they received while still in the garden, but they did remember they were to regularly offer for a sacrifice unto God a pure, unblemished lamb, the first male born of their flock.
-
-Later an angel came to explain that this sacrifice was a type, a prefiguration of the offering that would be made in their behalf by the Savior of the world who was to come. “This thing is a similitude of the sacrifice of the Only Begotten of the Father,” the angel said. “Wherefore, … thou shalt repent and call upon God in the name of the Son forevermore.” Fortunately, there was going to be a way out and a way up.
-
-In the premortal councils of heaven, God had promised Adam and Eve (and all the rest of us) that help would come from His pure, unblemished Firstborn Son, the Lamb of God “slain from the foundation of the world,” as the Apostle John would later describe Him. By offering their own little symbolic lambs in mortality, Adam and his posterity were expressing their understanding of and their dependence upon the atoning sacrifice of Jesus the Anointed One. Later, the wilderness tabernacle would become the setting for this ordinance and, after that, the temple that Solomon would build.
-
-Unfortunately, as a symbol of genuine repentance and faithful living, this ritualistic offering of unblemished little lambs didn’t work very well, as so much of the Old Testament reveals. The moral resolve that should have accompanied those sacrifices sometimes didn’t last long enough for the blood to dry upon the stones. In any case, it didn’t last long enough to preclude fratricide, with Cain killing his brother Abel in the first generation.
-
-With such trials and troubles going on for centuries, no wonder the angels of heaven sang for joy when, finally, Jesus was born—the long-promised Messiah Himself. Following His brief mortal ministry, this purest of all Passover sheep prepared His disciples for His death by introducing the sacrament of the Lord’s Supper, a more personal form of the ordinance that had been introduced just outside of Eden. There would still be an offering, it would still involve a sacrifice, but it would be with symbolism much deeper, much more introspective and personal than the bloodletting of a firstborn lamb. To the Nephites, after His Resurrection, the Savior said of this:
-
-“Ye shall offer up unto me no more the shedding of blood. …
-
-“… Ye shall offer for a sacrifice unto me a broken heart and a contrite spirit. And whoso cometh unto me with a broken heart and a contrite spirit, him will I baptize with fire and with the Holy Ghost. …
-
-“… Therefore repent, … and be saved.”
-
-My beloved brothers and sisters, with the exciting new emphasis on increased gospel learning in the home, it is crucial for us to remember that we are still commanded to “go to the house of prayer and offer up thy sacraments upon my holy day.” In addition to making time for more home-centered gospel instruction, our modified Sunday service is also to reduce the complexity of the meeting schedule in a way that properly emphasizes the sacrament of the Lord’s Supper as the sacred, acknowledged focal point of our weekly worship experience. We are to remember in as personal a way as possible that Christ died from a heart broken by shouldering entirely alone the sins and sorrows of the whole human family.
-
-Inasmuch as we contributed to that fatal burden, such a moment demands our respect. Thus, we are encouraged to come to our services early and reverently, dressed appropriately for participation in a sacred ordinance. “Sunday best” has lost a little of its meaning in our time, and out of esteem for Him into whose presence we come, we ought to restore that tradition of Sabbath dress and grooming when and where we can.
-
-As for punctuality, a late pass will always be lovingly granted to those blessed mothers who, with children and Cheerios and diaper bags trailing in marvelous disarray, are lucky to have made it to church at all. Furthermore, there will be others who unavoidably find their ox in the mire on a Sabbath morning. However, to this latter group we say an occasional tardiness is understandable, but if the ox is in the mire every Sunday, then we strongly recommend that you sell the ox or fill the mire.
-
-In that same spirit, we make an apostolic plea for the reduction of clamor in the sanctuary of our buildings. We love to visit with each other, and we should—it is one of the joys of church attendance—but it ought not be pursued so vocally in space specifically dedicated for worship. I fear that visitors not of our faith are shocked by what can sometimes be noisy irreverence in a setting that is supposed to be characterized by prayer, testimony, revelation, and peace. Perhaps heaven is a little shocked as well.
-
-It will add to the spirit of our sacrament meetings if the presiding officers are on the stand well before the meeting is to begin, listening to the prelude music and reverently setting the example the rest of us ought to follow. If there is chatter on the stand, we shouldn’t be surprised at chatter in the congregation. We congratulate those bishoprics who are eliminating announcements that detract from the spirit of our worship. I, for one, cannot imagine a priest such as Zacharias—there in the ancient temple of the Lord, about to participate in the one and only priestly privilege that would come to him in his entire lifetime—I just cannot picture him pausing before the altar to remind us that the pinewood derby is just six weeks away and registration will soon be due.
-
-Brothers and sisters, this hour ordained of the Lord is the most sacred hour of our week. By commandment, we gather for the most universally received ordinance in the Church. It is in memory of Him who asked if the cup He was about to drink could pass, only to press on because He knew that for our sake it could not pass. It will help us if we remember that a symbol of that cup is slowly making its way down the row toward us at the hand of an 11- or 12-year-old deacon.
-
-When the sacred hour comes to present our sacrificial gift to the Lord, we do have our own sins and shortcomings to resolve; that’s why we’re there. But we might be more successful in such contrition if we are mindful of the other broken hearts and sorrowing spirits that surround us. Seated not far away are some who may have wept—outwardly or inwardly—through the entire sacramental hymn and the prayers of those priests. Might we silently take note of that and offer our little crust of comfort and our tiny cup of compassion—might we dedicate it to them? or to the weeping, struggling member who is not in the service and, except for some redemptive ministering on our part, won’t be there next week either? or to our brothers and sisters who are not members of the Church at all but are our brothers and sisters? There is no shortage of suffering in this world, inside the Church and out, so look in any direction and you will find someone whose pain seems too heavy to bear and whose heartache seems never to end. One way to “always remember him” would be to join the Great Physician in His never-ending task of lifting the load from those who are burdened and relieving the pain of those who are distraught.
-
-Beloved friends, as we unite across the globe each week in what we hope is an increasingly sacred acknowledgment of Christ’s majestic atoning gift to all humankind, may we bring to the sacramental altar “more tears for his sorrows [and] more pain at his grief.” And then, as we reflect, pray, and covenant anew, may we take from that sacred moment “more patience in suff’ring, … more praise for relief.” For such patience and relief, for such holiness and hope, I pray for all of you in the name of Him who broke the precious bread of forgiveness and poured the holy wine of redemption, even Jesus Christ, the great and merciful and holy Lamb of God, amen.
-
-
----
-
-
-## Preparing for the Lord’s Return
-
-**Speaker:** By Elder D. Todd Christofferson
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/04/44christofferson?lang=eng
-
-In two weeks, we will celebrate Easter. The Resurrection confirms the divinity of Jesus Christ and the reality of God the Father. Our thoughts turn to the Savior, and we ponder “His matchless life and the infinite virtue of His great atoning sacrifice.” I hope we also think about His pending return when “He will rule as King of Kings and … Lord of Lords.”
-
-Some time ago in Buenos Aires, Argentina, I participated in a conference with leaders from a wide variety of religious faiths. Their love for their fellowman was unmistakable. They were intent on relieving suffering and helping people rise above oppression and poverty. I reflected on the numerous humanitarian undertakings of this Church, including projects in collaboration with a number of the faith groups represented in the conference. I felt deep gratitude for the generosity of the members of The Church of Jesus Christ of Latter-day Saints that makes such Christlike service possible.
-
-In that moment, the Holy Spirit affirmed two things to me. First, the work of ministering to temporal needs is vital and must continue. The second was unexpected, yet powerful and clear. It was this: beyond selfless service, it is supremely important to prepare the world for the Second Coming of the Lord Jesus Christ.
-
-When He comes, oppression and injustice will not only diminish; they will cease:
-
-“The wolf also shall dwell with the lamb, and the leopard shall lie down with the kid, and the calf and the young lion and fatling together; and a little child shall lead them. …
-
-“They shall not hurt nor destroy in all my holy mountain, for the earth shall be full of the knowledge of the Lord, as the waters cover the sea.”
-
-Poverty and suffering will not only decline; they will vanish:
-
-“They shall hunger no more, neither thirst any more; neither shall the sun light on them, nor any heat.
-
-“For the Lamb which is in the midst of the throne shall feed them, and shall lead them unto living fountains of waters: and God shall wipe away all tears from their eyes.”
-
-Even the pain and sorrow of death will be done away:
-
-“In that day an infant shall not die until he is old; and his life shall be as the age of a tree;
-
-“And when he dies he shall not sleep, that is to say in the earth, but shall be changed in the twinkling of an eye, and shall be caught up, and his rest shall be glorious.”
-
-So yes, let us do all we can to relieve suffering and sorrow now, and let us devote ourselves more diligently to the preparations needed for the day when pain and evil are ended altogether, when “Christ [shall] reign personally upon the earth; and … the earth will be renewed and receive its paradisiacal glory.” It will be a day of redemption and judgment. The former Anglican Bishop of Durham, Dr. N. T. Wright, has aptly described the significance of Christ’s Atonement, Resurrection, and Judgment in overcoming injustice and putting all things right.
-
-He said: “God has fixed a day on which he will have the world judged rightly by a man whom he has appointed—and of this he has given assurance to all by raising this man from the dead. The facts about Jesus of Nazareth, and especially about his resurrection from the dead, are the foundation of the assurance that the world is not random. It is not ultimately a chaos; that when we do justice in the present we are not whistling in the dark, trying to shore up a building that will ultimately collapse, or to fix a car which is actually bound for the scrap-heap. When God raised Jesus from the dead, that was the microcosmic event in which the ultimate macrocosmic act of judgment was contained in a nutshell, [the] seed … of the ultimate hope. God declared, in the most powerful way imaginable, that Jesus of Nazareth really was the Messiah. … In the greatest irony of history, [Jesus] himself underwent cruel and unjust judgment, coming to the place which symbolized and drew together all the myriad cruelties and injustices of history, to bear that chaos, that darkness, that cruelty, that injustice, in himself, and to exhaust its power.”
-
-While I was at the conference in Buenos Aires that I mentioned earlier, the Spirit made clear to me that The Church of Jesus Christ of Latter-day Saints is uniquely empowered and commissioned to accomplish the necessary preparations for the Lord’s Second Coming; indeed, it was restored for that purpose. Can you find anywhere else a people who embrace the present era as the prophesied “dispensation of the fulness of times,” in which God has purposed to “gather together in one all things in Christ”? If you don’t find here a community intent on accomplishing what needs to be accomplished for both the living and the dead to prepare for that day, if you don’t find here an organization willing to commit vast amounts of time and funds to the gathering and preparation of a covenant people ready to receive the Lord, you won’t find it anywhere.
-
-Speaking to the Church in 1831, the Lord declared:
-
-“The keys of the kingdom of God are committed unto man on the earth, and from thence shall the gospel roll forth unto the ends of the earth. …
-
-“Call upon the Lord, that his kingdom may go forth upon the earth, that the inhabitants thereof may receive it, and be prepared for the days to come, in the which the Son of Man shall come down in heaven, clothed in the brightness of his glory, to meet the kingdom of God which is set up on the earth.”
-
-What can we do to prepare now for that day? We can prepare ourselves as a people; we can gather the Lord’s covenant people; and we can help redeem the promise of salvation “made to the fathers,” our ancestors. All of this must occur in some substantial measure before the Lord comes again.
-
-First, and crucial for the Lord’s return, is the presence on the earth of a people prepared to receive Him at His coming. He has stated that those who remain upon the earth in that day, “from the least [to] the greatest, … shall be filled with the knowledge of the Lord, and shall see eye to eye, and shall lift up their voice, and with the voice together sing this new song, saying: The Lord hath brought again Zion. … The Lord hath gathered all things in one. The Lord hath brought down Zion from above. The Lord hath brought up Zion from beneath.”
-
-In ancient times, God took the righteous city of Zion to Himself. By contrast, in the last days a new Zion will receive the Lord at His return. Zion is the pure in heart, a people of one heart and one mind, dwelling in righteousness with no poor among them. The Prophet Joseph Smith stated, “We ought to have the building up of Zion as our greatest object.” We build up Zion in our homes, wards, branches, and stakes through unity, godliness, and charity.
-
-We must acknowledge that the building up of Zion occurs in tumultuous times—“a day of wrath, a day of burning, a day of desolation, of weeping, of mourning, and of lamentation; and as a whirlwind it shall come upon all the face of the earth, saith the Lord.” Thus, the gathering into stakes becomes “for a defense, and for a refuge from the storm, and from wrath when it shall be poured out without mixture upon the whole earth.”
-
-Just as in former times, we “meet together oft, to fast and to pray, and to speak one with another concerning the welfare of [our] souls. And … to partake of bread and [water], in remembrance of the Lord Jesus.” As President Russell M. Nelson explained in general conference last October, “The long-standing objective of the Church is to assist all members to increase their faith in our Lord Jesus Christ and in His Atonement, to assist them in making and keeping their covenants with God, and to strengthen and seal their families.” Accordingly, he emphasizes the significance of temple covenants, hallowing the Sabbath, and a daily feasting upon the gospel, centered at home and supported by an integrated study curriculum at church. We want to know about the Lord, and we want to know the Lord.
-
-An underlying effort in building Zion is the gathering of the Lord’s long-dispersed covenant people. “We believe in the literal gathering of Israel and in the restoration of the Ten Tribes.” All who will repent, believe on Christ, and be baptized are His covenant people. The Lord Himself prophesied that before His return, the gospel would be preached in all the world “to recover [His] people, which are of the house of Israel,” “and then shall the end come.” Jeremiah’s prophecy is being fulfilled:
-
-“Therefore, behold, the days come, saith the Lord, that [they] shall no more [say], The Lord liveth, that brought up the children of Israel out of the land of Egypt;
-
-“But, The Lord liveth, that brought up the children of Israel from the land of the north, and from all the lands whither he had driven them: and I will bring them again into their land that I gave unto their fathers.”
-
-President Nelson has repeatedly emphasized that the “gathering [of Israel] is the most important thing taking place on earth today. Nothing else compares in magnitude, nothing else compares in importance, nothing else compares in majesty. And if you choose to, … you can be a big part of it.” The Latter-day Saints have always been a missionary people. Hundreds of thousands have responded to mission calls since the beginning of the Restoration; tens of thousands currently serve. And, as Elder Quentin L. Cook has just taught, all of us can participate in simple and natural ways, in love, inviting others to join us at church, visit in our homes, become part of our circle. Publication of the Book of Mormon was the signal that the gathering had begun. The Book of Mormon itself is the instrument of gathering and conversion.
-
-Also vital to the preparation for the Second Coming is the great redemptive effort on behalf of our ancestors. The Lord promised to send Elijah the prophet before the Second Coming, “the great and dreadful day of the Lord,” to “reveal … the Priesthood” and “plant in the hearts of the children the promises made to the fathers.” Elijah did come as promised. The date was April 3, 1836; the place was the Kirtland Temple. In that place and in that moment, he did indeed confer the promised priesthood, the keys for the redemption of the dead and the union of husbands, wives, and families across all generations of time and throughout all eternity. Without this, the purpose of creation would be frustrated, and in that sense, the earth would be cursed or “utterly wasted.”
-
-At the youth devotional preceding the dedication of the Rome Italy Temple, the hundreds of young men and women in attendance displayed to President Nelson the cards they had prepared with names of their ancestors. They were ready to enter the temple to perform vicarious baptisms for those ancestors as soon as it opened. It was a supremely gratifying moment, yet but one example of the accelerating effort to establish Zion for the generations that have gone before.
-
-While we strive to be diligent in building up Zion, including our part in the gathering of the Lord’s elect and the redemption of the dead, we should pause to remember that it is the Lord’s work and He is doing it. He is the Lord of the vineyard, and we are His servants. He bids us labor in the vineyard with our might this “last time,” and He labors with us. It would probably be more accurate to say He permits us to labor with Him. As Paul said, “I have planted, Apollos watered; but God gave the increase.” It is He who is hastening His work in its time. Employing our admittedly imperfect efforts—our “small means”—the Lord brings about great things.
-
-This great and last dispensation is building steadily to its climax—Zion on earth being joined with Zion from above at the Savior’s glorious return. The Church of Jesus Christ is commissioned to prepare—and is preparing—the world for that day. And so, this Easter, let us truly celebrate the Resurrection of Jesus Christ and all that it portends: His return to reign for a thousand years of peace, a righteous judgment and perfect justice for all, the immortality of all who ever lived upon this earth, and the promise of eternal life. Christ’s Resurrection is the ultimate assurance that all will be put right. Let us be about building up Zion to hasten that day. In the name of Jesus Christ, amen.
-
-
----
-
-
-## Where Will This Lead?
-
-**Speaker:** By President Dallin H. Oaks
-
-**Calling:** First Counselor in the First Presidency
-
-**Year:** 2019
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/04/35oaks?lang=eng
-
-The restored gospel of Jesus Christ encourages us to think about the future. It explains the purpose of mortal life and the reality of the life to follow. It teaches great ideas about the future to guide our actions today.
-
-In contrast, we all know persons who are concerned only with the present: spend it today, enjoy it today, and take no thought for the future.
-
-Our present and our future will be happier if we are always conscious of the future. As we make current decisions, we should always be asking, “Where will this lead?”
-
-Some decisions are choices between doing something or doing nothing. I heard an example of this kind of choice at a stake conference in the United States many years ago.
-
-The setting was a beautiful college campus. A crowd of young students was seated on the grass. The speaker who described this circumstance said they were watching a handsome tree squirrel with a large, bushy tail playing around the base of a beautiful hardwood tree. Sometimes it was on the ground, sometimes up and down and around the trunk. But why would that familiar sight attract a crowd of students?
-
-Stretched out prone on the grass nearby was an Irish setter. He was the object of the students’ interest, and the squirrel was the object of his. Each time the squirrel was momentarily out of sight circling the tree, the setter would quietly creep forward a few inches and then resume his apparently indifferent posture. This was what held the students’ interest. Silent and immobile, their eyes were riveted on the event whose outcome was increasingly obvious.
-
-Finally, the setter was close enough to bound at the squirrel and catch it in his mouth. A gasp of horror arose, and the crowd of students surged forward and wrested the little animal away from the dog, but it was too late. The squirrel was dead.
-
-Anyone in that crowd could have warned the squirrel at any time by waving his or her arms or crying out, but none did. They just watched while the inevitable outcome got closer and closer. No one asked, “Where will this lead?” When the predictable occurred, all rushed to prevent the outcome, but it was too late. Tearful regret was all they could offer.
-
-That true story is a parable of sorts. It applies to things we see in our own lives and in lives and circumstances around us. As we see threats creeping up on persons or things we love, we have the choice of speaking or acting or remaining silent. It is well to ask ourselves, “Where will this lead?” Where the consequences are immediate and serious, we cannot afford to do nothing. We must sound appropriate warnings or support appropriate preventive efforts while there is still time.
-
-The decisions I have just described involve choices between taking some action or taking no action at all. More common are those choices between one action or another. These include choices between good or evil, but more frequently they are choices between two goods. Here too it is desirable to ask where this will lead. We make many choices between two goods, often involving how we will spend our time. There is nothing bad about playing video games or texting or watching TV or talking on a cell phone. But each of these involves what is called “opportunity cost,” meaning that if we spend time doing one thing, we lose the opportunity to do another. I am sure you can see that we need to measure thoughtfully what we are losing by the time we spend on one activity, even if it is perfectly good in itself.
-
-Some time ago I gave a talk titled “Good, Better, Best.” In that talk I said that “just because something is good is not a sufficient reason for doing it. The number of good things we can do far exceeds the time available to accomplish them. Some things are better than good, and these are the things that should command priority attention in our lives. … We have to forego some good things in order to choose others that are better or best.”
-
-Take the long view. What is the effect on our future of the decisions we make in the present? Remember the importance of getting an education, studying the gospel, renewing our covenants by partaking of the sacrament, and attending the temple.
-
-“Where will this lead?” is also important in choosing how we label or think of ourselves. Most important, each of us is a child of God with a potential destiny of eternal life. Every other label, even including occupation, race, physical characteristics, or honors, is temporary or trivial in eternal terms. Don’t choose to label yourselves or think of yourselves in terms that put a limit on a goal for which you might strive.
-
-My brethren, and my sisters who may view or read what I say here, I hope you know why your leaders give the teachings and counsel we give. We love you, and our Heavenly Father and His Son, Jesus Christ, love you. Their plan for us is the “great plan of happiness” (Alma 42:8). That plan and Their commandments and ordinances and covenants lead us to the greatest happiness and joy in this life and in the life to come. As servants of the Father and the Son, we teach and counsel as They have directed us by the Holy Ghost. We have no desire other than to speak what is true and to encourage you to do what They have outlined as the pathway to eternal life, “the greatest of all the gifts of God” (Doctrine and Covenants 14:7).
-
-Here is another example of the effect on the future of decisions made in the present. This example concerns the choice to make a present sacrifice to achieve an important future goal.
-
-At a stake conference in Cali, Colombia, a sister told how she and her fiancé desired to be married in the temple, but at that time the closest temple was in faraway Peru. For a long time, they saved their money for the bus fares. Finally they boarded the bus to Bogotá, but when they arrived there, they learned that all seats on the bus to Lima, Peru, were taken. They could go home without being married or be married out of the temple. Fortunately, there was one other alternative. They could ride on the bus to Lima if they were willing to sit on the floor of the bus for the entire five-day and five-night ride. They chose to do this. She said it was difficult, even though some riders sometimes let them sit in their seats so they could stretch out on the floor.
-
-What impressed me in her talk was this sister’s statement that she was grateful she and her husband had been able to go to the temple in this way, because it changed the way they felt about the gospel and the way they felt about marriage in the temple. The Lord had rewarded them with the growth that comes from sacrifice. She also observed that their five-day trip to the temple accomplished a great deal more in building their spirituality than many visits to the temple that were sacrifice-free.
-
-In the years since I heard that testimony, I have wondered how different that young couple’s life would have been if they had made another choice—forgoing the sacrifice necessary to be married in the temple.
-
-Brethren, we make countless choices in life, some large and some seemingly small. Looking back, we can see what a great difference some of our choices made in our lives. We make better choices and decisions if we look at the alternatives and ponder where they will lead. As we do, we will be following President Russell M. Nelson’s counsel to begin with the end in mind. For us, the end is always on the covenant path through the temple to eternal life, the greatest of all the gifts of God.
-
-I testify of Jesus Christ and of the effects of His Atonement and the other truths of His everlasting gospel in the name of Jesus Christ, amen.
-
-
----
-
-
-## Cleansed by Repentance
-
-**Speaker:** By President Dallin H. Oaks
-
-**Calling:** First Counselor in the First Presidency
-
-**Year:** 2019
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/04/51oaks?lang=eng
-
-In mortality we are subject to the laws of man and the laws of God. I have had the unusual experience of judging serious misbehavior under both of these laws—earlier as a justice of the Utah Supreme Court and now as a member of the First Presidency. The contrast I have experienced between the laws of man and the laws of God has increased my appreciation for the reality and power of the Atonement of Jesus Christ. Under the laws of man, a person guilty of the most serious crimes can be sentenced to life in prison without possibility of parole. But it is different under the merciful plan of a loving Heavenly Father. I have witnessed that these same serious sins can be forgiven in mortality because of our Savior’s atoning sacrifice for the sins of “all those who have a broken heart and a contrite spirit” (2 Nephi 2:7). Christ redeems, and His Atonement is real.
-
-The loving compassion of our Savior is expressed in the great hymn just performed by the choir.
-
-Come unto Jesus; He’ll ever heed you,
-
-Though in the darkness you’ve gone astray.
-
-His love will find you and gently lead you
-
-From darkest night into day.
-
-The atoning sacrifice of Jesus Christ opens the door for “all men [to] repent and come unto him” (Doctrine and Covenants 18:11; see also Mark 3:28; 1 Nephi 10:18; Alma 34:8, 16). The book of Alma reports repentance and forgiveness even of those who had been a wicked and a bloodthirsty people (see Alma 25:16; 27:27, 30). My message today is one of hope for all of us, including those who have lost their membership in the Church by excommunication or name removal. We are all sinners who can be cleansed by repentance. “To repent from sin is not easy,” Elder Russell M. Nelson taught in a prior general conference. “But the prize is worth the price.”
-
-Repentance begins with our Savior, and it is a joy, not a burden. In last December’s Christmas devotional, President Nelson taught: “True repentance is not an event. It is a never-ending privilege. It is fundamental to progression and having peace of mind, comfort, and joy.”
-
-Some of the greatest teachings on repentance are in Alma’s Book of Mormon sermon to members of the Church whom he later described as having been in a state of “much unbelief,” “lifted up in … pride,” and with hearts set “upon riches and the vain things of the world” (Alma 7:6). Each member of this restored Church has much to learn from Alma’s inspired teachings.
-
-We begin with faith in Jesus Christ, because “it is he that cometh to take away the sins of the world” (Alma 5:48). We must repent because, as Alma taught, “except ye repent ye can in nowise inherit the kingdom of heaven” (Alma 5:51). Repentance is an essential part of God’s plan. Because all would sin in our mortal experience and be cut off from God’s presence, man could not “be saved” without repentance (Alma 5:31; see also Helaman 12:22).
-
-This has been taught from the beginning. The Lord commanded Adam, “Teach it unto your children, that all men, everywhere, must repent, or they can in nowise inherit the kingdom of God, for no unclean thing can dwell there, or dwell in his presence” (Moses 6:57). We must repent of all our sins—all of our actions or inactions contrary to the commandments of God. No one is exempt. Just last evening President Nelson challenged us, “Brethren, we all need to repent.”
-
-To be cleansed by repentance, we must forsake our sins and confess them to the Lord and to His mortal judge where required (see Doctrine and Covenants 58:43). Alma taught that we must also “bring forth works of righteousness” (Alma 5:35). All of this is part of the frequent scriptural invitation to come unto Christ.
-
-We need to partake of the sacrament each Sabbath day. In that ordinance we make covenants and receive blessings that help us overcome all acts and desires that block us from the perfection our Savior invites us to achieve (see Matthew 5:48; 3 Nephi 12:48). As we “deny [ourselves] of all ungodliness, and love God with all [our] might, mind and strength,” then we may “be perfect in Christ” and be “sanctified” through the shedding of His blood, to “become holy, without spot” (Moroni 10:32–33). What a promise! What a miracle! What a blessing!
-
-One purpose of God’s plan for this mortal experience is to “prove” us “to see if [we] will do all things whatsoever the Lord [our] God shall command [us]” (Abraham 3:25). As part of this plan, we are accountable to God and to His chosen servants, and that accountability involves both mortal and divine judgments.
-
-In the Lord’s Church, mortal judgments for members or prospective members are administered by leaders who seek divine direction. It is their responsibility to judge persons who are seeking to come unto Christ to receive the power of His Atonement on the covenant path to eternal life. Mortal judgments determine whether a person is ready for baptism. Is a person worthy of a recommend to attend the temple? Has a person whose name was removed from the records of the Church repented sufficiently through the Atonement of Jesus Christ to be readmitted by baptism?
-
-When a mortal judge called of God approves a person for further progress, such as temple privileges, he is not signifying that person as perfect, and he is not forgiving any sins. Elder Spencer W. Kimball taught that after what he called the mortal “waiving [of] penalties,” a person “must also seek and secure from the God of heaven a final repentance, and only he can absolve.” And if sinful acts and desires remain unrepented until the Final Judgment, an unrepentant person will remain unclean. The ultimate accountability, including the final cleansing effect of repentance, is between each of us and God.
-
-The judgment most commonly described in the scriptures is the Final Judgment that follows the Resurrection (see 2 Nephi 9:15). Many scriptures state that “we shall all stand before the judgment seat of Christ” (Romans 14:10; see also 2 Nephi 9:15; Mosiah 27:31) “to be judged according to the deeds [that] have been done in the mortal body” (Alma 5:15; see also Revelation 20:12; Alma 41:3; 3 Nephi 26:4). All will be judged “according to their works” (3 Nephi 27:15) and “according to the desire[s] of their hearts” (Doctrine and Covenants 137:9; see also Alma 41:6).
-
-The purpose of this Final Judgment is to determine whether we have achieved what Alma described as a “mighty change of heart” (see Alma 5:14, 26), where we have become new creatures, with “no more disposition to do evil, but to do good continually” (Mosiah 5:2). The judge of this is our Savior, Jesus Christ (see John 5:22; 2 Nephi 9:41). After His judgment we will all confess “that his judgments are just” (Mosiah 16:1; see also Mosiah 27:31; Alma 12:15), because His omniscience (see 2 Nephi 9:15, 20) has given Him a perfect knowledge of all of our acts and desires, both those righteous or repented and those unrepented or unchanged.
-
-The scriptures describe the process of this Final Judgment. Alma teaches that the justice of our God requires that in the Resurrection “all things should be restored to their proper order” (Alma 41:2). This means that “if their works were good in this life, and the desires of their hearts were good, … at the last day [they will] be restored unto that which is good” (Alma 41:3). Similarly, “if their works [or their desires] are evil they shall be restored [to] them for evil” (Alma 41:4–5; see also Helaman 14:31). Similarly, the prophet Jacob taught that in the Final Judgment “they who are righteous shall be righteous still, and they who are filthy shall be filthy still” (2 Nephi 9:16; see also Mormon 9:14; 1 Nephi 15:33). That is the process preceding our standing before what Moroni calls “the pleasing bar of the great Jehovah, the Eternal Judge of both quick and dead” (Moroni 10:34; see also 3 Nephi 27:16).
-
-To assure that we will be clean before God, we must repent before the Final Judgment (see Mormon 3:22). As Alma told his sinful son, we cannot hide our sins before God, “and except ye repent they will stand as a testimony against you at the last day” (Alma 39:8; emphasis added). The Atonement of Jesus Christ gives us the only way to achieve the needed cleansing through repentance, and this mortal life is the time to do it. Although we are taught that some repentance can occur in the spirit world (see Doctrine and Covenants 138:31, 33, 58), that is not as certain. Elder Melvin J. Ballard taught: “It is much easier to overcome and serve the Lord when both flesh and spirit are combined as one. This is the time when men are more pliable and susceptible. … This life is the time to repent.”
-
-When we repent, we have the Lord’s assurance that our sins, including our acts and desires, will be cleansed and our merciful final judge will “remember them no more” (Doctrine and Covenants 58:42; see also Isaiah 1:18; Jeremiah 31:34; Hebrews 8:12; Alma 41:6; Helaman 14:18–19). Cleansed by repentance, we can qualify for eternal life, which King Benjamin described as “dwell[ing] with God in a state of never-ending happiness” (Mosiah 2:41; see also Doctrine and Covenants 14:7).
-
-As another part of God’s “plan of restoration” (Alma 41:2), the Resurrection will restore “all things … to their proper and perfect frame” (Alma 40:23). This includes the perfection of all of our physical deficiencies and deformities acquired in mortality, including at birth or by trauma or disease.
-
-Does this restoration perfect us of all our unholy or unconquered desires or addictions? That cannot be. We know from modern revelation that we will be judged for our desires as well as our actions (see Alma 41:5; Doctrine and Covenants 137:9) and that even our thoughts will condemn us (see Alma 12:14). We must not “procrastinate the day of [our] repentance” until death, Amulek taught (Alma 34:33), because the same spirit that has possessed our body in this life—whether the Lord’s or the devil’s—“will have power to possess [our] body in that eternal world” (Alma 34:34). Our Savior has the power and stands ready to cleanse us from evil. Now is the time to seek His help to repent of our wicked or unseemly desires and thoughts to be clean and prepared to stand before God at the Final Judgment.
-
-Overarching God’s plan and all of His commandments is His love for each of us, which is “most desirable above all things … and the most joyous to the soul” (1 Nephi 11:22–23). The prophet Isaiah assured even the wicked that when they “return unto the Lord, … he will have mercy … [and] abundantly pardon” (Isaiah 55:7). Alma taught, “Behold, he sendeth an invitation unto all men, for the arms of mercy are extended towards them” (Alma 5:33; see also 2 Nephi 26:25–33). The risen Lord told the Nephites, “Behold, mine arm of mercy is extended towards you, and whosoever will come, him will I receive” (3 Nephi 9:14). From these and many other scriptural teachings, we know that our loving Savior opens His arms to receive all men and women on the loving conditions He has prescribed to enjoy the greatest blessings God has for His children.
-
-Because of God’s plan and the Atonement of Jesus Christ, I testify with a “perfect brightness of hope” that God loves us and we can be cleansed by the process of repentance. We are promised that “if [we] press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life” (2 Nephi 31:20). May we all do so, I plead and pray in the name of Jesus Christ, amen.
-
-
----
-
-
-## The Power of Sustaining Faith
-
-**Speaker:** By President Henry B. Eyring
-
-**Calling:** Second Counselor in the First Presidency
-
-**Year:** 2019
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/04/34eyring?lang=eng
-
-Many times I have heard priesthood leaders give thanks for the sustaining faith of those they serve. From the emotion in their voices, you know their gratitude is deep and real. My purpose today is to convey the Lord’s appreciation for your sustaining His servants in His Church. And it is also to encourage you to exercise and grow in that power to sustain others with your faith.
-
-Before you were born, you demonstrated such power. Think back to what we know of the spirit world before we were born. Our Heavenly Father presented a plan for His children. We were there. Lucifer, our spirit brother, opposed the plan that would allow us freedom to choose. Jehovah, the Beloved Son of Heavenly Father, sustained the plan. Lucifer led a rebellion. Jehovah’s sustaining voice prevailed, and He volunteered to be our Savior.
-
-The fact that you are in mortality now assures us that you sustained the Father and the Savior. It took faith in Jesus Christ to sustain the plan of happiness and Jesus Christ’s place in it when you knew so little of the challenges that you would face in mortality.
-
-Your faith to sustain servants of God has been at the heart of your happiness in this life as well. When you accepted a missionary’s challenge to pray to know that the Book of Mormon was the word of God, you had the faith to sustain a servant of the Lord. When you accepted the invitation to be baptized, you sustained a humble servant of God.
-
-When you let someone place hands on your head and say, “Receive the Holy Ghost,” you sustained him as a holder of the Melchizedek Priesthood.
-
-Since that day, you have, by serving faithfully, sustained each person who has conferred the priesthood upon you and each who has ordained you to an office in that priesthood.
-
-Early in your priesthood experience, each sustaining was a simple event of trusting a servant of God. Now, many of you have moved up to a place where to sustain requires more.
-
-You choose whether to sustain all whom the Lord calls—in whatever the Lord has called them. That choice happens in conferences all over the world. It has happened in this one. In such meetings, names of men and women—servants of God—are read, and you are invited to raise your hand to sustain. You can withhold your sustaining vote, or you can pledge your sustaining faith. By raising your hand to sustain, you make a promise. You make a promise with God, whose servants these are, that you will sustain them.
-
-These are imperfect human beings, as are you. Keeping your promises will take unshakable faith that the Lord called them. Keeping those promises will also bring eternal happiness. Not keeping them will bring sorrow to you and to those you love—and even losses beyond your power to imagine.
-
-You may have been asked, or you will be, whether you sustain your bishop, stake president, the General Authorities, and the General Officers of the Church. It may happen as you are asked to sustain officers and leaders in a conference. Sometimes it will be in an interview with a bishop or stake president.
-
-My counsel is that you ask those questions of yourself beforehand, with careful and prayerful thought. As you do, you might look back on your recent thoughts, words, and deeds. Try to remember and frame the answers you will give when the Lord interviews you, knowing that someday He will. You could prepare by asking yourself questions like the following:
-
-Have I thought or spoken of human weakness in the people I have pledged to sustain?
-
-Have I looked for evidence that the Lord is leading them?
-
-Have I conscientiously and loyally followed their leadership?
-
-Have I spoken about the evidence I can see that they are God’s servants?
-
-Do I pray for them regularly by name and with feelings of love?
-
-Those questions will, for most of us, lead to some uneasiness and a need to repent. We are commanded by God not to judge others unrighteously, but in practice, we find that hard to avoid. Almost everything we do in working with people leads us to evaluate them. And in almost every aspect of our lives, we compare ourselves with others. We may do so for many reasons, some of them reasonable, but it often leads us to be critical.
-
-President George Q. Cannon gave a warning that I pass on to you as my own. I believe he spoke the truth: “God has chosen His servants. He claims it as His prerogative to condemn them, if they need condemnation. He has not given it to us individually to censure and condemn them. No man, however strong he may be in the faith, however high in the Priesthood, can speak evil of the Lord’s anointed and find fault with God’s authority on the earth without incurring His displeasure. The Holy Spirit will withdraw himself from such a man, and he will go into darkness. This being the case, do you not see how important it is that we should be careful?”
-
-My observation is that the members of the Church across the world are generally loyal to each other and to those who preside over them. There are, however, improvements we could and must make. We could rise higher in our power to sustain each other. It will take faith and effort. Here are four suggestions I make for us to act on at this conference.
-
-We could identify specific actions the speakers recommend and start today to carry them out. As we do, our power to sustain them will increase.
-
-We could pray for them as they speak that the Holy Ghost will carry their words into the hearts of specific people we love. When we learn later that our prayer was answered, our power to sustain those leaders will increase.
-
-We could pray that specific speakers will be blessed and magnified as they give their messages. When we see that they were magnified, we will grow in our faith to sustain them, and it will endure.
-
-We could listen for messages from the speakers that come as an answer to our personal prayers for help. When the answers come, and they will, we will grow in our faith to sustain all the Lord’s servants.
-
-In addition to improving in sustaining those who serve in the Church, we will learn that there is another setting in which we can increase in such power. There, it can bring even greater blessings to us. It is in the home and family.
-
-I speak to the younger priesthood holder who lives in a home with his father. Let me tell you from my own experience what it means for a father to feel your sustaining faith. He may look confident to you. But he faces more challenges than you know. At times he can’t see the way through the problems before him.
-
-Your admiration for him will help him some. Your love for him will help even more. But the thing that will help the most is sincere words like these: “Dad, I’ve prayed for you, and I have felt that the Lord is going to help you. Everything will work out. I know it will.”
-
-Words such as those also have power in the other direction, father to son. When a son has made a serious mistake, perhaps in a spiritual matter, he may feel that he has failed. As his father, in that moment, you may be surprised when, after you pray to know what to do, the Holy Ghost puts these words into your mouth: “Son, I’m with you all the way. The Lord loves you. With His help, you can make it back. I know that you can and that you will. I love you.”
-
-In the priesthood quorum and in the family, increased faith to sustain each other is the way we build the Zion the Lord wants us to create. With His help, we can and we will. It will take learning to love the Lord with all our heart, might, mind, and strength and to love each other as we love ourselves.
-
-As we grow in that pure love of Christ, our hearts soften. That love will humble us and lead us to repent. Our confidence in the Lord and in each other will grow. And then we will move toward becoming one, as the Lord promises we can.
-
-I testify that Heavenly Father knows and loves you. Jesus is the living Christ. This is His Church. We hold His priesthood. He will honor our efforts to grow in our power to exercise it and to sustain each other. I so witness in the sacred name of Jesus Christ, amen.
-
-
----
-
-
-## Good Shepherd, Lamb of God
-
-**Speaker:** By Elder Gerrit W. Gong
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/04/53gong?lang=eng
-
-Dear brothers and sisters, have you ever had trouble falling asleep and tried counting imaginary sheep? As fluffy sheep jump over a fence, you count: 1, 2, 3, … 245, 246, … 657, 658 …
-
-In my case, counting sheep doesn’t make me sleepy. I worry about missing or losing one, and that keeps me awake.
-
-With the shepherd boy who became a king, we declare:
-
-“The Lord is my shepherd; I shall not want.
-
-“He maketh me to lie down in green pastures: he leadeth me beside the still waters.
-
-“He restoreth my soul.”
-
-At this Easter season, we celebrate the Good Shepherd, who is also the Lamb of God. Of all His divine titles, no others are more tender or telling. We learn much from our Savior’s references to Himself as the Good Shepherd and from prophetic testimonies of Him as the Lamb of God. These roles and symbols are powerfully complementary—who better to succor each precious lamb than the Good Shepherd, and who better to be our Good Shepherd than the Lamb of God?
-
-“For God so loved the world, that he gave his only begotten Son,” and God’s Only Begotten Son laid down His life in willing obedience to His Father. Jesus testifies, “I am the good shepherd: the good shepherd giveth his life for the sheep.” Jesus had power to lay down His life and power to take it up again. United with His Father, our Savior uniquely blesses us, both as our Good Shepherd and as the Lamb of God.
-
-As our Good Shepherd, Jesus Christ calls us in His voice and His name. He seeks and gathers us. He teaches us how to minister in love. Let us consider these three themes, beginning with Him calling us in His voice and His name.
-
-First, our Good Shepherd “calleth his own sheep by name. … They know his voice.” And “in his own name he doth call you, which is the name of Christ.” As we seek with real intent to follow Jesus Christ, inspiration comes to do good, to love God, and to serve Him. As we study, ponder, and pray; as we regularly renew sacramental and temple covenants; and as we invite all to come to His gospel and ordinances, we are hearkening to His voice.
-
-In our day, President Russell M. Nelson counsels us to call the restored Church by the name Jesus Christ revealed: The Church of Jesus Christ of Latter-day Saints. The Lord said, “Whatsoever ye shall do, ye shall do it in my name; therefore ye shall call the church in my name; and ye shall call upon the Father in my name that he will bless the church for my sake.” Across the world, in our hearts and homes, we call upon the Father in the name of Jesus Christ. We are grateful for such generous blessing of our home-centered, Church-supported worship, gospel study, and wholesome family activities.
-
-Second, our Good Shepherd seeks and gathers us into His one fold. He asks, “What man of you, having an hundred sheep, if he lose one of them, doth not leave the ninety and nine in the wilderness, and go after that which is lost, until he find it?”
-
-Our Savior reaches out to the one and to the ninety-and-nine, often at the same time. As we minister, we acknowledge the ninety-and-nine who are steadfast and immovable, even while we yearn after the one who has strayed. Our Lord seeks and delivers us “out of all places,” “from the four quarters of the earth.” He gathers us by holy covenant and His atoning blood.
-
-Our Savior told His New Testament disciples, “Other sheep I have, which are not of this fold.” In the Americas, the resurrected Lord testified to Lehi’s covenant children, “Ye are my sheep.” And Jesus said yet other sheep would hear His voice. What a blessing the Book of Mormon is as another testament witnessing the voice of Jesus Christ!
-
-Jesus Christ invites the Church to receive all who hear His voice and keep His commandments. The doctrine of Christ includes baptism by water and by fire and the Holy Ghost. Nephi asks, “If the Lamb of God, he being holy, should have need to be baptized by water, to fulfil all righteousness, O then, how much more need have we, being unholy, to be baptized, yea, even by water!”
-
-Today our Savior desires that what we do and who we are becoming will invite others to come, follow Him. Come find love, healing, connection, and covenant belonging in Him, including in God’s holy temple, where sacred ordinances of salvation can bless all family members, thus gathering Israel on both sides of the veil.
-
-Third, as the “Shepherd of Israel,” Jesus Christ exemplifies how shepherds in Israel minister in love. When our Lord asks if we love Him, as He did with Simon Peter, our Savior implores: “Feed my lambs. … Feed my sheep. … Feed my sheep.” The Lord promises that when His shepherds feed His lambs and sheep, those in His fold “shall fear no more, nor be dismayed, neither shall they be lacking.”
-
-Our Good Shepherd cautions that shepherds in Israel must not slumber, nor scatter or cause the sheep to go astray, nor look our own way for our own gain. God’s shepherds are to strengthen, heal, bind up that which is broken, bring again that which was driven away, seek that which was lost.
-
-The Lord also warns of hirelings, who “careth not for the sheep,” and “false prophets, who come to you in sheep’s clothing, but inwardly they are ravening wolves.”
-
-Our Good Shepherd rejoices when we exercise individual moral agency with intention and faith. Those in His fold look to our Savior in gratitude for His atoning sacrifice. We covenant to follow Him, not passively, blindly, or “sheepishly,” but instead desiring with all our hearts and minds to love God and our neighbor, bearing one another’s burdens and rejoicing in one another’s joys. As Christ freely dedicated His will to the will of the Father, so we reverently take upon us His name. We gladly seek to join His work of gathering and ministering to all of God’s children.
-
-Brothers and sisters, Jesus Christ is our perfect Good Shepherd. Because He has laid down His life for us and is now gloriously resurrected, Jesus Christ is also the perfect Lamb of God.
-
-The sacrificial Lamb of God was foreshadowed from the beginning. The angel told Adam his sacrifice “is a similitude of the sacrifice of the Only Begotten of the Father,” which invites us to “repent and call upon God in the name of the Son forevermore.”
-
-Father Abraham, who established covenant blessings for all the nations of the earth, experienced what it meant to offer his begotten son.
-
-“And Isaac spake unto Abraham his father, and said, My father: and he said, Here am I, my son. And he said, Behold the fire and the wood: but where is the lamb … ?
-
-“And Abraham said, My son, God will provide himself a lamb.”
-
-Apostles and prophets foresaw and rejoiced in the foreordained mission of the Lamb of God. John in the Old World and Nephi in the New World testified of “the Lamb of God,” “yea, even the Son of the Eternal Father[,] … the Redeemer of the world.”
-
-Abinadi testified of Jesus Christ’s atoning sacrifice: “All we, like sheep, have gone astray; we have turned every one to his own way; and the Lord hath laid on him the [iniquity] of us all.” Alma called the great and last sacrifice of the Son of God the “one thing which is of more importance than they all.” Alma encouraged, “Have faith on the Lamb of God”; “come and fear not.”
-
-A dear friend shared how she gained her precious testimony of the Atonement of Jesus Christ. She grew up believing sin always brought great punishment, borne by us alone. She pleaded to God to understand the possibility of divine forgiveness. She prayed to understand and know how Jesus Christ can forgive those who repent, how mercy can satisfy justice.
-
-One day her prayer was answered in a spiritually transforming experience. A desperate young man came running out of a grocery store carrying two bags of stolen food. He ran into a busy street, chased by the store manager, who caught him and began yelling and fighting. Instead of feeling judgment for the frightened young man as a thief, my friend was unexpectedly filled with great compassion for him. Without fear or concern for her own safety, she walked straight up to the two quarreling men. She found herself saying, “I will pay for the food. Please let him go. Please let me pay for the food.”
-
-Prompted by the Holy Ghost and filled with a love she had never felt before, my friend said, “All I wanted to do was to help and save the young man.” My friend said she began to understand Jesus Christ and His Atonement—how and why with pure and perfect love Jesus Christ would willingly sacrifice to be her Savior and Redeemer, and why she wanted Him to be.
-
-No wonder we sing:
-
-See, the Good Shepherd is seeking,
-
-Seeking the lambs that are lost,
-
-Bringing them in with rejoicing,
-
-Saved at such infinite cost.
-
-As Lamb of God, our Savior knows when we feel alone, diminished, uncertain, or afraid. In vision, Nephi saw the power of the Lamb of God “[descend] upon the saints of the church of the Lamb, and upon the covenant people of the Lord.” Though “scattered upon all the face of the earth … they were armed with righteousness and with the power of God in great glory.”
-
-This promise of hope and comfort includes our day.
-
-Are you the only member of the Church in your family, school, workplace, or community? Does your branch sometimes feel small or isolated? Have you moved to a new place, perhaps with an unfamiliar language or customs? Perhaps your life’s circumstances have changed, and things you never thought possible now confront you? Our Savior assures us, whatever our circumstances, whoever we are, in the words of Isaiah: “He shall gather the lambs with his arm, and carry them in his bosom, and shall gently lead those that are with young.”
-
-Brothers and sisters, our Good Shepherd calls us in His voice and in His name. He seeks, gathers, and comes to His people. Through His living prophet and each of us, He invites all to find peace, purpose, healing, and joy in the fulness of His restored gospel and on His covenant path. By example, He teaches the shepherds of Israel to minister in His love.
-
-As Lamb of God, Jesus’s divine mission was foreordained and rejoiced in by apostles and prophets. His Atonement, infinite and eternal, is central to the plan of happiness and the purpose of creation. He assures us that He carries us next to His heart.
-
-Dear brothers and sisters, may we desire to be “humble followers of God and the Lamb,” perhaps someday to have our names written in the Lamb’s book of life, to sing the song of the Lamb, to be invited to the supper of the Lamb.
-
-As Shepherd and Lamb, He calls, Come again “to the true knowledge … of [your] Redeemer, … [your] great and true shepherd.” He promises that “by his grace [we] may [become] perfect in Christ.”
-
-At this Easter season, we praise Him:
-
-“Worthy is the Lamb!”
-
-“Hosanna to God and the Lamb!”
-
-I testify of Him, our perfect Good Shepherd, the perfect Lamb of God. He calls us by our name, in His name—even the sacred and holy name of Jesus Christ—amen.
-
-
----
-
-
-## The True, Pure, and Simple Gospel of Jesus Christ
-
-**Speaker:** By President M. Russell Ballard
-
-**Calling:** Acting President of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/04/23ballard?lang=eng
-
-My brothers and sisters, it’s difficult for me to believe that it was 71 years ago, in 1948, that I was a missionary in England and 44 years ago that my wife, Barbara, and I took our family to Canada when I was the president of the Canada Toronto Mission. While serving there in April 1976, I was called to the First Quorum of the Seventy, and unexpectedly in 1985, I was called to the Quorum of the Twelve Apostles. Unlike my previous callings, which included future releases, my release from my calling to the Twelve is not the best option right now; however, I pray that day will come only after I have finished all the Lord has called me to do.
-
-In thinking about my last 43 years of service as a General Authority and the privilege I have had to minister to Heavenly Father’s children, I have come to realize more fully that He wants all of His children to find peace, joy, and happiness in their lives.
-
-The prophet Lehi taught, “Men [and women] are, that they might have joy.” There are many reasons why peace, joy, and happiness may elude us in this life, including poverty, war, natural disasters, and unexpected setbacks in employment, health, and family relationships.
-
-But even though we cannot control those external forces that impact our lives here on earth, as we strive to become faithful disciples of the Lord Jesus Christ, we can find peace, joy, and happiness despite the worldly troubles that swirl around us.
-
-One of my children once said, “Dad, I wonder if I will ever be able to make it.” I responded, “All Heavenly Father asks of us is to do the very best we can each day.” Brothers and sisters, do the best you can do day after day, and before you know it, you will come to realize that your Heavenly Father knows you and that He loves you. And when you know that—really know it—your life will have real purpose and meaning and you will be filled with joy and peace.
-
-As the Light of the World, the Savior said, “Whosoever believeth on me should not abide in darkness.”
-
-“Jesus Christ is the name which is given of the Father, and there is none other name given whereby [we] can be saved;
-
-“Wherefore, all men [and women] must take upon them the name which is given of the Father.”
-
-The scriptures teach us that Satan desires to lead people into darkness. His every effort is to shut out the light and truth of Jesus Christ and His gospel. As Lehi taught his children, the devil “seeketh that all men might be miserable like unto himself.” If Heavenly Father’s “work and … glory” is “to bring to pass the immortality and eternal life of [men and women],” Lucifer’s “work” is to bring to pass the misery and endless woe of God’s children. Sin and transgression dim the Light of Christ in our lives. That is why our quest is to bask in the Light of Christ, which brings peace, joy, and happiness.
-
-In the last 18 months, the Lord has inspired His prophet and the Apostles to implement a number of wonderful adjustments. However, I worry that the spiritual purposes of these adjustments might become lost in the excitement about the changes themselves.
-
-Joseph F. Smith said: “The true, pure, simple gospel of Jesus Christ has been restored. We are responsible for maintaining it upon the earth.” He added that the true, pure, and simple gospel is the “saving doctrines of Christ.”
-
-In the Articles of Faith, the Prophet Joseph Smith taught that “through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel.”
-
-The first principles of the gospel are faith in the Lord Jesus Christ, repentance, baptism, the gift of the Holy Ghost, and enduring to the end. His brother Hyrum taught: “Preach them over [and over] again: you will find that day after day new ideas and additional light concerning them will be revealed to you. You can enlarge upon them … to comprehend them clearly. You will then be able to make them more plainly understood by those [you] teach.”
-
-The best ways for us to see the spiritual purposes of the Church are to live the true, pure, and simple teachings of Christ and also to apply the Savior’s two great commandments: “Thou shalt love the Lord thy God with all thy heart. … Thou shalt love thy neighbor as thyself.”
-
-Obedience to those two commandments provides a way to experience more peace and joy. When we love and serve the Lord and love and serve our neighbors, we will naturally feel more happiness that comes to us in no better way.
-
-Loving God and loving our neighbors is the doctrinal foundation of ministering; home-centered, Church-supported learning; Sabbath-day spiritual worship; and the work of salvation on both sides of the veil supported in the Relief Societies and the elders quorums. All of these things are based on the divine commandments to love God and to love our neighbors. Can there be anything more basic, more fundamental, and more simple than that?
-
-Living the true, pure, and simple gospel plan will allow us more time to visit the widows, widowers, orphans, lonely, sick, and poor. We will find peace, joy, and happiness in our life when serving the Lord and our neighbors.
-
-The Sabbath-day adjustments that emphasize home-centered, Church-supported gospel learning and studying are an opportunity to renew our spirit and our devotion to God within the walls of our homes. What could possibly be more simple, basic, and profound? Brothers and sisters, can you see that learning and teaching the gospel in our families is an important way to find joy and happiness in our lives?
-
-Speaking of the Sabbath, the Savior said, “For verily this is a day appointed unto you to rest from your labors, and to pay thy devotions unto the Most High.” He added, “That thy joy may be full … [through] rejoicing and prayer … ye [should] do these things with thanksgiving, with cheerful hearts and countenances … [and] with a glad heart and a cheerful countenance.”
-
-Please note some of the key words in this revelation: joy, rejoicing, thanksgiving, cheerful hearts, glad heart, and a cheerful countenance. It sounds to me like Sabbath-day observance should bring smiles to our faces.
-
-As we minister in a higher and holier way, please consider how essential it is that we greet everyone who comes to our Church meetings, especially new members and visitors. We should all enjoy singing the hymns and listening carefully to the words of the sacrament prayers with an open heart and mind.
-
-Testimonies of faith in our fast and testimony meetings are led by a member of the bishopric, who shares a brief testimony focused on the plan of happiness and the true, pure, and simple gospel of Christ. All others should follow that example. We need to remember that there are other appropriate places to tell stories or share travel adventures. As we keep our testimonies simple and focused on the gospel of Christ, He will provide spiritual renewal as we share our testimonies with one another.
-
-Effective ministering is best viewed through the focused lens of loving God and loving our neighbors. Simply stated, we minister because we love our Heavenly Father and His children. Our ministering efforts will be more successful if we keep our ministering simple. The most joy comes from the simple things of life, so we need to be careful not to think that more needs to be added to any of the adjustments we have received to build faith and strong testimonies in the hearts of God’s children.
-
-Let’s not complicate things with additional meetings, expectations, or requirements. Keep it simple. It is in that simplicity that you will find the peace, joy, and happiness I have been talking about.
-
-For years the leadership purposes of the Church, as stated in Handbook 2, are outcomes that are clear and simple, from which I quote:
-
-“Leaders encourage every member to receive all essential priesthood ordinances, keep the associated covenants, and qualify for exaltation and eternal life. …
-
-“Adults: Encourage each adult to be worthy to receive the ordinances of the temple. Teach all adults to identify their ancestors and perform vicarious temple ordinances for them.
-
-“Youth: Help prepare each young man to receive the Melchizedek Priesthood, to receive the ordinances of the temple, and to be worthy to serve a full-time mission. Help prepare each young woman to be worthy to make and keep sacred covenants and receive the ordinances of the temple. Strengthen youth through participation in meaningful activities.
-
-“All Members: Help priesthood and auxiliary leaders, ward councils, ward and full-time missionaries, and members work cooperatively in a balanced effort to rescue individuals, strengthen families and Church units, increase priesthood activity, and gather Israel through conversion, retention, and activation. Teach members to provide for themselves and their families and to assist the poor and needy in the Lord’s way.”
-
-My service in the Church has blessed me with many remarkable and special spiritual experiences. I am a witness that the Lord directs His Church to accomplish His purposes. I have received divine guidance far beyond my capacity. The joy of gospel living for me has been centered on the true, pure, and simple doctrine and gospel of Jesus Christ.
-
-I have served under the keys and directions of six prophets and Church Presidents, from Spencer W. Kimball to Russell M. Nelson. I testify that each one of them was and is God’s chosen prophet. They have taught us essential principles about the Church and the gospel and doctrine of Christ. President Nelson is carrying the Lord’s work forward at a breathtaking pace. I say “breathtaking” because he’s the only one of the Apostles who is older than me, and I am having a difficult time keeping up with him! I am a witness that the priesthood keys and the mantle of a prophet of God are upon him. President Nelson teaches the true, pure, and simple gospel of Jesus Christ. I bear my testimony that Jesus is the Christ and this is His Church—of which I testify humbly in the name of Jesus Christ, amen.
-
-
----
-
-
-## Build a Fortress of Spirituality and Protection
-
-**Speaker:** By Elder Ronald A. Rasband
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/04/56rasband?lang=eng
-
-My dear brothers and sisters, as this conference comes to a close, I give thanks to our Father in Heaven for the counsel, truths, and revelation shared at this pulpit during the past two days. We have been taught by servants of God called to speak His holy words. The Lord has reminded us in latter-day revelation, “Whether by mine own voice or … the voice of my servants, it is the same.”
-
-Looking over this vast congregation of Saints and picturing members watching general conference all over the world, I think of the gathering in the Book of Mormon when Jesus Christ appeared to the Nephites following His Crucifixion. He taught them the gospel and then encouraged, “Go ye unto your homes, and ponder upon the things which I have said, and ask of the Father, in my name, that ye may understand.”
-
-“Go ye unto your homes, and ponder” is the next step in taking to heart the words of prophets and Church leaders spoken in this sacred setting. Christ-centered homes are fortresses for the kingdom of God on earth in a day when, as prophesied, the devil “rage[s] in the hearts of the children of men, and stir[s] them up to anger against that which is good.”
-
-People have built fortresses throughout history to keep the enemy outside. Often those fortresses included a guard tower where watchmen—like prophets—warned of menacing forces and coming attacks.
-
-In early Utah pioneer times, my great-grandfather Thomas Rasband and his family were some of the first settlers to enter the Heber Valley in the beautiful Wasatch Mountains of Utah.
-
-In 1859, Thomas helped construct the Heber fort, built for their protection. It was a simple structure of cottonwood logs positioned one next to the other, forming the perimeter of the fort. Log cabins were built inside the fortress using that common wall. The structure provided both security and safety for those pioneer families as they put down roots and worshipped the Lord.
-
-Fort Heber (like Fort Clatsop pictured here) was a place of refuge for early pioneers.
-
-So it is with us. Our homes are fortresses against the evils of the world. In our homes we come unto Christ by learning to follow His commandments, by studying the scriptures and praying together, and by helping one another stay on the covenant path. The new emphasis on personal and family study in the home through the curriculum Come, Follow Me is designed “to deepen our conversion and help us become more like Jesus Christ.” In so doing we will become what Paul called “new creature[s]” with our hearts and souls in tune with God. We need that strength to face and deflect the assaults of the adversary.
-
-As we live with devotion born of faith in Jesus Christ, we will feel the peaceful presence of the Holy Ghost, who guides us to truth, inspires us to live worthy of the Lord’s blessings, and bears witness that God lives and loves us. All this within the fortress of our own homes. But remember, our homes are only as powerful as the spiritual strength of each one of us within the walls.
-
-President Russell M. Nelson has taught, “In coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.” As the Lord’s living prophet, seer, and revelator in this day, the watchman on the tower of our fortress, The Church of Jesus Christ of Latter-day Saints, he sees the advances of the enemy.
-
-Brothers and sisters, we are at war with Satan for the souls of men. The battle lines were drawn in our pre-earth life. Satan and a third of our Father in Heaven’s children turned away from His promises of exaltation. Since that time, the adversary’s minions have been fighting the faithful who choose the Father’s plan.
-
-Satan knows his days are numbered and that time is growing shorter. As crafty and cunning as he is, he will not win. However, his battle for each one of our souls rages on.
-
-For our safety, we must build a fortress of spirituality and protection for our very souls, a fortress that will not be penetrated by the evil one.
-
-Satan is a subtle snake, sneaking into our minds and hearts when we have let our guard down, faced a disappointment, or lost hope. He entices us with flattery, a promise of ease, comfort, or a temporary high when we are low. He justifies pride, unkindness, dishonesty, discontent, and immorality, and in time we can be “past feeling.” The Spirit can leave us. “And thus the devil cheateth their souls, and leadeth them away carefully down to hell.”
-
-In contrast, we often feel the Spirit so powerfully as we sing praises to God with words like these:
-
-A mighty fortress is our God,
-
-A tower of strength ne’er failing.
-
-A helper mighty is our God,
-
-O’er ills of life prevailing.
-
-When we build a fortress of spiritual strength, we can shun the advances of the adversary, turn our backs on him, and feel the peace of the Spirit. We can follow the example of our Lord and Savior, who, when tempted in the wilderness, said, “Get thee behind me, Satan.” We each have to learn by the experiences of life how to do that.
-
-Such righteous purpose is well described in the Book of Mormon when Captain Moroni prepared the Nephites to face attacks from a deceitful, bloodthirsty, power-hungry Amalickiah. Moroni constructed fortresses to protect the Nephites “that they might live unto the Lord their God, and that they might maintain that which was called by their enemies the cause of Christians.” Moroni “was firm in the faith of Christ” and was faithful “in keeping the commandments of God … and resisting iniquity.”
-
-When the Lamanites came to battle, they were astonished by the Nephites’ preparation, and they were defeated. The Nephites thanked “the Lord their God, because of his matchless power in delivering them from the hands of their enemies.” They had built fortresses for protection on the outside, and they had built faith in the Lord Jesus Christ on the inside—deep in their souls.
-
-What are some ways we can fortify ourselves in troubled times, that we may be “instruments in the hands of God to bring about this great work”? Let’s look to the scriptures.
-
-We are obedient. The Lord commanded Father Lehi to send his sons back to Jerusalem to “seek the records, and bring them down hither into the wilderness.” Lehi didn’t question; he didn’t wonder why or how. Nor did Nephi, who responded, “I will go and do the things which the Lord hath commanded.”
-
-Do we act with the willing obedience of Nephi? Or are we more inclined to question God’s commands as did Nephi’s brothers, whose lack of faith eventually turned them away from the Lord? Obedience, exercised with “holiness of heart,” is what the Lord asks of us.
-
-We trust the Lord, who said to Joshua as he prepared to lead the Israelites into the promised land, “Be strong and of … good courage; be not afraid, neither be thou dismayed: for the Lord thy God is with thee whithersoever thou goest.” Joshua trusted those words and counseled the people, “Sanctify yourselves: for to morrow the Lord will do wonders among you.” The Lord parted the waters of the Jordan, and the Israelites’ 40 years of wandering in the wilderness ended.
-
-We stand for the truth, as did the prophet Abinadi in the Book of Mormon. Arrested, brought before King Noah and his wicked priests, Abinadi taught the Ten Commandments and preached powerfully that Christ would “come down among the children of men, and … redeem his people.” He then, with faith deep within him, proclaimed, “O God, receive my soul,” and Abinadi “suffered death by fire.”
-
-We make and renew our covenants by partaking of the sacrament and by worshipping in the temple. The sacrament is the centerpiece of our Sunday worship, where we are receiving the promise to “always have his Spirit to be with [us].” With that sacred ordinance we commit to take upon us the name of Jesus Christ, to follow Him, and to shoulder our responsibilities in this divine work as He did. In the temple we can “lay aside the things of this world” and feel the Lord’s presence and His transcendent peace. We can focus on our ancestors, our families, and eternal life in the presence of the Father. No wonder President Nelson stated recently in Rome, “The good that will emanate from this temple is incalculably great.”
-
-We should have integrity in all that we do. We should develop discernment and discipline so that we do not have to continually determine what is right and what is wrong. We should take to heart the words of Peter, the early Church Apostle, who cautioned, “Be sober, be vigilant; because your adversary the devil, as a roaring lion, walketh about, seeking whom he may devour.”
-
-As we diligently strengthen our fortifications, we become like Jesus Christ, as His true disciples, with our very souls in His protection.
-
-Your testimony of Jesus Christ is your personal fortress, the security for your soul. When my great-grandfather and his fellow pioneers built the Heber fort, they put up one log at a time until the fort was “fitly framed together” and they were protected. So it is with testimony. One by one we gain a witness from the Holy Spirit as He speaks to our own spirit, teaching “truth in the inward parts.” When we live the gospel of Jesus Christ, when we draw upon the Savior’s Atonement and press forward with faith, not fear, we are fortified against the wiles of the adversary. Our testimonies connect us to the heavens, and we are blessed with “the truth of all things.” And, like pioneers protected by a fortress, we are safely encircled in the arms of the Savior’s love.
-
-The prophet Ether taught, “Wherefore, whoso believeth in God might with surety hope for a better world, yea, even a place at the right hand of God, which hope cometh of faith, maketh an anchor to the souls of men, which would make them sure and steadfast, always abounding in good works, being led to glorify God.”
-
-My dear brothers and sisters, I leave you with my blessing to go forth with confidence in the Lord and in His gospel. Put your arms around those who stumble and, with the strength of the Spirit within you, lead them lovingly back to the fortress of spirituality and protection. Seek “to be like Jesus” in all that you do; shun evil and temptations; repent, as we were admonished yesterday by our dear prophet; be honest in heart; be upright and pure; show compassion and charity; and love the Lord your God with the devotion of a true disciple.
-
-Our testimonies of the gospel of Jesus Christ, our homes, our families, and our membership in The Church of Jesus Christ of Latter-day Saints will be our personal fortresses of protection surrounding us and shielding us from the power of the evil one. Of this I bear my solemn witness in the name of our Lord and Savior, even Jesus Christ, amen.
-
-
----
-
-
-## How Can I Understand?
-
-**Speaker:** By Elder Ulisses Soares
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/04/11soares?lang=eng
-
-My dear brothers and sisters, what a great joy it is to be here together again in this general conference for The Church of Jesus Christ of Latter-day Saints under the direction of our beloved prophet, President Russell M. Nelson. I testify to you that we will have the privilege of hearing the voice of our Savior, Jesus Christ, through the teachings of those who pray, sing, and speak to the needs of our day in this conference.
-
-As recorded in the book of Acts, Philip the evangelist taught the gospel to a certain Ethiopian who was a eunuch in charge of all the treasures belonging to the queen of Ethiopia. While returning from worshipping in Jerusalem, he read the book of Isaiah. Compelled by the Spirit, Philip came closer to him and said, “Understandest thou what thou readest?
-
-“And [the eunuch] said, How can I, except some man should guide me? …
-
-“Then Philip opened his mouth, and began at the same scripture, and preached unto him Jesus.”
-
-The question asked by this Ethiopian man is a reminder of the divine mandate we all have to seek to learn and to teach one another the gospel of Jesus Christ. In fact, in the context of learning and teaching the gospel, we are sometimes like the Ethiopian—we need the help of a faithful and inspired teacher; and we are sometimes like Philip—we need to teach and strengthen others in their conversion.
-
-Our purpose as we seek to learn and to teach the gospel of Jesus Christ must be to increase faith in God and in His divine plan of happiness and in Jesus Christ and His atoning sacrifice and to achieve lasting conversion. Such increased faith and conversion will help us make and keep covenants with God, thus strengthening our desire to follow Jesus and producing a genuine spiritual transformation in us—in other words, transforming us into a new creature, as taught by the Apostle Paul in his epistle to the Corinthians. This transformation will bring us a more happy, productive, and healthy life and help us to maintain an eternal perspective. Isn’t this exactly what happened to the Ethiopian eunuch after he learned about the Savior and was converted to His gospel? The scripture says that “he went on his way rejoicing.”
-
-The commandment to learn the gospel and teach it to one another is not new; it has been constantly repeated from the beginning of human history. On one particular occasion, while Moses and his people were in the plains of Moab before entering the promised land, the Lord inspired him to admonish his people concerning their responsibility to learn the statutes and covenants they had received from the Lord and to teach them to their posterity, many of whom had not personally experienced the crossing of the Red Sea or the revelation given on Mount Sinai.
-
-Moses admonished his people:
-
-“Hearken, O Israel, unto the statutes and unto the judgments, which I teach you, for to do them, that ye may live, and go in and possess the land which the Lord God of your fathers giveth you. …
-
-“… Teach them thy sons, and thy sons’ sons.”
-
-Then Moses concluded, saying, “Thou shalt keep therefore his statutes, and his commandments, which I command thee this day, that it may go well with thee, and with thy children after thee, and that thou mayest prolong thy days upon the earth, which the Lord thy God giveth thee, for ever.”
-
-God’s prophets have consistently instructed that we need to raise our families “in the nurture and admonition of the Lord” and “in light and truth.” President Nelson recently said, “In this day of rampant immorality and addictive pornography, parents have a sacred responsibility to teach their children the importance of God [and Jesus Christ] in their lives.”
-
-Brothers and sisters, the warning of our beloved prophet is a further reminder of our individual responsibility to seek to learn and to teach our families that there is a Father in Heaven who loves us and who has developed a divine plan of happiness for His children; that Jesus Christ, His Son, is the Redeemer of the world; and that salvation comes from faith in His name. Our lives need to be rooted upon the rock of our Redeemer, Jesus Christ, which might help us individually and as families to have our own spiritual impressions engraved in our hearts, helping us to endure in our faith.
-
-You may recall that two disciples of John the Baptist followed Jesus Christ after hearing John witness that Jesus was the Lamb of God, the Messiah. These good men accepted Jesus’s invitation to “come and see” and abode with Him that day. They came to know that Jesus was the Messiah, the Son of God, and followed Him for the rest of their lives.
-
-Likewise, when we accept the Savior’s invitation to “come and see,” we need to abide in Him, immersing ourselves in the scriptures, rejoicing in them, learning His doctrine, and striving to live the way He lived. Only then will we come to know Him, Jesus Christ, and recognize His voice, knowing that as we come unto Him and believe in Him, we shall never hunger nor thirst. We will be able to discern the truth at all times, as occurred to those two disciples who abode with Jesus that day.
-
-Brothers and sisters, that doesn’t happen by chance. Attuning ourselves to the highest influences of godliness is not a simple matter; it requires calling upon God and learning how to bring the gospel of Jesus Christ to the center of our lives. If we do so, I promise that the influence of the Holy Ghost will bring truth to our heart and mind and will bear witness of it, teaching all things.
-
-The Ethiopian’s question, “How can I [understand], except some man should guide me?” also has a special meaning in the context of our individual responsibility to put the principles of the gospel we have learned into practice in our lives. In the Ethiopian’s case, for example, he acted upon the truth he learned from Philip. He asked to be baptized. He came to know that Jesus Christ was the Son of God.
-
-Brothers and sisters, our actions must reflect what we learn and teach. We need to show our beliefs through the way we live. The best teacher is a good role model. Teaching something that we truly live can make a difference in the hearts of those we teach. If we desire people, whether that be family or not, to joyfully treasure up the scriptures and the teachings of living apostles and prophets of our day, they need to see our souls delighting in them. Likewise, if we want them to know that President Russell M. Nelson is the prophet, seer, and revelator in our day, they need to see us raise our hands to sustain him and realize that we follow his inspired teachings. As the well-known American saying goes, “Actions speak louder than words.”
-
-Maybe some of you are at this exact moment asking yourselves, “Elder Soares, I have been doing all these things and have been following this model both individually and as a family, but unfortunately, some of my friends or dear ones have distanced themselves from the Lord. What should I do?” For those of you who are right now experiencing these feelings of sadness, agony, and maybe regret, please know that they are not totally lost because the Lord knows where they are and is watching over them. Remember, they are His children too!
-
-It is hard to understand all the reasons why some people take another path. The best we can do in these circumstances is just to love and embrace them, pray for their well-being, and seek for the Lord’s help to know what to do and say. Sincerely rejoice with them in their successes; be their friends and look for the good in them. We should never give up on them but preserve our relationships. Never reject or misjudge them. Just love them! The parable of the prodigal son teaches us that when children come to themselves, they often desire to come home. If that happens with your dear ones, fill your hearts with compassion, run to them, fall on their neck, and kiss them, like the father of the prodigal son did.
-
-Ultimately, keep living a worthy life, be a good example to them of what you believe, and draw closer to our Savior, Jesus Christ. He knows and understands our deep sorrows and pains, and He will bless your efforts and dedication to your dear ones if not in this life, in the next life. Remember, brothers and sisters, always that hope is an important part of the gospel plan.
-
-Throughout many years of service in the Church, I have seen faithful members who have consistently applied these principles in their lives. This is the case of a single mother whom I will refer to as “Mary.” Sadly, Mary went through a tragic divorce. At that point in time, Mary recognized that her most critical decisions relating to her family would be spiritual. Would praying, scripture study, fasting, and church and temple attendance continue to be important to her?
-
-Mary had always been faithful, and at that critical juncture, she decided to cling to what she already knew to be true. She found strength in “The Family: A Proclamation to the World,” which, among many wonderful principles, teaches that “parents have a sacred duty to rear their children in love and righteousness” and to teach them to always observe God’s commandments. She continually searched for answers from the Lord and shared them with her four children in every family setting. They frequently discussed the gospel and shared their experiences and testimonies with one another.
-
-Despite the sorrows they went through, her children developed a love for Christ’s gospel and a desire to serve and share it with others. Three of them faithfully served full-time missions, and the youngest is now serving in South America. Her oldest daughter, whom I know pretty well, who is now married and strong in her faith, shared, “I never felt like my mom raised us alone because the Lord was always in our home. As she bore her witness of Him to us, we each began to turn to Him with our own questions. I am so grateful she brought the gospel to life.”
-
-Brothers and sisters, this good mother was able to make her home a center of spiritual learning. Similar to the Ethiopian’s question, Mary asked herself several times, “How can my children learn except a mother should guide them?”
-
-My dear companions in the gospel, I testify to you that when we earnestly, heartily, firmly, and sincerely seek to learn the gospel of Jesus Christ and teach it to one another with real purpose and under the influence of the Spirit, these teachings may transform hearts and inspire a desire to live according to the truths of God.
-
-I testify that Jesus Christ is the Savior of the world. He is the Redeemer, and He lives. I know He directs His Church through His prophets, seers, and revelators. I also testify to you that God lives, that He loves us. He wants us back in His presence—all of us. He listens to our prayers. I bear my testimony of these truths in the name of Jesus Christ, amen.
-
-
----
-
-
-## Your Priesthood Playbook
-
-**Speaker:** By Elder Gary E. Stevenson
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/04/31stevenson?lang=eng
-
-Last December, the First Presidency issued a statement announcing that 11-year-old boys would “begin attending … Aaronic Priesthood quorums … at the beginning of January in the year they turn 12.”
-
-As a result, during the first part of this year, there were quite a few startled 11-year-olds who had assumed they would be staying in Primary until their next birthday but were now passing the sacrament on Sundays as the Church’s newest ordained deacons.
-
-I wonder who was surprised most by the change—the deacons or their parents. Of these almost 80,000 new deacons, many are with us tonight in this great Conference Center or are participating through technology. Welcome to the great brotherhood of the priesthood!
-
-This change makes this meeting a historic one—it is likely the largest group of Aaronic Priesthood holders ever to attend a general priesthood session of general conference. In light of this special occasion, I direct my remarks especially to the young men of the Aaronic Priesthood.
-
-As students, many of you are also developing your talents, interests, and hobbies through extracurricular activities at school or in private lessons, teams, and groups outside of school, including sports.
-
-Having enjoyed sports throughout my life, I have always admired those who develop their athletic abilities to the point where they perform at high levels. For someone to be really good at anything, it takes, in addition to natural talent, great discipline, sacrifice, and countless hours of training and practice. Such athletes often hear the sometimes-harsh criticisms of coaches and willingly put aside what they want now for something greater in the future.
-
-We know Church members and priesthood holders who have experienced success at the highest levels of professional athletics. There are many good examples, but I can list only a few here for the sake of time. You might recognize some of these athletes: in baseball, Jeremy Guthrie and Bryce Harper; in basketball, Jabari Parker and Jimmer Fredette; in soccer, Ricardo Rojas; in rugby league, William Hopoate; and in football, Taysom Hill and Daniel Sorensen. Each has made significant contributions to his sport.
-
-While they are extremely successful in their sports, these athletes would be the first to admit they are not perfect athletes or perfect human beings. They work hard to be the best in their sport—and to live the gospel. They get up if they stumble, and they strive to endure to the end.
-
-In team sports, plays are developed for certain game situations and compiled into a playbook. Athletes learn their specific assignment for each play. Successful players study the playbook so thoroughly that when a play is called, they know exactly, almost instinctively, where to go and what to do.
-
-Photograph by Dave Kaup/REUTERS/stock.adobe.com
-
-In a similar way, we holders of the priesthood also have a team (a quorum) and a playbook (the holy scriptures and words of modern prophets).
-
-Do you strengthen your teammates?
-
-How well have you studied your playbook?
-
-Do you fully understand your assignment?
-
-To take the analogy even further, great coaches know the strengths and weaknesses of their team as well as those of the opposition. They create a game plan that will give them the best chance for victory. What about you?
-
-You know what temptations you are most vulnerable to, and you can predict how the adversary will try to derail and dishearten you. Have you created a personal game plan and playbook so that you will know how to respond when faced with opposition?
-
-As you confront various moral temptations—whether in the company of others or when you are alone staring at a screen—you know your game plan. If a friend suggests you drink alcohol or try drugs, you know the play. You have practiced and know how to react in advance.
-
-With a game plan, a playbook, and a firm commitment to execute your role, you will find that temptation has less control over you. You will have already made the decision of how you will react and what you will do. You won’t need to decide every time you are confronted with temptation.
-
-One of the Twelve recently shared a story that illustrates this principle. As a priest in high school, he was hanging out with his friends. After they got something to eat, they were driving around when someone suggested they should go to a certain movie. The problem was he knew it was a movie he shouldn’t see. Although he immediately felt pressure and anxiety about the situation, he had planned for this. This was a page straight out of his priesthood playbook.
-
-Taking a deep breath and summoning his courage, he announced, “I’m not interested in that movie. Just drop me off at my house,” which they did. A simple play leading to a victory! Years later, one of the friends with him that night described how this example proved to be a great strength for him to courageously face similar circumstances in his own life.
-
-I asked a few of the Brethren to recommend plays you might include in your playbook. Here are some of their inspired suggestions:
-
-Pray every day for greater light and a testimony of Jesus Christ.
-
-Listen carefully to the teachings of your parents, your bishop, and your Young Men and quorum leaders.
-
-Avoid pornography and immoral social media content.
-
-Remember the promises you have made to God, and work to keep them.
-
-Study scripture stories of great prophets, and emulate their good qualities.
-
-Bless Heavenly Father’s children through service.
-
-Seek good friends to help you become the person you want to be.
-
-Become an expert in the FamilySearch app, and research your own family history.
-
-Plan places of retreat where you can escape evil influences.
-
-Love and help strengthen other members of your priesthood quorum.
-
-I also communicated with the athletes whose pictures we viewed earlier. I found it interesting that they do not identify themselves only by what they do, as professional athletes, but also by who they are, as sons of a loving Heavenly Father and holders of the priesthood of God.
-
-Now let’s listen to their thoughts:
-
-Jimmer Fredette, here as a deacon learning to tie his tie, says: “I have learned to lean heavily on my knowledge and faith of the truthfulness of the gospel. This has guided me to be … a worthy priesthood holder and above all—a positive example.”
-
-Bryce Harper, here as a husband, writes: “I thought fame, fortune, and an MVP award would make me happy. Something was missing. So, I … prepared and [entered] the temple. I am now on a path to [return] to my Heavenly Father and have an eternal family—which is the greatest joy in the world!”
-
-Daniel Sorensen, here as a missionary, says: “A good playbook is a plan that uses the talents and strengths of each team member. … As I study and practice the teachings of the gospel of Jesus Christ, I can know how to use my strengths to serve in the priesthood.”
-
-Jeremy Guthrie, here currently serving as mission president, shared: “As a 12-year-old deacon … [I felt] the Spirit testify to me [that] ‘this life is the time … to prepare to meet God.’ The game plan is faith in God unto action [and] repentance through the Savior. … The playbook is found in the holy scriptures and through living prophets.”
-
-Jabari Parker, here at his ordination to the office of elder, says: “I couldn’t imagine the person that I would’ve turned out to be if I hadn’t made the decision to be baptized. … I’m so grateful that I have God in my life to guide me every day.”
-
-Ricardo Rojas, here currently serving as branch president, said: “Through [God’s] priesthood [we] can help in His work. We are called to ‘be strong and of a good courage’ in defending the truth.” This has helped him succeed both on the pitch and as a priesthood holder.
-
-Taysom Hill, here as a missionary, feels the gospel of Jesus Christ has served as a playbook for him in his life. He shared, “Believing in [God’s] plan and doing my best to fulfill my role in it has given me an overwhelming sense of peace and happiness in life, knowing God is pleased with my efforts.”
-
-William Hopoate, here at his son’s baby blessing with four generations, says that the gospel helps him “identify the opposition’s strategies and provides the spiritual efficacy to withstand fiery darts and better serve others.”
-
-What about you? Do you recognize your higher and holier identity as a son of God, a bearer of His holy priesthood? With this eternal identity in mind, create your game plan and priesthood playbook that will guide you during times of temptation and adversity. Consider both offensive and defensive strategies.
-
-Offensive strategies help strengthen testimonies and increase resolve to stay on the strait and narrow path. Examples include regular prayer, scripture study, church and temple attendance, paying tithing, and following the counsel found in the For the Strength of Youth booklet.
-
-Defensive strategies include planning ahead how you will face temptation. When tempted to compromise your personal standards, you know beforehand what you will do.
-
-You need a playbook for that.
-
-Don’t feel like praying today? Time to execute the play you already game-planned.
-
-Do you feel your testimony waning? You have a play for that. You know what to do.
-
-You are bearers of the holy priesthood of God. Your commitment to hold firmly the iron rod will transform you into the eternal being who you were created to become.
-
-God knows and loves you. He will bless you and guide your steps.
-
-You might be thinking that you are no one special, that you are not all-star material. But that is not true. Don’t you know that God has proclaimed, “The weak things of the world shall come forth and break down the mighty and strong ones”?
-
-So, do you feel weak? insignificant? Congratulations, you just made the lineup!
-
-Do you feel unimportant? inferior? You may be just who God needs.
-
-What greater example is there than David stepping onto the battlefield against a frightening opponent, Goliath? Relying on the Lord, with a plan, David saved not only himself but the army of Israel! Know that the Lord will be with you as you summon your courage to be on His side. “If God be for us, who can be against us?”
-
-He can open doors and help us find strengths and abilities we never knew we had.
-
-Listen to your trusted coaches, such as your parents, bishop, and Young Men leaders. Learn the playbook. Read the scriptures. Study the words of modern-day prophets. Create your own game plan of how you will prove yourself as a disciple of Christ.
-
-Know in advance the plays you will employ to strengthen your spirit and avoid the snares of the adversary.
-
-Do this and God will surely utilize you.
-
-Now, there may be some who detach themselves from the gospel and wander away. Others may sit in the stands and watch the game from afar. Some may choose to stay on the bench, even though the coach has tried to send them in. I invite you to rescue, support, and love them as a fellow team member!
-
-Others want to get in the game—and do. What matters most is not how talented they are but their willingness to put themselves on the field. They do not wait to have their number called, because they know the scripture that says, “If ye have desires to serve God ye are called to the work.”
-
-You can put yourself in the lineup.
-
-You do this as you study and execute your priesthood playbook.
-
-Along the way you will most likely stumble and fall—perhaps many, many times. You are not perfect; falling is part of the qualifying process that allows you to refine your character and serve in a more compassionate way. The Savior and His infinite Atonement provide the way to overcome our mistakes through sincere repentance.
-
-Great athletes spend hundreds of hours perfecting one small aspect of their game. As a priesthood holder, you need the same mind-set. If you fail, repent and learn from it. Practice so you will do better the next time. Ultimately, it’s up to you. Will you learn the playbook?
-
-I urge you: Trust in the Lord. Put on the whole armor of God, and get in the game.
-
-There aren’t many who play professional sports at the highest levels, but when it comes to discipleship, there are many who choose to follow Christ.
-
-In fact, that is your mission in this life—to learn the ways of the Lord, enter the path of discipleship, and strive to live according to God’s plan. God will uphold and bless you as you turn to Him. You can do this because you are an all-star in His eyes.
-
-I pray that you will make the commitment to live worthy of the holy priesthood that you bear and strive to execute your sacred role every day. I bless you with the ability and desire to do so. I add my testimony of the power of the priesthood that you hold, of living prophets, and of Jesus Christ and His role as our Savior and Redeemer. In the name of Jesus Christ, amen.
-
-
----
-
-
-## A Home Where the Spirit of the Lord Dwells
-
-**Speaker:** By President Henry B. Eyring
-
-**Calling:** Second Counselor in the First Presidency
-
-**Year:** 2019
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/04/16eyring?lang=eng
-
-My dear brothers and sisters, I am grateful to have been invited to speak to you in this 189th Annual General Conference of The Church of Jesus Christ of Latter-day Saints. On this date in 1830, Joseph Smith organized the Church under the direction of the Lord. It was done in the Whitmer family home near Fayette, New York. There were six members and about 50 other interested people there that day.
-
-Although I don’t know what the Prophet Joseph said or how he looked when he stood before that little group, I know what those people with faith in Jesus Christ felt. They felt the Holy Ghost, and they felt that they were in a holy place. They surely felt that they were united as one.
-
-That miraculous feeling is what we all want in our homes. It is a feeling that comes from being, as Paul described, “spiritually minded.”
-
-My purpose today is to teach what I know of how we can qualify for that feeling more often and invite it to last longer in our families. As you know from experience, that is not easy to do. Contention, pride, and sin have to be kept at bay. The pure love of Christ must come into the hearts of those in our family.
-
-Adam and Eve, Lehi and Sariah, and other parents we know from scripture found that to be a hard challenge. Yet there are encouraging examples of sustained felicity in families and homes to reassure us. And those examples let us see the way it can happen for us and our families. You remember the account from 4 Nephi:
-
-“And it came to pass that there was no contention in the land, because of the love of God which did dwell in the hearts of the people.
-
-“And there were no envyings, nor strifes, nor tumults, nor whoredoms, nor lyings, nor murders, nor any manner of lasciviousness; and surely there could not be a happier people among all the people who had been created by the hand of God.
-
-“There were no robbers, nor murderers, neither were there Lamanites, nor any manner of -ites; but they were in one, the children of Christ, and heirs to the kingdom of God.
-
-“And how blessed were they! For the Lord did bless them in all their doings; yea, even they were blessed and prospered until an hundred and ten years had passed away; and the first generation from Christ had passed away, and there was no contention in all the land.”
-
-As you know, that happy time did not endure forever. The account in 4 Nephi describes the eventual symptoms of spiritual decline among a group of good people. It is a pattern that has appeared over the ages in entire peoples, in congregations, and, most sadly, in families. By studying that pattern, we can see how we might protect and even increase the feelings of love in our family.
-
-Here is the pattern of decline that appeared after 200 years of living in the perfect peace the gospel brings:
-
-Pride crept in.
-
-The people stopped sharing what they had with each other.
-
-They began to see themselves in classes above or below each other.
-
-They began to diminish in their faith in Jesus Christ.
-
-They began to hate.
-
-They began to commit all kinds of sin.
-
-Wise parents will be alert enough to notice those symptoms when they appear among their family members. They will, of course, be concerned. But they will know that the underlying cause is the influence of Satan trying to lead good people down a path to sin and thus to lose the influence of the Holy Ghost. So the wise parent will see that opportunity lies in leading each child, and themselves, to accept more fully the Lord’s invitation to come unto Him.
-
-You could have limited success by calling a child to repent, for instance, of pride. You might try persuading children to share what they have more generously. You could ask them to stop feeling they are better than someone else in the family. But then you come to the symptom I described earlier as “They began to diminish in their faith in Jesus Christ.”
-
-There is the key to leading your family to rise to that spiritual place you want for them—and for you to be there with them. As you help them grow in faith that Jesus Christ is their loving Redeemer, they will feel a desire to repent. As they do, humility will begin to replace pride. As they begin to feel what the Lord has given them, they will want to share more generously. Rivalry for prominence or recognition will diminish. Hate will be driven out by love. And finally, like it did for the people converted by King Benjamin, the desire to do good will fortify them against temptation to sin. King Benjamin’s people testified that they had “no more disposition to do evil.”
-
-So building faith in Jesus Christ is the beginning of reversing spiritual decline in your family and in your home. That faith is more likely to bring repentance than your preaching against each symptom of spiritual decline.
-
-You will best lead by example. Family members and others must see you growing in your own faith in Jesus Christ and in His gospel. You have recently been provided great help. Parents in the Church have been blessed with an inspired curriculum for families and individuals. As you use it, you will build your faith and the faith of your children in the Lord Jesus Christ.
-
-Your faith in the Savior has grown as you followed President Russell M. Nelson’s suggestion to reread the Book of Mormon. You marked passages and words that referred to the Savior. Your faith in Jesus Christ grew. But like a new plant, such faith in Jesus Christ will wither unless you find continued resolve to ponder and pray to increase it.
-
-Your example of growing in faith may not be followed by all members of your family now. But take heart from the experience of Alma the Younger. In his painful need for repentance and forgiveness, he remembered his father’s faith in Jesus Christ. Your children may remember your faith in the Savior at a moment when they desperately need repentance. Alma said of such a moment:
-
-“And it came to pass that as I was thus racked with torment, while I was harrowed up by the memory of my many sins, behold, I remembered also to have heard my father prophesy unto the people concerning the coming of one Jesus Christ, a Son of God, to atone for the sins of the world.
-
-“Now, as my mind caught hold upon this thought, I cried within my heart: O Jesus, thou Son of God, have mercy on me, who am in the gall of bitterness, and am encircled about by the everlasting chains of death.
-
-“And now, behold, when I thought this, I could remember my pains no more; yea, I was harrowed up by the memory of my sins no more.”
-
-In addition to your example of growing in faith, your praying as a family can play a crucial part in making home a sacred place. One person is usually chosen as voice to pray for the family. When the prayer is clearly to God in behalf of the people kneeling and listening, faith grows in all of them. They can feel expressions of love for Heavenly Father and for the Savior. And when the person who prays mentions those who are kneeling in that circle who are in need, all can feel love for them and for each member of the family.
-
-Even when family members are not living in the home, prayer can build bonds of love. Prayer in the family can reach across the world. More than once I have learned that a family member far away was praying at the same moment for the same thing as I was. For me, the old saying “The family that prays together stays together” could be expanded to “The family that prays together is together, even when they are far apart.”
-
-Because none of us is perfect and feelings are easily hurt, families can become sacred sanctuaries only as we repent early and sincerely. Parents can set an example. Harsh words or unkind thoughts can be repented of quickly and sincerely. A simple “I am sorry” can heal wounds and invite both forgiveness and love.
-
-The Prophet Joseph Smith was a model for us as he dealt with vicious attacks, with traitors, and even with disagreements in his family. He forgave quickly, even though he knew the attacker might attack again. He asked for forgiveness, and he gave it freely.
-
-The sons of Mosiah were determined to offer the gospel to everyone. This desire came from their personal experience with repentance. They could not bear the thought of any person suffering the effects of sin as they had. So they faced years of rejection, hardship, and danger to offer the gospel of Jesus Christ to their enemies. In the process, they found joy in the many who repented and experienced the joy of forgiveness through the Atonement of Jesus Christ.
-
-Our family members will grow in their desire to share the gospel as they feel the joy of forgiveness. That can come even as they renew covenants when they partake of the sacrament. The missionary spirit will grow in our homes as children and parents feel the joy of forgiveness in the sacrament service. By their example of reverence, both parents and children can help each other feel that joy. That joy can go far in turning our homes into missionary training centers. All might not serve missions, but all will feel the desire to share the gospel, which has brought them to feel forgiveness and peace. And whether currently serving full-time or not, all can feel joy in offering the gospel to others.
-
-For both parents and children, the temple is the best opportunity to gain a feeling for and a love of heavenly places. That is especially true when the children are young. Children are born with the Light of Christ. Even a baby can feel that a temple is sacred. Because parents love their little children, the temple represents for them the hope that they can have their children to love in their eternal family—forever.
-
-Some of you have photographs of temples in your homes. As temples are being added across the earth, it is possible for many parents to visit temple grounds with their families. A few may even be able to attend open houses when temples are built. Parents can ask children how they felt to be near or in a temple.
-
-Every parent can bear testimony of what a temple has meant to him or her. President Ezra Taft Benson, who loved temples, spoke often of watching his mother carefully press her temple clothing. He spoke of his memory as a boy watching his family as they left his home to attend the temple.
-
-When he was the President of the Church, he attended the temple the same day each week. He always did the temple work for an ancestor. It came largely from the example of his parents.
-
-You will find some of your greatest joys in your efforts to make your home a place of faith in the Lord Jesus Christ and a place that is permeated with love, the pure love of Christ. The Restoration of the gospel started with a humble question pondered in a humble home, and it can continue in each of our homes as we continue to establish and practice gospel principles there. This has been my hope and my deepest desire since I was a little boy. You have all had glimpses of such homes. Many of you have, with the Lord’s help, created them.
-
-Some have tried with full heart for that blessing, yet it has not been granted. My promise to you is one that a member of the Quorum of the Twelve Apostles once made to me. I had said to him that because of choices some in our extended family had made, I doubted that we could be together in the world to come. He said, as well as I can remember, “You are worrying about the wrong problem. You just live worthy of the celestial kingdom, and the family arrangements will be more wonderful than you can imagine.”
-
-I believe that he would extend that happy hope to any of us in mortality who have done all we can to qualify ourselves and our family members for eternal life. I know that Heavenly Father’s plan is a plan of happiness. I testify that His plan makes it possible for each of us who has done the best we can to be sealed in a family forever.
-
-I know that the priesthood keys restored to Joseph Smith were passed on in an unbroken line to President Russell M. Nelson. Those keys make possible the sealing of families today. I know that Heavenly Father loves us, His spirit children, with a perfect love. I know that because of the Atonement of Jesus Christ, we can repent, be cleansed, and become worthy to live in loving families forever with our Heavenly Father and with His Beloved Son, Jesus Christ. I so testify in the name of Jesus Christ, amen.
-
-
----
-
-
-## Missionary Work: Sharing What Is in Your Heart
-
-**Speaker:** By Elder Dieter F. Uchtdorf
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/04/14uchtdorf?lang=eng
-
-Last month the Twelve were invited by our dear prophet, President Russell M. Nelson, to travel with him to the dedication of the Rome Italy Temple. While traveling, I thought about the Apostle Paul and his journeys. In his day, to get from Jerusalem to Rome, it would have taken about 40 days. Today, in one of my favorite airplanes, it takes less than 3 hours.
-
-Bible scholars believe that Paul was in Rome when he wrote several of his letters, which were key in strengthening Church members then as well as today.
-
-Paul and the other members of the ancient Church, the Early-day Saints, were intimately familiar with sacrifice. Many were severely persecuted, even unto death.
-
-In the last 200 years, the members of the restored Church of Jesus Christ, the Latter-day Saints, have also experienced persecution in many forms. But in spite of that persecution (and sometimes because of it), The Church of Jesus Christ of Latter-day Saints has continued to grow and is now found all across the globe.
-
-However, before we bake a cake, throw confetti, and congratulate ourselves on this remarkable success, we would do well to put that growth into perspective.
-
-There are roughly seven and a half billion people in the world, compared to some 16 million members of The Church of Jesus Christ of Latter-day Saints—a very small flock indeed.
-
-Meanwhile, the numbers of Christian believers in some parts of the world are shrinking.
-
-Even in the Lord’s restored Church—while overall membership continues to grow—there are too many who do not claim the blessings of regular Church participation.
-
-In other words, wherever you are on this earth, there are plenty of opportunities to share the good news of the gospel of Jesus Christ with people you meet, study with, and live with or work and socialize with.
-
-During this past year, I have had the exciting opportunity to be deeply involved with the worldwide missionary activities of the Church. I have often pondered and prayed about the Savior’s great commission to His disciples—us, His children—to “go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost.”
-
-I wrestled with the question “How can we, as members and disciples of Christ, best fulfill that great commission in our daily lives?”
-
-Today I invite you to ponder that same question in your heart and mind.
-
-Church leaders have emphasized the clarion call “Every member a missionary!” for decades.
-
-Members of the Church of Jesus Christ—both in past times as well as in ours—have enthusiastically and joyfully shared the gospel with friends and acquaintances. Their hearts are aflame with the testimony of Jesus Christ, and they sincerely want others to experience the same joy they have found in the Savior’s gospel.
-
-Some members of the Church seem to have a gift for this. They love being ambassadors of the gospel. They boldly and gladly serve and lead the work as member missionaries.
-
-However, others of us are more hesitant. When missionary work is discussed in Church meetings, heads are slowly lowered until submerged behind the pew, eyes focused on the scriptures or closed in deep meditation to avoid eye contact with other members.
-
-Why is this? Maybe we feel guilty for not doing more to share the gospel. Perhaps we feel uncertain about how to do it. Or we might feel timid about going outside our comfort zone.
-
-I understand this.
-
-But remember, the Lord has never required expert, flawless missionary efforts. Instead, “the Lord requireth the heart and a willing mind.”
-
-If you are already happily doing missionary work, please continue, and stand as an example to others. The Lord will bless you.
-
-If, however, you feel that you have been dragging your feet when it comes to sharing the gospel message, may I suggest five guilt-free things anyone can do to participate in the Savior’s great commission to help gather Israel?
-
-First, draw close to God. The first great commandment is to love God. It is a primary reason why we are on this earth. Ask yourself, “Do I really believe in Heavenly Father?”
-
-“Do I love and trust Him?”
-
-The closer you draw to our Heavenly Father, the more His light and joy will shine from within you. Others will notice that there is something unique and special about you. And they will ask about it.
-
-Second, fill your heart with love for others. This is the second great commandment. Try to truly see everyone around you as a child of God. Minister to them—regardless of whether their names appear on your ministering sister or brother list.
-
-Laugh with them. Rejoice with them. Weep with them. Respect them. Heal, lift, and strengthen them.
-
-Strive to emulate the love of Christ and have compassion for others—even to those who are unkind to you, who mock you and wish to cause you harm. Love them and treat them as fellow children of Heavenly Father.
-
-Third, strive to walk the path of discipleship. As your love for God and His children deepens, so does your commitment to follow Jesus Christ.
-
-You learn about His way by feasting upon His word and heeding and applying the teachings of modern prophets and apostles. You grow in confidence and courage to follow His way as you communicate with Heavenly Father with a teachable, humble heart.
-
-Walking the path of discipleship takes practice—each day, little by little, “grace for grace,” “line upon line.” Sometimes two steps forward and one step back.
-
-The important thing is that you don’t give up; keep trying to get it right. You will eventually become better, happier, and more authentic. Talking with others about your faith will become normal and natural. In fact, the gospel will be such an essential, precious part of your lives that it would feel unnatural not to talk about it with others. That may not happen immediately—it is a lifelong effort. But it will happen.
-
-Fourth, share what is in your heart. I am not asking that you stand on a street corner with a megaphone and shout out Book of Mormon verses. What I am asking is that you always look for opportunities to bring up your faith in natural and normal ways with people—both in person as well as online. I am asking that you “stand as witnesses” of the power of the gospel at all times—and when necessary, use words.
-
-Because “the gospel of Christ … is the power of God unto salvation,” you can be confident, courageous, and humble as you share it. Confidence, courage, and humility may seem like contradictory attributes, but they are not. They reflect the Savior’s invitation not to hide gospel values and principles under a bushel but to let your light shine, that your good works may glorify your Father in Heaven.
-
-There are many normal and natural ways to do this, from daily acts of kindness to personal testimonials on YouTube, Facebook, Instagram, or Twitter to simple conversations with people you meet. This year we are learning from the New Testament in our homes and in Sunday School. What a marvelous opportunity to invite friends and neighbors to church and your homes to learn about the Savior with you. Share with them the Gospel Library app, where they can find Come, Follow Me. If you know young people and their families, give them the For the Strength of Youth booklet and invite them to come and see how our young people strive to live by those principles.
-
-If someone asks about your weekend, don’t hesitate to talk about what you experienced at church. Tell about the little children who stood in front of a congregation and sang with eagerness how they are trying to be like Jesus. Talk about the group of youth who spent time helping the elderly in rest homes to compile personal histories. Talk about the recent change in our Sunday meeting schedule and how it blesses your family. Or explain why we emphasize that this is the Church of Jesus Christ and that we are Latter-day Saints, just as the members of the ancient Church were also called Saints.
-
-In whatever ways seem natural and normal to you, share with people why Jesus Christ and His Church are important to you. Invite them to “come and see.” Then encourage them to come and help. There are numerous opportunities for people to help in our Church.
-
-Pray not only for the missionaries to find the elect. Pray daily with all your heart that you will find those who will come and see, come and help, and come and stay. Keep the full-time missionaries in the loop. They are like angels, ready to help!
-
-As you share the good news, the gospel of Jesus Christ, do so with love and patience. If we interact with people with the sole expectation that they soon will don a white jumpsuit and ask for directions to the nearest baptismal font, we’re doing it wrong.
-
-Some who come and see will, perhaps, never join the Church; some will at a later time. That is their choice. But that doesn’t change our love for them. And it doesn’t change our enthusiastic efforts to continue inviting individuals and families to come and see, come and help, and come and stay.
-
-Fifth, trust the Lord to work His miracles. Understand that it’s not your job to convert people. That is the role of the Holy Ghost. Your role is to share what is in your heart and live consistent with your beliefs.
-
-So, don’t be discouraged if someone does not accept the gospel message immediately. It is not a personal failure.
-
-That is between the individual and Heavenly Father.
-
-Yours is to love God and love your neighbors, His children.
-
-Believe, love, do.
-
-Follow this path, and God will work miracles through you to bless His precious children.
-
-These five suggestions will help you to do what disciples of Jesus Christ have done since ancient times. His gospel and His Church are an important part of your life and of who you are and what you do. Therefore, invite others to come and see and come and help, and God will do His saving work, and they will come and stay.
-
-“But,” you might ask, “what if I do all this and people react poorly? What if they are critical about the Church? What if they unfriend me?”
-
-Yes, that may happen. Since ancient times, disciples of Jesus Christ have often been persecuted. The Apostle Peter said, “Rejoice … as you share Christ’s sufferings.” The early Saints rejoiced “that they were counted worthy to suffer shame for his name.”
-
-Remember, the Lord works in mysterious ways. It may be that by your Christlike response to rejection a hardened heart could be softened.
-
-As an Apostle of the Lord Jesus Christ, I bless you with the confidence to be a living testimonial of gospel values, with the courage to always be recognized as a member of The Church of Jesus Christ of Latter-day Saints, with the humility to assist in His work as an expression of your love for Heavenly Father and His children.
-
-My dear friends, you will rejoice in knowing that you are a significant part in the long-foretold gathering of Israel, preparing for Christ’s coming in “power and great glory; with all the holy angels.”
-
-Heavenly Father knows you. The Lord loves you. God will bless you. This work is ordained of Him. You can do this. We can all do this together.
-
-I so testify in the name of Jesus Christ, amen.
-
-
----
-
-
-## The Eye of Faith
-
-**Speaker:** By Elder Neil L. Andersen
-
-**Calling:** Of the Quorum of the Twelve Apostles
-
-**Year:** 2019
-
-**Season:** April
-
-**URL:** https://www.churchofjesuschrist.org/study/general-conference/2019/04/25andersen?lang=eng
-
-Shortly before His Crucifixion, Jesus was taken before Pilate in the judgment hall. “Art thou the King of the Jews?” Pilate condescendingly asked. Jesus responded: “My kingdom is not of this world. … I [came] into the world, that I should bear witness [of] the truth. Every one that is of the truth heareth my voice.”
-
-Pilate cynically asked, “What is truth?”
-
-In today’s world, the question “What is truth?” can be painfully complex to the secular mind.
-
-A Google search for “What is truth?” brings more than a million responses. We have more available information on our cell phones than in all the books of a brick and mortar library. We live with information and opinion overload. Enticing and alluring voices pursue us at every turn.
-
-Caught in today’s confusion, it is no wonder that so many consign themselves to the words spoken 2,500 years ago by Protagoras to the young Socrates: “What is true for you,” he said, “is true for you, and what is true for me, is true for me.”
-
-Blessed with the restored gospel of Jesus Christ, we humbly declare that there are some things that are completely and absolutely true. These eternal truths are the same for every son and daughter of God.
-
-The scriptures teach, “Truth is knowledge of things as they are, and as they were, and as they are to come.” Truth looks backward and forward, expanding the perspective of our small point in time.
-
-Jesus said, “I am the way, the truth, and the life.” Truth shows us the way to eternal life, and it comes only through our Savior, Jesus Christ. There is no other way.
-
-Jesus Christ teaches us how to live, and, through His Atonement and Resurrection, He offers us forgiveness from our sins and immortality beyond the veil. This is absolutely true.
-
-He teaches us that it does not matter if we are rich or poor, prominent or unknown, sophisticated or simple. Rather, our mortal quest is to strengthen our faith in the Lord Jesus Christ, to choose good over evil, and to keep His commandments. While we celebrate the innovations of science and medicine, the truths of God go far beyond these discoveries.
-
-In opposition to the truths of eternity, there always have been counterfeits to distract God’s children from the truth. The arguments of the adversary are always the same. Listen to these, voiced 2,000 years ago:
-
-“[You] cannot know of things [you] do not see. … [Whatever a person does is] no crime.”
-
-“[God is not blessing you, but] every [person] prosper[s] according to his [own] genius.”
-
-“It is not reasonable that such a being as … Christ … [would] be the Son of God.”
-
-“[What you believe is a foolish tradition and a] derangement of your [mind].” Sounds like today, doesn’t it?
-
-With the Restoration of the gospel, God has given us the way to learn and know essential spiritual truths: we learn them through the holy scriptures, through our personal prayers and our own experiences, through the counsel of the living prophets and apostles, and through the guidance of the Holy Ghost, who can help us to “know the truth of all things.”
-
-We can know the things of God as we seek them spiritually. Paul said, “The things of God knoweth no man, except he has the Spirit of God. … [For] they are spiritually discerned.”
-
-Look at this art by Michael Murphy. From this perspective, you would hardly believe that it is an artistic rendition of a human eye. However, as you look at the dots from a different perspective, you see the beauty of the artist’s creation.
-
-Likewise, we see the spiritual truths of God through the perspective of an eye of faith. Paul said: “The natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned.”
-
-The scriptures, our prayers, our own experiences, modern prophets, and the gift of the Holy Ghost bring us the spiritual perspective of truth necessary for our journey here on earth.
-
-Let’s look at the proclamation on the family through the eye of faith.
-
-President Gordon B. Hinckley introduced “The Family: A Proclamation to the World” with this statement: “With so much of sophistry that is passed off as truth, with so much of deception concerning standards and values, with so much of allurement and enticement to take on the slow stain of the world, we have felt to warn [you].”
-
-The proclamation begins: “All human beings—male and female—are created in the image of God. Each is a beloved spirit son or daughter of heavenly parents, and, as such, each has a divine nature and destiny.”
-
-These are eternal truths. You and I are not an accident of nature.
-
-I love these words: “In the premortal realm, spirit sons and daughters knew and worshipped God as their Eternal Father and accepted His plan.”
-
-We lived before our birth. Our individual identity is stamped in us forever. In ways we don’t fully understand, our spiritual growth there in the premortal world influences who we are here. We accepted God’s plan. We knew that we would experience difficulties, pain, and sorrow upon the earth. We also knew that the Savior would come and that as we proved ourselves worthy, we would rise in the Resurrection, having “glory added upon [our] heads for ever and ever.”
-
-The proclamation is direct: “We declare the means by which mortal life is created to be divinely appointed. We affirm the sanctity of life and of its importance in God’s eternal plan.”
-
-Our Father’s plan encourages a husband and wife to bring children into the world and obligates us to speak in defense of the unborn.
-
-If we pick and choose what we accept in the proclamation, we cloud our eternal view, putting too much importance on our experience here and now. By prayerfully pondering the proclamation through the eye of faith, we better understand how the principles are beautifully connected, supporting one another, revealing our Father’s plan for His children.
-
-Should we really be surprised when the Lord’s prophets declare His will and, for some, questions remain? Of course, some reject the voice of the prophets immediately, but others prayerfully ponder their honest questions—questions that will be settled with patience and an eye of faith. If the proclamation had been revealed in a different century, there would still have been questions, just different questions than those of today. One purpose of prophets is to help us in resolving sincere questions.
-
-Prior to being the President of the Church, President Russell M. Nelson said: “Prophets see ahead. They see the harrowing dangers the adversary has placed or will yet place in our path. Prophets also foresee the grand possibilities and privileges awaiting those who listen with the intent to obey.”
-
-I testify to the truth and spiritual power of the united voice of the First Presidency and the Quorum of the Twelve.
-
-In my lifetime, we have seen a dramatic change in the world’s beliefs about many of the principles taught in the proclamation. During my teenage and early married years, many in the world walked away from the Lord’s standard we call the law of chastity, that sexual relations are to occur only between a man and a woman who are lawfully married. In my 20s and 30s, many walked away from the sacred protection of the unborn, as abortion became more acceptable. In more recent years, many have walked away from God’s law that marriage is a sacred union between a man and a woman.
-
-Watching many walking away from the boundaries the Lord has set reminds us of that day in Capernaum when the Savior declared His divinity and sadly “many of his disciples … walked [away].”
-
-The Savior then turned to the Twelve: “Will ye also go away?”
-
-Peter answered:
-
-“Lord, to whom shall we go? thou hast the words of eternal life.
-
-“And we believe and are sure that thou art that Christ, the Son of the living God.”
-
-There are so many, young and old, who are loyal and true to the gospel of Jesus Christ, even though their own current experience does not fit neatly inside the family proclamation: children whose lives have been shaken by divorce; youth whose friends mock the law of chastity; divorced women and men who have been gravely wounded by the unfaithfulness of a spouse; husbands and wives who are unable to have children; women and men who are married to a spouse who does not share their faith in the restored gospel; single women and men who, for various reasons, have been unable to marry.
-
-One friend of nearly 20 years, whom I admire greatly, is not married because of same-sex attraction. He has remained true to his temple covenants, has expanded his creative and professional talents, and has served nobly in both the Church and the community. He recently said to me, “I can sympathize with those in my situation who choose not to keep the law of chastity in the world in which we live. But didn’t Christ ask us to be ‘not of this world’? It is clear that God’s standards are different from those of the world.”
-
-The laws of man often move outside the boundaries set by the laws of God. For those desiring to please God, faith, patience, and diligence are surely needed.
-
-My wife, Kathy, and I have known a single sister, now in her mid-40s, who is gifted in her professional abilities and serves valiantly in her ward. She too has kept the laws of God. She wrote:
-
-“I dreamed of the day I would be blessed with a husband and children. I am still waiting. At times, my situation brings feelings of being forgotten and alone, but I try to keep the focus off what I don’t have and instead on what I do have and how I can help others.
-
-“Service to my extended family, in my ward, and in the temple has helped me. I am not forgotten or alone because I am part of, and we are all part of, a larger family.”
-
-Some will say, “You don’t understand my situation.” I may not, but I testify that there is One who does understand. There is One who knows your burdens because of His sacrifice made in the garden and on the cross. As you seek Him and keep His commandments, I promise you that He will bless you and lift the burdens too heavy to bear alone. He will give you eternal friends and opportunities to serve. More important, He will fill you with the powerful Spirit of the Holy Ghost and shine His heavenly approval upon you. No choice, no alternative that denies the companionship of the Holy Ghost or the blessings of eternity is worthy of our consideration.
-
-I know the Savior lives. I witness that He is the source of all truth that really matters and that He will fulfill all the blessings He has promised to those who keep His commandments. In the name of Jesus Christ, amen.
-
