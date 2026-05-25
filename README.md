@@ -1,10 +1,10 @@
 # General Conference Talks Archive
 
-A comprehensive collection of General Conference talks from The Church of Jesus Christ of Latter-day Saints, spanning from 1971 to October 2025, all formatted in markdown for easy reading and analysis.
+A comprehensive collection of General Conference talks from The Church of Jesus Christ of Latter-day Saints, spanning from 1971 to April 2026, all formatted in markdown for easy reading and analysis.
 
 ## Overview
 
-This repository contains every General Conference talk delivered from 1971 through the most recent October 2025 conference. The talks are formatted in markdown, making them easily searchable, readable, and suitable for text analysis, research, and study.
+This repository contains every General Conference talk delivered from 1971 through the most recent April 2026 conference. The talks are formatted in markdown, making them easily searchable, readable, and suitable for text analysis, research, and study.
 
 ## Repository Structure
 
@@ -19,7 +19,7 @@ This repository contains every General Conference talk delivered from 1971 throu
 
 ### Main File
 
-- **all-conference-talks.md**: A single file containing all General Conference talks from 1971 to October 2025 in chronological order.
+- **all-conference-talks.md**: A single file containing all General Conference talks from 1971 to April 2026 in chronological order.
 
 ### Extraction Summaries
 
@@ -52,7 +52,7 @@ Each talk in the markdown files follows a consistent structure:
 ## Coverage
 
 - **Start Date**: 1971
-- **End Date**: October 2025 (current)
+- **End Date**: April 2026 (current)
 - **Conferences Included**: Both April and October General Conferences
 - **Total Time Span**: 54+ years
 
